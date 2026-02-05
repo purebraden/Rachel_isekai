@@ -98,6 +98,8 @@ Rachel’s breath stayed caught at the top of her chest.
 
 Then the room resumed.
 
+Maelin’s fingers stayed on the cup. “That hesitation,” she said quietly.
+
 The cup settled upright against the table. The drop slid back into the glass. Footsteps continued down the corridor, rhythm slightly off before smoothing out again.
 
 Maelin stopped moving.

@@ -14,11 +14,13 @@ Rachel watched all three of them react, then looked back at the book. It didn’
 
 “What?” she said finally. “Is that the call-him book?”
 
-Edrin didn’t correct her. He carried it to the table and set it down carefully, fingers lingering on the cover as if he were reminding himself it was real. “It’s a paired volume.”
+Edrin didn’t correct her. He carried it to the table and set it down carefully, fingers lingering on the cover as if he were reminding himself it was real. “It’s a paired volume.” He glanced up. “One-to-one.”
 
 “So,” Rachel said, leaning forward, then stopping herself halfway. “Letters appear? Like magic mail?”
 
 “You write here,” he said, opening it and smoothing the first pages with his palm. “He receives it there.”
+Rachel leaned back a fraction. “So it won’t reach anyone else.”
+“Only him,” Edrin said. “That’s how it’s bound.”
 
 “How long does that take?”
 
@@ -92,7 +94,7 @@ Rachel let out a breath she hadn’t realized she’d been holding. “Can I see
 
 He grabbed a scrap of paper instead and wrote quickly. When he slid it across, Rachel read it, then read it again.
 
-**Arathen—We attempted a cross-boundary summons and received an unanticipated subject. We need your guidance.**
+**Arathen—We attempted a cross-boundary summons aimed at a demon and received an unanticipated person. We need your guidance.**
 
 “That makes me sound like a loose animal,” Rachel said.
 
@@ -104,7 +106,7 @@ Edrin grimaced. “It’s an opening line.”
 
 He flipped the paper without arguing and rewrote.
 
-**Arathen—We attempted a cross-boundary summons and brought through a person. Her name is Rachel.**
+**Arathen—We attempted a cross-boundary summons aimed at a demon and brought through a person. Her name is Rachel.**
 
 Rachel read it more slowly this time. “Better.”
 
@@ -253,6 +255,7 @@ More lines followed.
 “Holding?” Rachel said.
 
 “He means location,” Edrin said automatically.
+Maelin’s voice came quick. “She has a room and a door.”
 
 The last line took longer.
 

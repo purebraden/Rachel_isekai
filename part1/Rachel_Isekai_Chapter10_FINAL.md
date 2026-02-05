@@ -24,7 +24,7 @@ Rachel didn’t smile. She wanted to. She didn’t trust her face.
 
 “What are we doing?” she asked.
 
-“We’re learning how you and the environment negotiate,” Arathen said. “That’s all.”
+“We’re learning how you and the environment negotiate,” Arathen said. “That’s all. You keep catching things at the edge.”
 
 “That’s not—” Rachel started, then stopped.
 

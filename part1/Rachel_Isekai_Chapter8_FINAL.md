@@ -80,7 +80,7 @@ Rachel talked. About the summoning. The fear. The glass. The pause. The pressure
 
 “Don’t spill,” Rachel said. “Don’t break.”
 
-“A prevention instinct,” Arathen said. “Interesting.”
+“A prevention instinct,” Arathen said. “Stopping a thing right at the edge. Interesting.”
 
 “You’re measuring me,” Rachel said.
 

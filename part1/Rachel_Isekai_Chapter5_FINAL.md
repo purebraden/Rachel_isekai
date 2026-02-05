@@ -96,7 +96,7 @@ Ilyra shifted her weight. “If we had, you’d still be out cold. Or yelling at
 
 Rachel barked a laugh and then pressed her lips together, surprised it had come out. “Okay. Good. Because that was really bothering me.”
 
-Edrin picked up where Maelin left off. “The working we used was designed to cross boundaries, not to bring someone through physically, and certainly not from your side of the March. We were expecting—” He paused, fingers lifting slightly, then lowering again. “Something else.”
+Edrin picked up where Maelin left off. “The working we used was designed to cross boundaries, not to bring someone through physically, and certainly not from your side of the March. We were expecting—” He paused, fingers lifting slightly, then lowering again. “A demon. A specific one.”
 
 “But it got me.”
 
@@ -134,9 +134,9 @@ Rachel closed her eyes briefly, then opened them again. “And you can’t send 
 
 “You can’t even talk to my world.”
 
-Edrin shook his head. “We wouldn’t know how to aim a message across that distance.”
+Edrin shook his head. “We wouldn’t know how to aim a message across that distance. There’s no anchor on your side for a message to find.”
 
-Rachel leaned back until the chair legs hit the floor again. “So I’m stuck.”
+Rachel closed her eyes for a beat, then opened them. “So I’m stuck.”
 
 “For now,” Maelin said. “Not forever. Just… now.”
 

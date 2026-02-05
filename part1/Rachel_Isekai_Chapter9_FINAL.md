@@ -46,7 +46,7 @@ Rachel turned. Maelin stood a short distance behind her, not close enough to int
 
 Maelin didn’t move immediately. She watched the space where Rachel had been standing, then the space where she was now. “Closer like holding,” she said carefully. “Or closer like anchoring?”
 
-Rachel considered it while shifting her weight again, testing. “Anchoring,” she said. “It’s not grabbing. It’s… counting.”
+Rachel considered it while shifting her weight again, testing. “Anchoring,” she said. “It’s not grabbing. It’s… counting how far I am from the threshold.”
 
 Maelin inhaled, slow. “Then we shouldn’t test it alone.”
 

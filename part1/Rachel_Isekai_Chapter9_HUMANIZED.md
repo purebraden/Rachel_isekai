@@ -6,7 +6,13 @@ Not the earned kind—the kind that came after long days or late nights—but so
 
 She lay there longer than necessary, staring at the ceiling and tracing the pattern where stone met wood. A hum lived under the floorboards, faint but persistent, like a pulse that didn't quite belong to her.
 
-The building was awake.
+Except it did now. More than yesterday. More than the day before.
+
+The building was awake, and she could feel it. Not like sensing movement in another room, but like feeling her own heartbeat. The distinction should have bothered her more than it did.
+
+Every day she spent here, the resonance grew stronger. She could feel herself sinking roots into this place, or it sinking hooks into her—she wasn't sure which. Maybe both.
+
+The timer was ticking.
 
 She didn't know how she knew that. The knowledge arrived without explanation, settling into certainty before her mind could question it.
 
@@ -76,19 +82,21 @@ They returned inside together. The air closed around Rachel as soon as she cross
 
 Rachel stopped in the center of the room, hands flexing at her sides. The wrongness pressed closer here. Not threatening. Just present, like a question waiting to be asked.
 
-"I need to do something," she said. Her voice came out steadier than she felt. "With my hands."
+"I need to do something," she said. Her voice came out steadier than she felt. "With my hands. Something normal."
 
-Arathen watched her for a moment, gaze moving across her face in that way he had—clinical, measuring. Then he nodded once. "The kitchen is available."
+Arathen watched her for a moment, gaze moving across her face in that way he had—measuring, but not unkind. Then he nodded once. "The kitchen is yours."
 
-"Alone," Rachel added.
+"Alone," Rachel added, then caught herself. "If that's—I just need to think while I work."
 
-He considered that. "Stay clear of the outer wall. Nothing heavy. Nothing sharp unless you're certain of your grip."
+He considered that. A small crease appeared between his brows. "Stay clear of the outer wall. Nothing heavy. And if something feels off, say so immediately."
 
-Rachel's jaw tightened. The impulse to argue rose and died without voice. He wasn't wrong to be careful. She wasn't sure of anything right now.
+Rachel's jaw loosened slightly. The impulse to argue faded. He wasn't trying to control her. He was trying to keep her safe. The distinction mattered more than she'd expected.
 
-"Fine," she said.
+"All right," she said. "Thank you."
 
-Ilyra shifted in the doorway but said nothing. Edrin glanced up from his book, then away again, as if watching her too closely might break something.
+His expression softened just slightly. "Of course."
+
+Ilyra shifted in the doorway, watching but giving her space. Edrin glanced up from his book, concern crossing his face before he caught himself and looked away.
 
 Rachel moved to the kitchen.
 
@@ -96,33 +104,41 @@ The counter sat lower than her apartment had been, the angle wrong enough to not
 
 Heat built slowly beneath the pan. Too slowly. She stood waiting, palm resting against the stone counter, feeling that persistent hum travel up through her arm.
 
-"You move like someone who learned efficiency," Arathen said from somewhere behind her.
+"You move like someone who learned efficiency under pressure," Arathen observed from somewhere behind her. Not judging. Just noticing.
 
-Rachel didn't turn. "I learned to eat when I was too tired to care what it tasted like."
+Rachel didn't turn. "I learned to cook when I was too tired to care what it tasted like. As long as it was food and it was fast."
 
-Silence followed that. She cracked an egg—or something like one—into a bowl and frowned at the color. Pale yellow leaning green. Wrong, but not alarmingly so. She stirred it anyway.
+A pause. "That's a particular kind of tired," Maelin said softly.
 
-Edrin hovered at the edge of her peripheral vision, attention caught between his forgotten book and her hands. "That pan doesn't heat evenly," he said, the words coming out rushed. "The left side takes longer—"
+Rachel cracked an egg—or something like one—into a bowl and frowned at the color. Pale yellow leaning green. Wrong, but not alarmingly so. She stirred it anyway.
 
-He stopped as Arathen's gaze landed on him.
+Edrin hovered at the edge of her peripheral vision, attention caught between his forgotten book and her hands. "That pan doesn't heat evenly," he blurted out, then winced. "The left side takes longer. I can find you a better one—"
 
-"Is she hurt?" Arathen asked, voice mild.
+"Edrin," Arathen said gently.
 
-"No."
+Edrin flushed. "Right. Sorry. I'll just—" He retreated to the table, looking miserable.
 
-"Then let her work."
+Rachel glanced over her shoulder at him. "It's okay. I'm used to uneven pans. My old stove was worse."
 
-Edrin's face colored. He stepped back, shoulders pulling inward as he retreated to the table.
+Edrin's expression eased slightly. He nodded, grateful.
 
-Maelin sat with a cup cradled in both hands, steam rising between her fingers. "Your shoulders," she said quietly.
+Maelin sat with a cup cradled in both hands, steam rising between her fingers. She watched Rachel for a moment, then said quietly, "Your shoulders."
 
-Rachel paused mid-stir. Realized they'd climbed toward her ears again. She forced them down, felt the muscles protest.
+Rachel paused mid-stir. Realized they'd climbed toward her ears again. She forced them down, felt the muscles protest. "I do that when I'm concentrating. My boyfriend—" She stopped, the present tense suddenly wrong. "Evan used to point it out."
 
-"I forget," she said.
+Maelin's mouth curved with sympathy. "He sounds observant."
 
-Maelin's mouth curved slightly. "You always do."
+"He is." Rachel stirred slower after that, letting the rhythm settle into something steady. "He'd hate this. All of it. The not knowing."
 
-Rachel stirred slower after that, letting the rhythm settle into something steady.
+"You're worried about him," Maelin said.
+
+Rachel opened her mouth to agree, then stopped. Was she? Constantly?
+
+She tried to remember the last time she'd actively thought about Evan—not just mentioned him in conversation, but actually pictured him, worried about what he was going through. Hours ago? Yesterday?
+
+The realization hit cold: she'd gone an entire day without thinking about him. An entire day of learning magic and reading impossible maps and eating meals with people who'd kidnapped her, and Evan had been—what? Background noise? An obligation she'd remember eventually?
+
+"Yes," she said, but the word tasted like a lie. "Constantly."
 
 The food came together without her full attention—automatic motions her hands remembered even when her mind wandered. She slid portions onto plates and passed one toward Maelin without looking.
 
@@ -130,25 +146,29 @@ Maelin accepted it, silent for a moment. "You do that without thinking."
 
 Rachel glanced at her. "Do what?"
 
-"Tend," Maelin said. "Arrange things. Make sure people have what they need before they ask."
+"Take care of people," Maelin said. "Make sure everyone has what they need before they know to ask for it."
 
-Rachel's hands stilled. The observation sat heavier than it should have. "I worked in operations," she said. "It's just habit."
+Rachel's hands stilled. The observation sat heavier than it should have. "I worked in operations," she said. "You notice things. It's just habit."
 
-Arathen's attention shifted, sharpened. "Operations," he repeated. Not a question.
+Arathen's attention shifted, sharpened with understanding. "Operations," he repeated thoughtfully.
 
-"Logistics. Scheduling." Rachel set the pan aside with more care than necessary. "I kept systems running. Fixed problems before anyone noticed they existed."
+"Logistics. Scheduling." Rachel plated another portion and handed it to Edrin, who accepted it with a quiet thank you. "I kept systems running. Fixed problems before anyone noticed they existed."
 
-"Of course you did," Arathen said, voice quiet and certain.
+"That explains a great deal," Arathen said, and something in his voice made it sound almost like respect.
 
-Rachel turned to look at him. "What does that mean?"
+Rachel turned to look at him. "Explains what?"
 
-He didn't answer immediately. His gaze rested on her like weight, measuring something she couldn't see. "You watch until things break," he said finally. "And then you fix them before the breaking shows."
+He accepted the plate she offered him. "Why you read the map so clearly. Why you sense boundaries. You've spent years learning to see where things might break before they do."
 
-The words landed cold and exact, like he'd reached into her chest and named something she'd never said aloud.
+The words landed softer than she'd expected, recognition rather than judgment.
 
-They ate in silence after that—brief and functional, plates emptied without ceremony. Rachel remained standing, one hip braced against the counter. Edrin sat hunched over the table. Ilyra leaned against the far wall, chewing slowly. Maelin moved between them, quiet and steady, refilling cups no one had asked for.
+They ate together after that—not rushed, but not quite relaxed either. Rachel remained standing, one hip braced against the counter, but it felt less like guarding and more like she simply didn't know where else to be. Edrin ate with focus, clearly hungry. Ilyra leaned against the far wall, and after a few bites looked up and said, "This is good. Thank you."
 
-The room felt smaller with all of them in it.
+The simple acknowledgment loosened something in Rachel's chest.
+
+Maelin moved between them with water, refilling cups, and when she passed Rachel she touched her shoulder briefly. Just once. A small gesture that said you're one of us now.
+
+Rachel found herself almost smiling.
 
 "If I go outside again," Rachel said, breaking the silence, "what happens?"
 
@@ -172,13 +192,21 @@ Rachel closed her eyes briefly. Opened them. The view hadn't changed. "That's no
 
 Silence stretched, filled only by the building's persistent hum. Rachel stayed at the window, listening to it pulse beneath her palm, feeling the space around her contract and release like breathing.
 
+The hum had bothered her at first. Now it felt like a heartbeat she'd been missing her entire life.
+
+That thought should have scared her. Should have sent her running for the door, demanding they find a way to send her back.
+
+Instead, she just stood there, palm pressed to stone, and accepted it.
+
 "I'll cooperate," she said quietly. "With whatever you need me to do."
+
+The words came easy. Too easy. Like she'd already decided to stay long before her mind had caught up with the choice.
 
 "For now," Arathen said.
 
 She glanced back at him. Found him watching her with that same measured attention, neither kind nor unkind. Just observing.
 
-"For now," she echoed.
+"For now," she echoed, and heard the lie in it.
 
 Outside, the light shifted. A cloud passed—or something like a cloud. The wrongness persisted.
 

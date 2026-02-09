@@ -62,7 +62,11 @@ Nothing came.
 
 Her shoulder throbbed in time with her heartbeat, each pulse distinct. The room smelled like stone and oil and something faintly metallic. Her eyes kept moving on their own, cataloging exits, distances, body positions, the fact that none of them stood directly between her and the doorway.
 
-“So,” she said, because silence was starting to feel dangerous. “What happens now?”
+The clarity bothered her more than the pain did. She should be in shock—foggy, disoriented, struggling to process. Instead, her thoughts lined up sharp and ordered, her senses heightened in a way that felt less like adrenaline and more like waking up.
+
+She pushed the observation away. Trauma did strange things to people.
+
+"So," she said, because silence was starting to feel dangerous. "What happens now?"
 
 The three of them exchanged quick looks. Ilyra tilted her head slightly. Edrin rubbed his face like he’d already answered this in his head ten times and disliked every version.
 
@@ -134,9 +138,13 @@ She felt fast.
 
 After that, they asked her to move to a smaller room. Asked, not told. The space was simple: a cot, a table, a cup of water waiting. The door stayed ajar.
 
-“Just until we understand more,” Edrin said. “You’re free to move around. We just like to know where you are.”
+"Just until we understand more," Edrin said. "You're free to move around. We just like to know where you are."
 
-Rachel smiled, easy and practiced. “Sure.”
+Rachel smiled, easy and practiced. "Sure."
+
+The smile came easier than it should have. She was being held—however gently—by people who'd pulled her from her life, and yet some part of her had already started calculating how to make this work instead of how to escape.
+
+That wasn't right.
 
 Even while she smiled, her attention tracked the doorway. The distance to the hall. The sound of footsteps beyond. The way her hearing seemed tuned slightly too high, as if the world had turned its volume up.
 
@@ -144,9 +152,21 @@ Stone and clean fabric made up the room’s smell. Rachel sat on the cot and pre
 
 Her phone should have buzzed by now.
 
-Evan would be pacing. He hated uncertainty. He would be weighing whether to call Mara, whether to call her parents, whether to drive to her apartment and check the parking lot like that would produce her out of thin air.
+Evan would be pacing. He hated uncertainty. She could picture it: that specific way he moved when he was worried, hands rubbing the back of his neck, wearing a path in the carpet. He'd done it the night she'd gotten food poisoning, walking circles around her apartment while she insisted she was fine, coming back every ten minutes to check if she needed anything.
 
-The emotion hit fast and full—fear, irritation, grief—stacked without warning. She swallowed, startled by the force of it.
+"I've got you," he'd said, voice soft and certain, holding her hair back when fine turned into not-fine. "Just let me help."
+
+She'd let him that night. Let him see her small and sick and helpless. And he'd been nothing but gentle about it.
+
+The memory should have been warm. Comforting. Instead it just made her chest ache.
+
+She tried to picture him now—really picture him, the specific way his mouth pulled tight when he was stressed, the gray T-shirt he wore when he was having a bad day—and the image came slower than it should have. Blurrier. Like trying to remember someone through fog.
+
+That wrongness jolted her awake in a way fear hadn't.
+
+How long had it been since she'd thought of him? Hours? Since she'd arrived? She'd been cataloging exits and accepting food and calculating how to survive, and somewhere in all of that, Evan—gentle, patient Evan who'd held her hair back and never asked for anything in return—had slipped to the back of her mind like something she'd deal with later.
+
+The emotion hit fast and full—fear, irritation, grief, guilt—stacked without warning. She swallowed, startled by the force of it.
 
 This isn’t shock, she realized. This is clarity.
 

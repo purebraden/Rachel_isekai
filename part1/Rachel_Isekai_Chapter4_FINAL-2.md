@@ -70,9 +70,13 @@ Cool wind cut across her face.
 
 Rachel straightened and looked up.
 
-The sky wasn’t the right color. A pale wash that leaned green near the horizon, thinning as it rose, light spreading through it without glare.
+The sky wasn't the right color. A pale wash that leaned green near the horizon, thinning as it rose, light spreading through it without glare.
 
-She turned.
+It should have looked alien. Wrong.
+
+Instead, some part of her—some part she didn't want to examine too closely—recognized it. Not the specific shade or the quality of light, but the way it settled against her skin, the way the air moved through her lungs. Like breathing properly for the first time after years of shallow breaths.
+
+She turned away from the sky, rejecting the thought.
 
 Trees ringed the clearing, their trunks familiar in shape but carrying broad blue leaves that caught the light in flat planes. One tore loose and drifted down, spinning once before settling near her shoe.
 

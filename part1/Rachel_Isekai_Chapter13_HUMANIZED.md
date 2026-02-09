@@ -8,67 +8,79 @@ The road stretched narrow before them—packed earth worn smooth by years of pas
 
 Rachel adjusted her pack for the third time in as many minutes. The straps sat wrong no matter how she positioned them, weight pulling at her shoulders in ways her body didn't know how to accommodate.
 
-"Stop adjusting," Ilyra said without looking back.
+"Stop adjusting," Ilyra said without looking back, but her tone was gentle. "You're making it worse."
 
 Rachel's hands stilled. "It doesn't fit right."
 
-"It won't," Ilyra said. "Not for days."
+"It won't," Ilyra said. "Not for days. Your body needs to learn the weight."
 
-Rachel left the straps alone. The weight settled into an ache that started immediate and promised to grow worse. She focused on the road ahead instead of the discomfort spreading across her shoulders.
+Rachel left the straps alone, though every instinct screamed to keep trying to fix it. The weight settled into an ache that started immediate and promised to grow worse.
 
-Maelin fell back until she walked beside Rachel. "The first day is the hardest," she said. "Your body doesn't know what you're asking it to do yet."
+Maelin fell back until she walked beside Rachel. "The first day is the hardest," she said sympathetically. "Your body doesn't know what you're asking it to do yet."
 
-"When does it get easier?" Rachel asked.
+"When does it get easier?" Rachel asked, trying not to sound as pathetic as she felt.
 
-"It doesn't," Maelin said. "You just get stronger."
+"Eventually," Maelin said, which was kinder than honesty required. "You get stronger. Your shoulders stop screaming. You learn how to walk differently."
 
-Rachel didn't find that particularly comforting.
+"How long is eventually?"
+
+Maelin's smile held sympathy. "Sooner than you think when you're in it. You're tougher than you know."
+
+Rachel wanted to believe that.
 
 They walked in loose formation, each person settling into a natural position. Ilyra moved ahead, attention scanning the road with the learned focus of someone who knew which details mattered and which could be ignored. Edrin followed several paces back, consulting the map periodically before looking up to confirm what he'd read against what he saw. Arathen drifted—sometimes beside Rachel, sometimes behind, his position shifting without apparent pattern.
+
+Rachel's feet found rhythm in the uneven ground. Her shoulders ached under the pack's weight. Sweat gathered at the small of her back.
+
+It was the most physically present she'd felt in years.
+
+Back home, she'd driven the same route to work every day, mind already at her desk before her body arrived. She'd moved through a world of climate control and ergonomic chairs, of careful distance from discomfort. Her body had been transportation for her mind, nothing more.
+
+Here, every step registered. Every breath counted. She was aware of her body in a way that should have been exhausting but instead felt like finally inhabiting herself.
 
 The Near March didn't announce its proximity.
 
 Rachel had expected something visible—a boundary marker, a shift in vegetation, some clear indication that they'd entered a different region. Instead, awareness crept in gradually. The air grew denser, not oppressive but present in a way it hadn't been before. Sound behaved differently here. A birdcall began and faded too quickly, cut short as if the air itself had absorbed it. Their footsteps seemed to vanish before the sound could travel.
 
-Rachel's frown deepened. "Something's different."
+Rachel's frown deepened. "Something's different here."
 
 Ilyra glanced back over her shoulder. "Different how?"
 
-"The air," Rachel said. "It's—" She searched for the word. "Waiting."
+"The air," Rachel said, pressing a hand to her chest. "It's heavier. Like it's—watching? No, that's not right. It's waiting for something."
 
-Edrin's attention snapped to her immediately. "You're sensing the boundary?"
+Edrin's attention snapped to her immediately, and he looked almost excited. "You're sensing the boundary? Already?"
 
-"I think so," Rachel said.
+"I think so," Rachel said uncertainly.
 
-Arathen adjusted his pace until he walked between them. "That's the March's edge. Most people don't notice it until they're much closer."
+Arathen adjusted his pace until he walked between them, his expression thoughtful. "That's the March's edge. Most people don't notice it until they're standing right at the threshold."
 
-Rachel's unease deepened. "Is that bad?"
+Rachel's unease deepened. "Should I be able to feel it from this far away?"
 
-"It's informative," Arathen said. "And yes, somewhat concerning."
+"It means you're sensitive to the boundaries," Arathen said. "Which is useful, even if it's uncomfortable."
 
-They didn't move any nearer to it. Edrin consulted the map more frequently, muttering about boundary shifts and stability gradients. Then Rachel stopped and pointed to their left.
+"We should trust her instincts," Maelin said from behind them. "If it feels wrong to her, it probably is wrong."
 
-"That direction," she said. "The pressure is lower there."
+They didn't move any nearer to it. Edrin consulted the map more frequently, muttering about boundary shifts and stability gradients. Then Rachel stopped walking and pointed to their left.
 
-Edrin looked up from the map. "The marked route continues right."
+"That direction," she said. "The pressure is lower there. Safer."
 
-"I know," Rachel said. "But left is better."
+Edrin looked up from the map, frowning. "The marked route continues right."
 
-"Better how?" he asked.
+"I know what the map says," Rachel said. "But the road to the right—it feels wrong. Unstable. Like walking on ice that's starting to thin."
 
-Rachel struggled to articulate what she sensed. "The road to the right—it's compromised. Not broken, but weak. Like walking on ice that's starting to thin."
+Ilyra studied the terrain in both directions. "The left looks rougher. More overgrown."
 
-Ilyra studied the terrain in both directions. "The left looks rougher."
+"It is," Rachel said. "But it's solid. The other way..." She shook her head. "Something's wrong with it."
 
-"It is," Rachel said. "But it's stable."
+"That's good enough for me," Ilyra said, and turned left without hesitation.
 
-They took the left path.
+The others followed, and the pressure eased almost immediately, like stepping out of a room where the air had grown too close.
 
-The pressure eased almost immediately, like stepping out of a room where the air had grown too close.
+Edrin stared at the map, then looked up, then back down. "It changed," he said quietly, something like awe in his voice. "The route just updated to match what Rachel sensed."
 
-Edrin stared at the map, then looked up, then back down. "It changed," he said quietly. "The route just updated."
+"The map knows when someone who can actually read it is present," Arathen said, a hint of a smile in his voice. "It's showing her the truth instead of the approximation."
 
-Rachel focused on walking—the rhythm of it, the repetition of step and weight and shift. The road felt aware somehow, not sentient but responsive, like a surface that remembered the passage of feet and adjusted itself accordingly.
+Rachel focused on walking after that, letting the praise settle warm in her chest. They trusted her. That mattered more than she'd expected.
 
 After an hour, her legs burned.
 
@@ -102,67 +114,79 @@ By late afternoon, the pack's weight had become nearly unbearable. Rachel's shou
 
 Relief flooded through Rachel so intensely it felt almost like pain.
 
+As they left the road, a thought struck her with unexpected force: What day was it?
+
+She tried to count back. The summoning had been—what, Wednesday? Thursday? She'd lost track somewhere between the second test with Arathen and the packing. How many days had it been? A week? More?
+
+Back home, Evan would have filed a missing person report by now. Would have called everyone she knew. Her parents would be frantic. Mara would be organizing search parties. Her coworkers would be whispering theories.
+
+And here she was, walking down a dirt road in another world, more concerned about whether her pack straps were adjusted correctly than about the people who loved her tearing themselves apart with worry.
+
+The guilt hit hard enough to steal her breath.
+
 They left the road, moving into a shallow grove of trees that offered cover without feeling enclosed. The ground looked level enough, clear enough.
 
 Maelin crouched to examine the earth, pressing her palm flat against it. "This will do."
 
 Edrin began unstrapping his pack, movements economical despite his obvious fatigue.
 
-Rachel let her pack slide from her shoulders. The sudden absence of weight made her feel unbalanced, as if she might float away without it anchoring her. She stretched carefully, feeling her spine protest the motion.
+Rachel let her pack slide from her shoulders with a groan she couldn't quite suppress. The sudden absence of weight made her feel unbalanced, as if she might float away without it anchoring her. She stretched carefully, wincing as her spine protested.
 
-"I don't see anywhere to shelter," she said, looking around the grove.
+"I don't see anywhere to shelter," she said, looking around the grove. "Are we sleeping under the stars?"
 
-Ilyra was already unpacking. "Give it a moment."
+"Not quite," Ilyra said, already unpacking. "Watch."
 
-She pulled out what looked like canvas—aged and folded small, unremarkable in every visible way. Rachel watched as Ilyra and Maelin began setting it up with practiced efficiency, poles appearing and clicking into place with motions too quick to follow. The structure that emerged looked small, barely large enough for one person, much less five.
+She pulled out what looked like ordinary canvas—aged and folded small, unremarkable in every visible way. Rachel watched as Ilyra and Maelin began setting it up with practiced efficiency, poles appearing and clicking into place with motions too quick to follow. The structure that emerged looked impossibly small.
 
-Rachel stared at it. "That's where we're sleeping?"
+Rachel stared at it. "Please tell me that's not for all five of us."
 
-"Yes," Ilyra said.
+"It's bigger than it looks," Maelin said with a small smile.
 
-Rachel circled it once, trying to make the dimensions work in her mind. They didn't. "I don't understand how we fit."
+Rachel circled it once, trying to make the dimensions work in her mind. They didn't. "I don't understand. There's no way we all fit in there."
 
-Arathen watched her process this. "You're assuming the interior space corresponds to the exterior."
+"Magic is strange about space sometimes," Arathen said, watching her process this. "The inside doesn't always match the outside."
 
-Rachel looked at him. Looked back at the tent. "It doesn't?"
+Rachel stopped walking. Looked at him. Looked back at the tent. "That's..."
 
-"No."
+"Impossible?" Maelin suggested gently.
 
-The impossibility of that settled cold in her chest. Magic was one thing when it involved stopping beads or reading impossible maps. This felt different—a violation of something more fundamental.
+"I was going to say terrifying," Rachel admitted.
 
-Maelin lifted the entrance flap and stepped through without ceremony.
+"It's safe," Maelin assured her. "I've slept in this tent hundreds of times. It's actually more stable than most buildings."
 
-Rachel moved closer, then hesitated at the threshold. She could see past the opening now—see that the space inside didn't match what the outside promised. Walls extended farther than they should. Light came from no visible source. The floor looked solid in a way canvas shouldn't allow.
+Rachel moved closer, then hesitated at the threshold. Through the opening, she could see light that shouldn't exist, space that shouldn't fit.
 
-"It's safe," Maelin said from inside. "I promise."
+"Take your time," Arathen said. "It's disorienting the first time."
 
 Rachel took a breath and stepped through.
 
-The interior unfolded around her—not gradually, but all at once, as if space itself had been folded and was now remembering its true dimensions. A central room opened before her, walls hung with fabric that somehow felt permanent. A low table occupied the center. Shelves lined one wall, already stocked with supplies. Doorways led to other rooms, suggesting privacy and separation that the exterior couldn't possibly contain.
+The interior unfolded around her—not gradually, but all at once, as if space itself had been waiting for her to accept the invitation. A central room opened before her, far larger than the exterior could contain. Walls hung with fabric that somehow felt permanent. A low table. Shelves already stocked with supplies. Doorways suggesting other rooms beyond.
 
-The floor held steady beneath her feet. The air smelled of woodsmoke and herbs, faint but present.
+"Oh," Rachel breathed out. "Oh, this is—"
 
-Rachel stood very still, trying to process what her eyes told her against what her understanding of space insisted should be true.
+"Impossible?" Ilyra said, stepping in behind her. "Yeah. But useful."
 
-"Five people sleep here?" she asked quietly.
+Rachel took a few steps inside, touching the wall to confirm it was solid. "How does this work?"
 
-"Comfortably," Ilyra said, stepping in behind her.
+"Very old magic," Edrin said, entering last and setting his pack down with a thump. "Folded space. Most people can't make these anymore."
 
-Rachel's hands curled at her sides. She wanted to laugh but couldn't quite manage it. Wanted to protest but didn't have words for what felt wrong about this.
+"This is incredible," Rachel said, and found she meant it. The terror had given way to wonder. "I mean, it still violates everything I thought I knew about physics, but it's incredible."
 
-She dropped her pack near the entrance and let herself lean against the wall, needing the solid press of it to confirm that at least this part was real.
+Maelin smiled at that, pleased. "I'm glad you like it. You'll have your own space—there's a small room in the back that's quiet."
 
-Her feet ached. Her shoulders throbbed. The Near March's pressure still lingered at the edges of her awareness, patient and watchful.
+The thoughtfulness of that—of making sure Rachel had privacy—struck her unexpectedly hard.
 
-But here, inside this impossible space, nothing demanded her attention. Nothing asked for her reaction or her compliance.
+"Thank you," she said, and her voice came out softer than she'd intended. "All of you. For—" She gestured vaguely. "For not leaving me behind. For including me."
 
-Maelin's hand touched her arm briefly. "You made it through the first day."
+"You're one of us now," Ilyra said matter-of-factly. "Where else would you be?"
 
-Rachel opened her eyes. "I walked. That's all."
+Rachel's throat tightened. She dropped her pack and let herself lean against the wall, suddenly aware of how exhausted she was—not just physically, but emotionally.
 
-"You kept walking," Maelin said. "That's not nothing."
+Maelin's hand found her shoulder. "First day is done. You did it."
 
-Rachel nodded slowly, accepting this if not quite believing it.
+"We did it," Rachel corrected quietly.
+
+Maelin squeezed gently. "Yes. We did."
 
 Outside, light began to fade between the trees, shadows lengthening across ground they'd covered. Inside, the tent maintained its impossible steady presence, indifferent to the progression of time beyond its walls.
 

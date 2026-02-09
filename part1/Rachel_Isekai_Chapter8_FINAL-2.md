@@ -94,11 +94,19 @@ Arathen laid out rules. No testing alone. No new summoning. Familiar spaces only
 
 Rachel asked about home.
 
-Arathen deferred.
+The word caught in her throat. Home. Which home? The apartment she'd rented? The city where she'd lived? The world she'd left?
 
-Later, when Rachel asked what she was, he said, “You’re Rachel.”
+Or this place, where the air recognized her and magic moved through her like breathing?
+
+Arathen deferred, and Rachel found herself almost relieved.
+
+Later, when Rachel asked what she was, he said, "You're Rachel."
 
 Boxes, he said, were dangerous.
+
+Rachel thought about the box she'd built around herself back there. Fine. Functional. Small enough to fit anywhere, unobtrusive enough that no one looked too close. 
+
+She'd lived in that box for twenty-six years and called it a life.
 
 When the conversation slowed, Rachel asked to go outside again.
 

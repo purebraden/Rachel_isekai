@@ -50,21 +50,31 @@ He nodded. “It’s a place where things brush up against each other. Worlds, I
 
 “It isn’t meant to be.”
 
-Maelin watched Rachel chew, then said, “We didn’t expect to pull a person through. That part is… unusual.”
+Maelin watched Rachel chew, then said, "We didn't expect to pull a person through. That part is… unusual."
 
-“How unusual,” Rachel asked.
+"How unusual," Rachel asked.
 
-Edrin hesitated. “We’ve never done it.”
+Edrin hesitated. "We've never done it."
 
-Ilyra snorted. “He means no one we know has.”
+Ilyra snorted. "He means no one we know has."
 
-Rachel swallowed. “So you’re new at this.”
+Rachel swallowed. "So you're new at this."
 
-“We’ve studied it,” Edrin said. “Theory, mostly. Observations. Secondhand accounts.”
+The conversation felt comfortable. Easy in a way that made no sense. She'd known these people for what—two days? Three? And yet sitting here with them, eating bread and discussing accidental summoning, felt more natural than dinner with Evan ever had.
 
-Rachel looked at the books again. “Those don’t look secondhand.”
+That thought landed cold and sharp.
 
-“They are,” he said. “Someone else’s notes. Someone else’s failures.”
+Evan, who'd known her for two years. Who brought her food when she was stressed and never pushed when she went quiet. Who loved her.
+
+And these three strangers—her kidnappers, technically—already felt more like home than he ever had.
+
+What did that say about her?
+
+"We've studied it," Edrin said, pulling her back. "Theory, mostly. Observations. Secondhand accounts."
+
+Rachel looked at the books again, grateful for the distraction from her own thoughts. "Those don't look secondhand."
+
+"They are," he said. "Someone else's notes. Someone else's failures."
 
 Maelin leaned back in her chair. “My mother told me a story once. About a village near the old crossings. She said a woman there could stop things without touching them. Just for a breath. Just long enough to step out of the way.”
 
@@ -128,25 +138,31 @@ He exhaled. “We’re out of our depth.”
 
 That hung there.
 
-“We don’t have to call him yet,” Maelin said. “We could wait. Observe.”
+"We don't have to call him yet," Maelin said. "We could wait. Observe."
 
-“And do what,” Ilyra asked. “Hope it doesn’t get worse.”
+Rachel's head snapped up. "No."
 
-Edrin’s shoulders slumped slightly. “Arathen would know what questions to ask.”
+They all looked at her.
 
-Rachel glanced between them. “Who’s Arathen.”
+"No," she repeated, steadier this time. "You just told me you're out of your depth. That this is 'not behaving the way it should.' You want to wait and observe while I—what? Accidentally tear reality apart?" She stood, hands flat on the table. "Who's got answers? Who can actually help?"
 
-“My mentor,” Edrin said. “He taught me most of what I know.”
+Edrin's shoulders slumped slightly. "Arathen. My mentor. He taught me most of what I know."
 
-“And he taught you to stop when things go sideways,” Ilyra added.
+"Then call him," Rachel said.
 
-Edrin didn’t argue with that.
+"And he taught you to stop when things go sideways," Ilyra added quietly.
 
-Maelin looked at Rachel. “Calling him changes things. It makes this… official.”
+Edrin didn't argue with that.
 
-Rachel considered that. The books. The stories. The way the room had tilted, just a little, like a warning.
+Maelin looked at Rachel, something like respect crossing her face. "Calling him changes things. It makes this… official. Other people will know about you."
 
-“Then maybe it already is,” she said.
+Rachel considered that. The books. The stories. The way the room had tilted, just a little, like a warning. The timer ticking down on whether she could ever go home.
+
+"Then we call him," she said firmly. "Because right now I've got magic I don't understand, a world that's trying to claim me, and a countdown on getting back to my life. I need someone who knows what they're doing. And apparently, that's not you three."
+
+The bluntness hung in the air.
+
+"No," Edrin admitted. "It's not."
 
 Edrin nodded slowly.
 

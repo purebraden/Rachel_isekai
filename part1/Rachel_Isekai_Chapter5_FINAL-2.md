@@ -146,19 +146,29 @@ Rachel’s jaw tightened. She reached up and scrubbed at her face, then dropped 
 
 Silence stretched. Edrin shifted in his seat. Ilyra uncrossed her arms and crossed them again the other way.
 
-“What do you need right now,” Maelin asked finally, “to get through the next hour.”
+"What do you need right now," Maelin asked finally, "to get through the next hour."
 
-Rachel stared at the floor, following a crack in the stone until it disappeared under the table. “I need to not break anything. And I need to not feel like I’m going to.”
+Rachel stared at the floor, following a crack in the stone until it disappeared under the table. What did she need? 
 
-Edrin nodded slowly. “That’s reasonable.”
+Back home, the answer would have been space. Distance. Time alone to process and compartmentalize and file everything away in the right mental boxes. To make herself small and manageable and fine.
 
-“You also need sleep,” Ilyra said.
+Here, the answer felt different. Wrong. Dangerous.
 
-Rachel blinked. “Do I.”
+She needed them to keep talking. Needed the weight of Maelin's attention and Edrin's earnest concern and even Ilyra's blunt observations. Needed to not be alone with what she was becoming.
 
-“You’re buzzing,” Ilyra said. “Hard.”
+When had she ever needed people like this?
 
-Maelin reached for the pitcher this time and poured, the water sloshing slightly before settling. She slid the glass across the table, stopping it well short of Rachel’s hands.
+"I need to not break anything," she said finally. "And I need to not feel like I'm going to."
+
+Edrin nodded slowly. "That's reasonable."
+
+"You also need sleep," Ilyra said.
+
+Rachel blinked. "Do I."
+
+"You're buzzing," Ilyra said. "Hard."
+
+Maelin reached for the pitcher this time and poured, the water sloshing slightly before settling. She slid the glass across the table, stopping it well short of Rachel's hands.
 
 Rachel waited a beat, then took it.
 
@@ -170,10 +180,36 @@ Nothing tilted. Nothing pushed back.
 
 Her shoulders lowered a fraction on their own.
 
-“Okay,” Rachel said. “Then we figure this out. Together.”
+"There's something else you should know," Edrin said quietly.
+
+Rachel looked at him. His expression had gone serious, almost apologetic.
+
+"The summoning," he continued. "The way it pulled you through. That creates a kind of... resonance. Between you and this world."
+
+"What does that mean?" Rachel asked.
+
+Edrin glanced at Maelin, who nodded for him to continue.
+
+"It means the longer you're here, the more this world recognizes you," he said. "The magic you're developing—it's not just happening randomly. It's happening because you're becoming part of this place."
+
+Rachel's stomach tightened. "And?"
+
+"And that resonance goes both ways," Ilyra said bluntly. "The more it pulls you in, the harder it would be to send you back. Eventually..." She shrugged. "Eventually it might not be possible at all."
+
+The words landed like stones in still water.
+
+"How long?" Rachel asked.
+
+"We don't know," Maelin admitted. "Could be weeks. Could be months. But every day you're here, the connection strengthens."
+
+Rachel stared at the table. "So there's a timer on whether I can go home."
+
+"Yes," Edrin said simply.
+
+"Okay," Rachel said, though nothing felt okay. "Then we figure this out. Together. Quickly."
 
 Maelin nodded.
-Edrin let out a breath he’d been holding.
+Edrin let out a breath he'd been holding.
 Ilyra tipped her head once, sharp and approving.
 
 No one argued.

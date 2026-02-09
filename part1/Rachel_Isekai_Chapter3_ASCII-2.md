@@ -100,15 +100,19 @@ Then the room resumed.
 
 The cup settled upright against the table. The drop slid back into the glass. Footsteps continued down the corridor, rhythm slightly off before smoothing out again.
 
+Rachel drew her hand back and stared at it. Her palm tingled, warm in a way that had nothing to do with temperature. The sensation felt familiar—disturbingly familiar—like flexing a muscle she'd always had but never known how to use.
+
+Like finding a word in a language she'd never been taught but somehow still understood.
+
+The rightness of it made her stomach turn.
+
 Maelin stopped moving.
 
 Edrin stood fast enough to jolt the bench. Wood complained. The ledger slid from his hands and scattered across the floor, pages fanning where they landed.
 
 Ilyra stepped forward, then checked herself. Her bare foot shifted against the stone. Her gaze stayed on Rachel, unblinking.
 
-Rachel drew her hand back and pressed it against her thigh. Heat lingered in her palm.
-
-"I didn't touch it," Rachel said.
+Rachel pressed her hand against her thigh, trying to erase the warmth. "I didn't touch it," she said, and hated how defensive she sounded.
 
 Maelin set the cup down with care. Her fingers stayed there a moment longer than necessary before she stepped away from the table.
 
@@ -124,11 +128,21 @@ Rachel swallowed. Her tongue stuck briefly to the roof of her mouth. "It was goi
 
 "Yes," Ilyra said.
 
-Rachel's mouth opened. Closed. Her shoulders dropped a fraction, like something unhooking.
+Rachel's mouth opened. Closed. Then she straightened, decision forming. "I want to do it again."
 
-Maelin drew a breath. Her hands came together, fingers threading and unthreading. "Are you all right?"
+Three pairs of eyes fixed on her.
 
-Rachel nodded once. The motion slowed and stopped halfway through.
+"Rachel—" Maelin started.
+
+"Not a suggestion," Rachel said. The words came out steadier than she felt. "Whatever just happened, it came from me. I need to know if I can control it. You need to know too." She looked between them. "Or were you just going to pretend it didn't happen and hope it doesn't come up again?"
+
+Silence.
+
+"She's not wrong," Ilyra said finally.
+
+Maelin drew a breath. Her hands came together, fingers threading and unthreading. "Are you sure?"
+
+Rachel nodded once. The motion was firm. Decisive.
 
 Edrin finished stacking the ledger and set it down farther from the table than before. He nudged the bench back with his foot, creating space.
 

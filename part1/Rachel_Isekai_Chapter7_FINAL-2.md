@@ -106,33 +106,45 @@ He flipped the paper without arguing and rewrote.
 
 **Arathen—We attempted a cross-boundary summons and brought through a person. Her name is Rachel.**
 
-Rachel read it more slowly this time. “Better.”
+Rachel read it more slowly this time. "Better. But add something else."
 
-Maelin said, “Thank you,” and meant more than the words.
+Edrin looked up, pen hovering.
+
+"Tell him I'm cooperating," Rachel said. "Tell him I want to understand what's happening to me. And—" She hesitated, then pushed forward. "Tell him there might be a timer on sending me back, so if he has answers, we need them soon."
+
+Edrin met her eyes, then nodded and added the lines.
+
+Maelin said, "Thank you," and meant more than the words.
 
 Edrin wrote it into the book. The ink sank unevenly, dark at the edges. He paused often, not to think, but to wait.
 
-“You’re telling him about the hesitation?” Ilyra asked.
+"You're telling him about the hesitation?" Ilyra asked.
 
-“Yes.”
+"Yes."
 
-“And the tilt?”
+"And the tilt?"
 
-“Yes.”
+"Yes."
 
-“And the fact that—”
+"And the resonance effect?" Rachel added.
 
-“Ilyra,” Maelin said.
+Edrin nodded. "I have to. He needs to know everything."
 
-Ilyra stopped, hands lifted. “Okay.”
+"And the fact that—"
 
-Rachel swallowed. “What fact?”
+"Ilyra," Maelin said.
 
-Edrin didn’t answer. His pen hovered.
+Ilyra stopped, hands lifted. "Okay."
 
-“That’s a face conversation,” Maelin said. “Not an ink one.”
+Rachel swallowed. "What fact?"
 
-Rachel didn’t like it. She didn’t push.
+Edrin didn't answer. His pen hovered.
+
+"That's a face conversation," Maelin said. "Not an ink one."
+
+Rachel didn't like it, but she understood. Some things couldn't be written down. "Fine. But he needs to know I'm not passive in this. I'm trying to work with you."
+
+"I'll make that clear," Edrin promised.
 
 When Edrin finished, he didn’t close the book right away. He let the page sit, then closed it gently.
 
@@ -210,15 +222,23 @@ Maelin’s voice was gentle. “That can be kind.”
 
 Later still—after Evan drifted away and came back sideways—Rachel asked Ilyra how she knew so much about injuries.
 
-Ilyra shrugged. “My aunt ran a clinic near one of the river routes. People came through half-broken and lied about how bad it was.”
+Ilyra shrugged. "My aunt ran a clinic near one of the river routes. People came through half-broken and lied about how bad it was."
 
-“You learned healing there?” Rachel asked.
+"You learned healing there?" Rachel asked.
 
-“Because no one else would,” Ilyra said. “You patch first. You ask later. Sometimes never.”
+"Because no one else would," Ilyra said. "You patch first. You ask later. Sometimes never."
 
 Maelin watched her carefully.
 
-Ilyra went on, voice rougher now. “People don’t tell the truth about pain. Bodies do.”
+Ilyra went on, voice rougher now. "People don't tell the truth about pain. Bodies do."
+
+Rachel found herself nodding, understanding settling deep. Back home, conversations like this—real ones, past the surface—had felt like work. Performance. She'd measured every word, calibrated every response, constantly aware of how she appeared.
+
+Here, she'd just asked. And Ilyra had just answered. No performance required.
+
+The ease of it should have comforted her.
+
+Instead, it felt like proof of something she didn't want to acknowledge: that she'd been performing her entire life, and only now, in this impossible place with these strangers, had she stopped.
 
 The book stayed on the table.
 

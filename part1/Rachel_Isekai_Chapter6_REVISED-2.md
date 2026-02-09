@@ -38,9 +38,9 @@ Edrin didn’t deny it. “Thinking isn’t the same as doing.”
 
 Maelin came in behind her with a tray, setting it down on the edge of the table. Bread, fruit, something warm in a small cup. She didn’t interrupt the conversation, just made the food available and took a seat nearby.
 
-Rachel tore off a piece of bread. “You keep calling this place the March.”
+Rachel tore off a piece of bread. "You keep talking about the March."
 
-“The Near March,” Edrin said absently. “There are others farther out, but this one’s closest to the settled routes.”
+"The Near March," Edrin said absently. "It's the unstable region to the east of here—where boundaries break down. There are others farther out, but this one's closest to the settled routes. We maintain this outpost at its edge to monitor it."
 
 “That doesn’t mean anything to me.”
 
@@ -164,8 +164,4 @@ The bluntness hung in the air.
 
 "No," Edrin admitted. "It's not."
 
-Edrin nodded slowly.
-
-No one moved for a moment after that.
-
-Outside, light shifted across the windows, blue leaves catching it and holding it longer than they should.
+Edrin nodded slowly and reached for the book.

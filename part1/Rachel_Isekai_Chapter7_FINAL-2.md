@@ -280,15 +280,10 @@ The last line took longer.
 
 No one spoke.
 
-Rachel stood and left before she could be watched doing it.
+Rachel stood. The bench scraped as she moved.
 
-Outside, the clearing waited.
+"I'm going outside," she said.
 
-The sky was wrong in daylight—thin, green-leaning, like light filtered through something she couldn’t see.
+She didn't wait for permission.
 
-Rachel stood under it, breathing.
-
-Not comforting.  
-Not cruel.  
-
-Just real.
+As she moved toward the door, that persistent thought returned: Every hour here makes it harder to leave. The resonance was pulling her deeper into this world with each breath, each step, each moment of belonging. The timer was ticking, and she could feel it in her bones now—not as urgency, but as inevitability.

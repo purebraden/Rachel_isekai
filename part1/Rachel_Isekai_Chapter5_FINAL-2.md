@@ -78,7 +78,7 @@ Ilyra pushed off the wall and hooked one ankle behind the other, arms folding ac
 
 Rachel huffed out a breath and looked at the table. The surface still held the faint ring where the cup had been. “Where am I.”
 
-Edrin leaned forward, forearms braced on his knees. The ledger rested beside him, closed now, his fingers tapping once against its cover before stilling. “We call this region the Near March. It’s one of several places where worlds come close enough to brush. Not layered. Not stacked. More like pressure points.”
+Edrin leaned forward, forearms braced on his knees. The ledger rested beside him, closed now, his fingers tapping once against its cover before stilling. "This settlement sits at the edge of what we call the Near March—a region where worlds come close enough to brush. Not layered. Not stacked. More like pressure points. We're in the safe zone here, but the March itself is... volatile."
 
 “That doesn’t mean anything to me,” Rachel said, without looking up.
 

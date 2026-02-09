@@ -100,26 +100,30 @@ Rachel closed her eyes, letting the words settle. The light began to fade—not 
 
 "Right back at you," Ilyra replied, and something in her voice said she meant it.
 
-Rachel lay there as the others' breathing deepened into sleep. The road waited outside, patient. The map rested folded nearby. The Near March continued its slow breathing in the distance.
+Rachel lay there as the others' breathing deepened into sleep. She thought about Evan. Tried to picture his face with the clarity he deserved—the specific way his mouth pulled when he smiled, the gray T-shirt he wore on bad days.
 
-Inside the tent, she was not alone.
-
-She thought about Evan, tried to summon his face with the clarity it deserved. Tried to feel the urgency of getting back to him, to her apartment, to the life she'd built.
-
-The image came slower than these strangers' faces did. Blurrier. Like something seen through water.
+The image came slower than it should have. Blurrier than Maelin's or Edrin's or even Ilyra's.
 
 She'd known them less than a week.
 
 She'd known him two years.
 
-And yet when she pictured home, it wasn't her apartment that appeared. It was this—this impossible tent with its folded space, these people who'd chosen her without knowing her, this world that recognized her in ways her own never had.
+Rachel pressed her palm against her chest, feeling her heartbeat, and tried not to think about what that meant. About what she'd already started choosing without choosing.
 
-The guilt of that recognition nearly choked her.
+About what it said about her that when she pictured home now, she saw folded canvas and impossible space and three people who'd kidnapped her and somehow become the ones she couldn't imagine leaving.
 
-But beneath the guilt, deeper and more honest, lived something else: the quiet, terrifying knowledge that if they found a way to send her back tomorrow, she would have to choose.
+The missing piece she'd felt her entire life—that gap she'd carried through coffee shops and office buildings and dinner with Evan—it wasn't missing anymore. Or maybe it had never been missing at all. Maybe she'd just been in the wrong place for it to exist.
 
-And she wasn't sure which world she'd choose anymore.
+Here, in this impossible tent with these impossible people, she was whole.
 
-She'd stopped moving for now.
+And that truth was more terrifying than any magic she'd discovered.
 
-And for the first time since arriving—perhaps for the first time in her life—that felt like enough.
+If they found a way to send her back tomorrow, she'd have to decide.
+
+She wasn't ready for that choice. Wasn't sure she'd ever be.
+
+But deep down, underneath the guilt and the fear and the confusion, she already knew what she'd choose. Had been choosing it, without choosing, from the moment she'd stopped the glass from falling.
+
+Rachel closed her eyes and listened to breathing that wasn't hers.
+
+Outside, the road went on without them.

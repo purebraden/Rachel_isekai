@@ -84,9 +84,11 @@ Ilyra's expression stayed flat. "That's where it gets complicated."
 
 "Try me," Rachel said.
 
-Edrin rubbed at his temple, fingers pressing hard enough to leave marks. "There are forces in this world that cross boundaries they shouldn't. Things that slip between spaces, that disrupt the way places hold together. Most people adapt. Build around them. But sometimes…"
+Edrin rubbed at his temple, fingers pressing hard enough to leave marks. "The March has been expanding. Slowly, but measurably. Areas that were stable five years ago are fragmenting now. Trade routes collapse. Settlements evacuate. People disappear into boundary fractures."
 
-"Sometimes adaptation isn't enough," Arathen finished.
+"We've been trying to understand why," Maelin added. "To find a way to stabilize it. But the March doesn't follow normal rules. It's not just unstable—it's actively destabilizing everything around it."
+
+"Like a wound that won't heal," Ilyra said flatly. "Gets worse if you don't treat it."
 
 Rachel watched them carefully. "So you tried to summon something to fix it."
 
@@ -98,7 +100,15 @@ The word fell heavy into the silence.
 
 No one denied it.
 
-Ilyra's arms remained folded. "They understand boundaries better than most."
+Edrin's voice came quiet. "A specific one. Keleth. She's a boundary walker—someone who exists between worlds by nature. We thought if anyone could understand what's happening to the March, could tell us how to stop it..."
+
+"It would be someone who lives in those in-between spaces," Arathen finished.
+
+Ilyra's arms remained folded. "Demons understand boundaries better than most. Keleth especially. She's helped stabilize fractures before, according to the records."
+
+"But you got me instead," Rachel said.
+
+"Yes," Edrin admitted. "And we still don't know why."
 
 Rachel stared at the floor, at the grain of the wood, at anything but the people watching her process this. Something shifted inside her—not quite fear, not quite anger. Something older and less defined.
 
@@ -178,17 +188,25 @@ She wanted to laugh. Felt the impulse rise bitter and sharp in her throat. "That
 
 Rachel's hands formed fists against her thighs. "What does that mean?"
 
-He hesitated, and Maelin spoke instead. "It means you weren't wrong there. The world was."
+He hesitated, choosing his words carefully. "You told us you were adopted. That you'd always felt like something was missing, like you didn't quite fit anywhere."
+
+Rachel's breath caught. "How is that relevant?"
+
+"Because people who exist between worlds often come from... fractured origins," Arathen said gently. "Not broken. Fractured. Split between what was and what could be. Your adoption left a gap in your history—a place where your story should have been solid but wasn't. That kind of incompleteness..." He paused. "It can make someone permeable to other possibilities."
+
+Maelin spoke softly. "It means you weren't wrong there. The world was. You were always meant for somewhere with more space."
 
 The gentleness in her voice nearly undid Rachel.
 
 "So I was broken there," Rachel said, voice wavering. "And I'm fixed here."
 
-"No," Edrin said urgently, leaning forward. "You were never broken. You were—" He struggled for the word. "Compressed. Like trying to exist in a space too small to hold you."
+"No," Edrin said urgently, leaning forward. "You were never broken. You were—" He struggled for the word. "Compressed. Like trying to exist in a space too small to hold you. That missing piece you felt? It wasn't something you lost. It was something you never had room to grow."
 
-Rachel looked at him. "Did you know that when you summoned me?"
+Rachel's throat closed. The missing piece. The gap she'd carried her whole life, the one she'd tried to fill with being fine, being useful, being small enough that no one would notice the hollow space inside her.
 
-"No," he said, and there was real pain in his voice. "I swear, Rachel, we didn't know. But it explains why the working reached you instead of what we'd called for. You were—you are—someone who exists between worlds."
+"Did you know that when you summoned me?" she asked.
+
+"No," Edrin said, and there was real pain in his voice. "I swear, Rachel, we didn't know. But it explains why the working reached you instead of Keleth. You were—you are—someone who exists between worlds. Just like she does. The summoning found someone with the same... resonance."
 
 Ilyra's voice came quieter than usual. "We didn't mean to pull you here. But maybe you were always meant to find your way to somewhere like this."
 

@@ -168,8 +168,8 @@ Rachel looked down at her scraped hands, at the pale lines carved into the stone
 
 No one laughed.
 
-And in that quiet, in the way none of them told her to leave or tried to explain what had gone wrong, Rachel felt it settle into her bones.
+The quiet stretched. None of them moved to help her up. None of them asked her to leave.
 
-She hadn’t arrived here by mistake.
+Rachel pressed her scraped palms against the cold stone, feeling the broken circle beneath her, and waited.
 
-And whatever they’d meant to summon tonight hadn’t finished arriving yet.
+Behind her, the doorway stayed open. Waiting too.

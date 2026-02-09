@@ -122,7 +122,13 @@ Back home, Evan would have filed a missing person report by now. Would have call
 
 And here she was, walking down a dirt road in another world, more concerned about whether her pack straps were adjusted correctly than about the people who loved her tearing themselves apart with worry.
 
+How long had it been for them? With time moving differently between worlds, they could have been searching for weeks. Months. They might have already held a memorial service for her.
+
 The guilt hit hard enough to steal her breath.
+
+And underneath it, worse than the guilt—the knowledge that even if they found a way to send her back tomorrow, the resonance had already grown so strong she wasn't sure she could leave. The connection deepened with every step she took in this world. Every meal shared. Every moment of magic used.
+
+The timer wasn't just ticking anymore. It might have already run out.
 
 They left the road, moving into a shallow grove of trees that offered cover without feeling enclosed. The ground looked level enough, clear enough.
 
@@ -198,10 +204,10 @@ Normal actions. Ordinary preparations.
 
 Except nothing about this was ordinary.
 
-Rachel looked around the impossible space, at the walls that shouldn't exist, at the people who'd pulled her from one world into another and were now trying to keep her alive in this one.
+Rachel looked around the impossible space—walls that shouldn't exist, light from nowhere, people who'd become something like family in less than a week.
 
-She didn't know what normal meant anymore. Wasn't sure she'd recognize it if she found it.
+"Get some sleep," Ilyra said, already settling into her own space. "Tomorrow's another long day."
 
-Outside, the road continued without them, patient and waiting.
+Rachel nodded and lay back, staring at the curved ceiling.
 
-Inside, Rachel sat very still and tried to believe that rest was possible.
+Outside, the road waited. Inside, her eyes stayed open.

@@ -12,7 +12,9 @@ The building was awake, and she could feel it. Not like sensing movement in anot
 
 Every day she spent here, the resonance grew stronger. She could feel herself sinking roots into this place, or it sinking hooks into her—she wasn't sure which. Maybe both.
 
-The timer was ticking.
+The timer was ticking. How many days had it been now? Five? Six? Each one made the connection deeper, the path back narrower. Soon—maybe already—it would be too late to return even if they found a way.
+
+And the terrifying part was how little that thought bothered her.
 
 She didn't know how she knew that. The knowledge arrived without explanation, settling into certainty before her mind could question it.
 
@@ -206,8 +208,6 @@ The words came easy. Too easy. Like she'd already decided to stay long before he
 
 She glanced back at him. Found him watching her with that same measured attention, neither kind nor unkind. Just observing.
 
-"For now," she echoed, and heard the lie in it.
+"For now," she echoed.
 
-Outside, the light shifted. A cloud passed—or something like a cloud. The wrongness persisted.
-
-Rachel stayed where she was, palm pressed to stone, listening to the building count her heartbeat.
+The building hummed beneath her palm. Rachel closed her eyes and let it.

@@ -118,8 +118,8 @@ Rachel stood under it, breathing, the light pressing softly against her eyes the
 
 Behind them, the door clicked as it settled back into place.
 
-Rachel tipped her head up and watched the thin, green-leaning light slide across the leaves, the color refusing to correct itself no matter how long she stared.
+Rachel tipped her head up. The thin, green-leaning light moved across the leaves overhead, the color refusing to correct itself no matter how long she stared.
 
-She stayed there longer than she meant to.
+Maelin's voice came quiet beside her. "Ready to go back in?"
 
-When she finally looked away, it wasn’t because the sky had changed.
+Rachel shook her head. "Not yet."

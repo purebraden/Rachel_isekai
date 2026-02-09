@@ -106,23 +106,27 @@ Rachel let the silence stretch, watching to see if it would turn into a plan.
 
 It didn’t.
 
-Ilyra filled it instead, voice calm in a way that made Rachel’s skin prickle. “Time doesn’t always behave the way people expect.”
+Ilyra filled it instead, voice calm in a way that made Rachel's skin prickle. "Time doesn't always behave the way people expect."
 
-Rachel’s breath caught. “What does that mean?”
+Rachel's breath caught. "What does that mean?"
 
-“Sometimes it stretches,” Ilyra said. “Sometimes it… doesn’t line up.”
+"Sometimes it stretches," Ilyra said. "Sometimes it… doesn't line up. A day here might be an hour there. Or a week. The boundaries don't keep consistent time."
 
-“That’s not reassuring,” Rachel said.
+The words landed like cold water. Rachel's mind immediately went to Evan, to her parents, to everyone who'd be looking for her. How long had it been for them? Hours? Days? Months?
 
-“No,” Ilyra agreed. “It isn’t.”
+"How long has it been?" Rachel asked. "In my world?"
 
-Rachel forced herself to inhale slowly, counting the breath like she’d learned in some mandatory work seminar she’d pretended to hate. Panic wouldn’t help. Calm might.
+Maelin and Edrin exchanged glances.
 
-“Is there a way I can send a message?” she asked. “Just to say I’m okay.”
+"We don't know," Edrin admitted quietly. "There's no way to measure it from this side."
 
-Maelin’s expression softened. Genuinely. “We’ll see what we can do.”
+Rachel's stomach twisted. Somewhere, in another world, people she loved might think she was dead. Might have already grieved her. And there was nothing she could do about it.
 
-Rachel nodded.
+"Is there a way I can send a message?" she asked, voice tight. "Just to say I'm okay."
+
+Maelin's expression softened. Genuinely. "We'll see what we can do. I'm sorry we can't give you better answers."
+
+Rachel nodded, throat too tight to speak.
 
 That answer was a bridge made of fog. Still, she stepped onto it.
 
@@ -188,12 +192,6 @@ Rachel turned onto her side and faced the door.
 
 Breathing stayed slow. Expression stayed neutral. Thoughts stayed private.
 
-Going along with this remained the safest option.
-
-But now she knew what she was doing: buying time, not waiting for rescue.
-
 Underneath the fear, beneath the sharpened awareness, something else stirred—warm, present, unmistakably hers.
 
-Rachel didn’t reach for it.
-
-Not yet.
+She pressed her hand against her chest and felt it pulse there, waiting.

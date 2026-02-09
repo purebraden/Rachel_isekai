@@ -104,7 +104,17 @@ Rachel stared at the bead. "How do I—"
 
 "However feels natural," he said. "There's no wrong way."
 
-Her instincts screamed otherwise. Letting go meant falling. Falling meant breaking. But she trusted them now, at least a little, and that made the difference.
+"What am I even doing?" Rachel asked, staring at the suspended bead. "Is this time? Space? What am I actually controlling?"
+
+Arathen considered his answer carefully. "You're manipulating the boundary between motion and stillness. Not stopping time itself—more like... creating a pocket where normal rules pause. A hesitation in reality."
+
+"That's what the room tilt was," Edrin added quietly. "You pushed against gravity itself because gravity is just another boundary—between up and down, falling and floating."
+
+Rachel's stomach turned. "So I could accidentally..."
+
+"Yes," Arathen said simply. "Which is why we're being careful."
+
+Her instincts screamed to drop everything, to never touch this power again. But she trusted them now, at least a little, and that made the difference.
 
 She exhaled and loosened something she couldn't name—a grip that existed nowhere in her body but everywhere in her intention.
 

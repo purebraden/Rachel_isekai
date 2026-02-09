@@ -58,9 +58,7 @@ The casual generosity undid something in Rachel's chest. "I don't know what to s
 
 "You don't have to say anything," Ilyra replied.
 
-Ilyra appeared with a worn pack and set it beside Rachel without comment. "You'll need this."
-
-Rachel stared at it for a moment before tucking the clothes inside. The simple act of having something to put away, somewhere to put it, steadied her more than she'd expected. She folded each piece with more care than necessary, attention fixed on the ordinary task.
+Rachel stared at it for a moment before tucking the clothes Maelin had given her inside. The simple act of having something to put away, somewhere to put it, steadied her more than she'd expected. She folded each piece with more care than necessary, attention fixed on the ordinary task.
 
 "Shoes," Ilyra said, looking at Rachel's feet. "Those won't last a day on the road."
 
@@ -132,10 +130,12 @@ She should have felt lighter.
 
 Instead, the absence weighed more than possessions ever had.
 
-The afternoon sun angled lower through the windows, casting long shadows across the floor. They weren't ready yet—wouldn't be ready for hours still—but the shape of departure had formed. The building seemed to sense it too. Its hum had changed subtly, shifted to something that felt less like observation and more like anticipation.
+The afternoon sun angled lower through the windows, casting long shadows across the floor. They weren't ready yet—wouldn't be ready for hours still—but the moment had shifted. The building's hum had changed, anticipation threading through it.
 
 Rachel closed her pack and set it beside the others.
 
-Not hers. But hers to carry.
+Maelin paused in her own packing and looked over. "You all right?"
 
-For the first time since arriving, she could see the outline of what came next—not clearly, not completely, but enough to know they were moving toward it whether she felt prepared or not.
+"No," Rachel said. "But I will be."
+
+Maelin nodded, accepting that.

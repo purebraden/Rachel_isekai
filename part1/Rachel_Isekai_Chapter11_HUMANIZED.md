@@ -1,225 +1,225 @@
 ## Chapter Eleven
 
-They didn’t leave right away.
+They didn't leave right away.
 
-Rachel had expected that part to happen quickly — a plan, a bag, a door opening — because that was how things usually went when people realized they were out of their depth. Instead, the morning stretched. The house settled back into itself, like it had decided they weren’t done yet.
+Rachel had expected urgency—a plan formed quickly, bags packed, the door closing behind them before the morning finished settling. That was how things worked when people realized they'd miscalculated. But the hours stretched instead, time moving without purpose or direction. The house breathed around them, patient and watchful, as if it had decided they weren't finished yet.
 
-Rachel sat on the floor near the table, back against one of the legs, knees pulled up. She didn’t remember choosing that spot. She just ended up there, listening to the scrape of chairs as Edrin moved them around again for reasons he didn’t explain.
+Rachel sat on the floor near the table, back pressed against one of the legs, knees drawn up. She hadn't chosen the spot consciously. It had simply become where she was, listening to the scrape of chair legs as Edrin rearranged furniture for reasons he didn't articulate. Small movements. Adjustments that might have meant something or nothing.
 
-Ilyra leaned in the doorway, counting something on her fingers and then starting over when she lost track. Maelin rinsed a cup that was already clean. Arathen stood near the window, looking out like the view might eventually answer him back.
+Ilyra stood in the doorway, arms folded, gaze distant. Counting something internal—breaths or heartbeats or decisions. Maelin moved through the space washing things that were already clean, hands occupied with purpose where her mind couldn't settle. Arathen remained at the window, attention fixed on the clearing beyond as if waiting for the landscape to offer answers.
 
-No one spoke for a while.
+No one spoke.
 
-Rachel realized she was waiting for someone to tell her what they’d decided.
+The silence pressed in from all sides, thick with unspoken decisions.
 
-That bothered her more than the silence.
+Rachel realized she was waiting for someone to tell her what they'd concluded. What verdict they'd reached about her. About what came next.
 
-“So,” she said finally. Her voice came out steadier than she felt. “Is this the part where someone tells me what happens next?”
+The realization bothered her more than the quiet did.
 
-Ilyra glanced at Arathen. Arathen didn’t look away from the window.
+"Is this the part," she said finally, voice steadier than she felt, "where someone explains what happens now?"
 
-“We’re still figuring that out,” Maelin said gently.
+Ilyra glanced toward Arathen. He didn't turn from the window.
 
-Rachel nodded. “Okay. Because it feels like you’re all waiting for something.”
+"We're still deciding," Maelin said. Her tone stayed gentle, careful.
 
-“We are,” Edrin said, then winced like he’d answered the wrong question.
+Rachel's jaw tightened. "You're waiting for something."
 
-Rachel tilted her head. “For what?”
+Edrin stopped moving chairs. "We are," he said, then flinched as if he'd spoken out of turn.
 
-Edrin hesitated. “For you to… settle.”
+"For what?" Rachel asked.
 
-Rachel barked a laugh before she could stop herself. “That’s optimistic.”
+He hesitated, fingers curling against the chair back. "For you to… stabilize."
 
-Ilyra snorted. “He means stabilize. Not calm down.”
+The word sat wrong in her mouth. Rachel wanted to laugh—felt the impulse rise sharp and bitter—but swallowed it instead. "I don't think that's happening."
 
-“That’s worse,” Rachel said.
+Ilyra's expression stayed flat. "He means the magic. Not you."
 
-Arathen finally turned. He studied her for a moment, eyes moving over her the way they had the bead the day before — not assessing her worth, just noticing what was happening now.
+"That doesn't help," Rachel said.
 
-“You’re not wrong,” he said. “This isn’t sustainable.”
+Arathen finally turned from the window. His gaze settled on Rachel with that same careful attention he'd given the bead—measuring not her worth, but what existed in this moment.
 
-Rachel let that sit. “You mean me?”
+"You're right," he said. "This isn't sustainable."
 
-“I mean the situation,” he said. “Which includes you.”
+Rachel's chest tightened. "You mean me."
 
-“Lucky me.”
+"I mean the situation," he said. "Which includes you, but isn't only you."
 
-Maelin crouched nearby, resting her arms on her knees. “We’re not planning to keep you here like this,” she said. “If that’s what you’re worried about.”
+Rachel didn't answer. The distinction felt thin.
 
-Rachel’s stomach tightened. “I wasn’t,” she said. Then, after a beat, “I mean. I am. But not just that.”
+Maelin moved closer and crouched nearby, arms resting on her knees. "We're not keeping you here," she said quietly. "Not like this. Not indefinitely."
 
-Maelin waited.
+"But you haven't decided what you are doing," Rachel said.
 
-Rachel picked at a thread on her sleeve. It was starting to come loose. She tugged it once and then stopped herself.
+Maelin's silence confirmed it.
 
-“I keep feeling like I walked into the middle of something,” she said. “Like everyone else got a memo I missed.”
+Rachel found a loose thread on her borrowed sleeve. Pulled it once. Stopped herself before she unraveled more. "I keep feeling like I walked into the middle of a conversation," she said. "Like you all know the context and I'm just guessing."
 
-“That’s not untrue,” Ilyra said.
+"That's not inaccurate," Ilyra said.
 
-Rachel looked up. “Can you at least tell me what page we’re on?”
+Rachel looked up at her. "Then tell me what I'm missing."
 
-Edrin shifted, book forgotten on the table. “We were… trying something.”
+Edrin shifted uncomfortably, his book forgotten on the table behind him. "We were attempting something. A summoning."
 
-Rachel blinked. “You were trying something.”
+"I know that part," Rachel said.
 
-“Yes.”
+"You don't know why," he said.
 
-She pushed herself upright, sitting cross-legged now, facing them. “Okay. Then maybe I should know what that something was.”
+She pushed herself upright, folding her legs beneath her, facing them properly now. "Then maybe you should tell me."
 
-No one answered immediately.
+The room held its breath. Even the building's hum seemed to quiet, as if waiting.
 
-The house hummed softly under her, like it was listening too.
+Arathen spoke first. "We don't typically involve unwilling participants."
 
-Arathen broke the silence. “We don’t usually involve… unwilling participants.”
+Rachel's jaw tightened. "And yet."
 
-“That’s comforting,” Rachel said flatly.
+He acknowledged that with a slight nod. "And yet."
 
-He winced. “I said usually.”
+"We needed help," Maelin said. Her hands folded together, fingers interlacing and releasing in small, repetitive movements. "With something we didn't know how to handle alone."
 
-She waited.
+Rachel frowned. "Help with what?"
 
-“We were trying to summon help,” Maelin said carefully.
+Ilyra's expression stayed flat. "That's where it gets complicated."
 
-Rachel frowned. “Help with what?”
+"Try me," Rachel said.
 
-“That,” Ilyra said, gesturing vaguely. “Is complicated.”
+Edrin rubbed at his temple, fingers pressing hard enough to leave marks. "There are forces in this world that cross boundaries they shouldn't. Things that slip between spaces, that disrupt the way places hold together. Most people adapt. Build around them. But sometimes…"
 
-Rachel let out a slow breath. “Try me.”
+"Sometimes adaptation isn't enough," Arathen finished.
 
-Edrin rubbed at his temple. “There are things in this world that don’t stay where they’re supposed to. Forces that cross boundaries they shouldn’t. Most of the time, people adapt. Sometimes they can’t.”
+Rachel watched them carefully. "So you tried to summon something to fix it."
 
-Rachel listened, eyes flicking between them. “And you thought a demon would help.”
+"Someone," Maelin corrected quietly. "Not something."
 
-The word landed heavier than she expected.
+The distinction landed cold in Rachel's chest. "You were summoning a demon."
 
-Ilyra shrugged. “They’re good with boundaries.”
+The word fell heavy into the silence.
 
-“That’s one way to put it,” Arathen said.
+No one denied it.
 
-Rachel stared at the floor for a moment. Something inside her shifted, slow and uncomfortable.
+Ilyra's arms remained folded. "They understand boundaries better than most."
 
-“Who,” she asked, “were you trying to get?”
+Rachel stared at the floor, at the grain of the wood, at anything but the people watching her process this. Something shifted inside her—not quite fear, not quite anger. Something older and less defined.
 
-Edrin opened his mouth.
+"Who were you trying to reach?" she asked.
 
-Arathen raised a hand, not sharply, just enough.
+Edrin started to speak.
 
-“We can talk about that,” he said. “But not all at once.”
+Arathen raised one hand—barely a movement, just enough to stop him.
 
-Rachel looked at him. “Why?”
+"We can discuss that," Arathen said. "But not all at once. Not today."
 
-“Because you’re already carrying enough.”
+Rachel's gaze snapped to him. "Why not?"
 
-She laughed again, softer this time. “You don’t get to decide that.”
+"Because you're already holding too much," he said. "And I won't add more until I'm certain you can carry it."
 
-Arathen met her gaze. “No,” he said. “But I do get to notice when someone’s balance is already off.”
+"That's not your decision," Rachel said.
 
-Rachel pressed her palms into the floor, grounding herself in the solid, ordinary pressure of it.
+"No," Arathen agreed. "But I can choose when I'm part of the adding."
 
-“Did you know it might not work?” she asked.
+Rachel pressed her palms flat against the floor, seeking stability in the solid, unchanging pressure of wood and stone.
 
-“Yes,” Edrin said immediately.
+"Did you know the summoning might fail?" she asked.
 
-“Did you know it might get someone else?”
+"Yes," Edrin said without hesitation.
 
-Silence.
+"Did you know it might bring someone else? Someone who wasn't what you wanted?"
 
-That answer landed on its own.
+Silence answered her.
 
-Rachel nodded slowly. “Okay.”
+The absence of denial settled heavier than words could have.
 
-The word didn’t mean forgiveness. It didn’t mean understanding. It just meant she’d reached the end of what she could hold without something breaking.
+Rachel nodded slowly. "All right."
 
-“But you still haven’t told me,” she said, quieter now, “why this is happening to me.”
+The acknowledgment didn't carry forgiveness. Didn't carry understanding. It simply marked the limit of what she could process before something inside her fractured.
 
-No one answered.
+"But you still haven't told me," she said, voice dropping lower, "why this is happening to me specifically."
 
-Rachel felt her chest tighten. “I didn’t have powers before,” she said. “I didn’t feel—” She stopped, pressing her fingers into the floor. “I didn’t feel like this.”
+No one spoke.
 
-Maelin shifted closer. “Rachel—”
+Rachel's chest constricted. "I didn't have this before. I didn't feel—" She stopped, fingers curling against the floorboards. "I wasn't like this."
 
-“No,” Rachel said, sharper than she meant to. “I need to understand this part.”
+Maelin started to move closer. "Rachel—"
 
-She looked at Arathen. “You keep looking at me like you already know.”
+"No," Rachel said. The word came out harder than she'd intended. "I need to understand this part. I need to know why."
 
-Arathen closed his eyes briefly. When he opened them again, his voice had lost its casual edge.
+Her gaze fixed on Arathen. "You keep looking at me like you've already figured it out."
 
-“I don’t know,” he said. “Not completely.”
+Arathen's eyes closed briefly. When they opened again, his expression had lost its measured calm, revealing something rawer beneath.
 
-Rachel’s throat tightened. “Try.”
+"I don't know everything," he said. "I wish I did."
 
-He stepped away from the window. He didn’t pace. He didn’t sit. He stood where she could see him.
+Rachel's throat closed. "Then tell me what you do know."
 
-“Magic doesn’t behave the same way in all worlds,” he said slowly. “Some places are thin. Others are dense. Here, it presses back.”
+He stepped away from the window. Didn't sit. Didn't move closer. Just positioned himself where she could see him clearly.
 
-Rachel swallowed. “So?”
+"Magic doesn't manifest uniformly across worlds," he said. Each word came carefully, precisely. "Some places hold it loosely. Others compress it until it becomes dense, resistant. This world pushes back against those who don't belong."
 
-“So most people who cross over feel it as resistance. Fatigue. Disorientation.”
+Rachel swallowed. "Meaning?"
 
-“And me?”
+"Meaning most people who cross from your world to this one experience it as obstruction. Exhaustion. A constant sense of being pushed away by something they can't see."
 
-Arathen met her eyes. “You feel it as recognition.”
+"But not me," Rachel said.
 
-The room seemed to tilt.
+Arathen held her gaze. "You experience it as recognition."
 
-Rachel laughed, short and breathless. “That’s not a thing.”
+The room shifted around her—or perhaps she shifted and the room stayed still. Rachel couldn't tell which.
 
-“It is,” he said. “It’s just not common.”
+She wanted to laugh. Felt the impulse rise bitter and sharp in her throat. "That's not possible."
 
-She shook her head. “You’re saying this place is giving me something.”
+"It's uncommon," he said. "Not impossible."
 
-“I’m saying,” Arathen corrected, “it’s allowing something.”
+"You're saying this world gave me something."
 
-Rachel’s hands curled into fists. “Allowing what?”
+"I'm saying," Arathen corrected quietly, "this world allowed something that was already there."
 
-He hesitated.
+Rachel's hands formed fists against her thighs. "Allowed what?"
 
-“That part,” he said carefully, “was already yours.”
+He hesitated. The pause stretched long enough to hurt.
 
-The words landed like a dropped plate.
+"Something that belonged to you," he said finally. "Something that had no room to exist in your world."
 
-“So what,” Rachel said. “I was just… dormant?”
+The words hit like falling from a height she hadn't known she'd climbed.
 
-“That’s one word for it,” Edrin said quietly.
+"So I was broken there," Rachel said. "And I'm fixed here."
 
-Rachel shot him a look. “Did you know?”
+"You weren't broken," Edrin said, voice tight. "You were constrained."
 
-He shook his head immediately. “No. But it explains the summoning misfire.”
+Rachel looked at him. "Did you know that when you summoned me?"
 
-“Misfire,” Rachel repeated. “You make it sound like a machine.”
+"No," he said. "But it explains why the working reached you instead of what we'd called for."
 
-“That’s how people talk,” Ilyra said, “when they’re trying not to say mistake.”
+"Misfire," Rachel said flatly.
 
-Rachel stood abruptly, pacing two steps before stopping herself. The room felt smaller now, tighter in a way that had nothing to do with magic.
+Ilyra's expression stayed hard. "That's what people call it when they don't want to say they made a mistake they can't fix."
 
-“So you’re telling me,” she said, “that my body was just waiting for the right atmosphere.”
+Rachel stood. The motion felt too abrupt, too uncontrolled. She took two steps and stopped, awareness that the room had no space for pacing.
 
-“That’s not—” Maelin began.
+"You're telling me," she said, "that my body was just waiting. That I came here and suddenly I could do things I was never supposed to be able to do."
 
-“It is,” Rachel said. “I didn’t wake up with this. I changed.”
+"It's not that simple—" Maelin started.
 
-Her voice wavered despite her effort to keep it steady.
+"It is exactly that simple," Rachel said. Her voice cracked despite her effort to keep it level. "I wasn't this person yesterday. I am now. That's a change."
 
-Arathen watched her carefully. “You didn’t change,” he said. “You became possible.”
+Arathen's gaze didn't waver. "You didn't change. You became congruent."
 
-Rachel pressed her palms against her eyes, breathing hard. “I don’t like that,” she said. “I don’t like any of this.”
+Rachel pressed both palms against her eyes, breathing too fast, too shallow. "I hate that," she said. "I hate all of this."
 
-“I know,” Arathen said.
+"I know," Arathen said.
 
-“And you think I should just learn to live with it?”
+"And you want me to just accept it? Learn to live with it?"
 
-“No,” he said. “I think you should meet someone who already has.”
+"No," he said. "I want you to meet someone who's already learned. Someone who can show you that it's survivable."
 
 Rachel lowered her hands slowly.
 
-“Someone like me,” she said.
+"Someone like me," she said.
 
-“Someone close enough,” he replied.
+"Close enough," he replied.
 
-The house creaked softly, like it was settling around the decision.
+The house settled around them with a sound like held breath released.
 
-Rachel closed her eyes for a second.
+Rachel closed her eyes. Counted to three. Opened them again.
 
-When she opened them, the world felt the same.
+The world remained unchanged.
 
-Which meant it wouldn’t stay that way.
+Which meant it was about to change completely.

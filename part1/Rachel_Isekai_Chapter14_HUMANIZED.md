@@ -1,105 +1,111 @@
 ## Chapter Fourteen
 
-The tent didn’t settle the way Rachel expected it to.
+The tent didn't settle around Rachel the way shelter should.
 
-She kept waiting for the sense of arrival — that small internal click that meant this is where we stop — but it never came. The space held steady, warm enough, quiet enough, but her body didn’t seem convinced.
+She'd expected arrival to feel like rest—a moment when her body recognized safety and allowed itself to stop. Instead, the space remained stubbornly temporary in her mind, warm and quiet but refusing to register as destination. Her awareness kept reaching beyond the impossible walls, tracking the road outside, measuring the distance they'd covered against the distance still ahead.
 
-She sat on the edge of her bed, turning one sock inside out and then back again, trying to decide whether it was damp or if her foot just felt wrong. The mattress dipped when she shifted, adjusting in a way that felt more responsive than comfortable.
+She sat on the edge of her assigned bed, examining one sock with more attention than it warranted. Was it damp? Or had her foot simply changed shape after hours of walking? The mattress adjusted beneath her when she shifted, responding in a way that felt wrong—too attentive, as if the bed itself was watching.
 
-Across the central space, Ilyra carved at a piece of wood with a small knife, stopping and starting without any clear goal. The sound wasn’t loud, but it repeated often enough that Rachel noticed when it stopped.
+Across the central space, Ilyra worked at a piece of wood with a small knife, the blade moving in short, irregular strokes. No visible goal shaped the carving. The sound repeated with enough irregularity that Rachel noticed its absence as much as its presence.
 
-Maelin stood near the cooking space, reading a label twice before setting the jar back down unopened. Edrin sat at the table with his book closed this time, fingertips resting on the cover like he was keeping it from wandering off.
+Maelin stood near the cooking area, holding a jar and reading its label. She read it twice, then set it back without opening it. Her hands moved to another container and repeated the process.
 
-Arathen leaned against the doorframe, watching nothing in particular.
+Edrin sat at the low table, book closed in front of him, fingertips resting on the cover as if to prevent it from opening on its own.
 
-No one spoke.
+Arathen leaned in the doorway, gaze fixed on nothing in particular, attention turned inward or outward—Rachel couldn't tell which.
 
-Rachel cleared her throat. “So when we get there.”
+The silence pressed in from all sides, thick with unspoken thoughts.
 
-Maelin looked up. “Where?”
+Rachel broke it. "The town we're heading toward."
 
-“The town,” Rachel said. “The… not-remarkable one.”
+Maelin looked up. "What about it?"
 
-Edrin exhaled through his nose. “It’s remarkable if you know what to look for.”
+"What should I expect?" Rachel asked.
 
-“That’s not helpful,” Rachel said.
+Edrin's breath came out slow and measured. "That depends on what you notice."
 
-“No,” he agreed. “Sorry.”
+"That's not an answer," Rachel said.
 
-Ilyra set the knife down. “People will notice you,” she said. “Not because you’re strange. Just because you’re new.”
+"No," he agreed. "I'm sorry. It's hard to describe."
 
-Rachel nodded. “I’m good at new.”
+Ilyra set her knife aside. "People will notice you. Not because you're obviously foreign. Just because you're new."
 
-Ilyra raised an eyebrow. “Are you?”
+Rachel nodded slowly. "I can handle being new."
 
-Rachel opened her mouth, then paused. “I mean. I thought I was.”
+Ilyra's eyebrow lifted slightly. "Can you?"
 
-That earned her a look from Maelin — not concern, exactly, but attention.
+Rachel started to respond, then stopped. "I thought I could," she said finally.
 
-“You don’t have to prove anything,” Maelin said.
+Maelin's attention sharpened—not concern, exactly, but increased focus.
 
-“I wasn’t planning to,” Rachel said quickly. “I just—” She stopped. Tried again. “I don’t want to mess this up.”
+"You don't need to be anything in particular," Maelin said carefully.
 
-Edrin frowned. “This isn’t something you can mess up.”
+"I know," Rachel said. The words came too quickly. "I just—" She stopped herself, searching for what she actually meant. "I don't want to be the reason something goes wrong."
 
-“That’s not true,” Rachel said. The words came out sharper than she meant. “People mess things up all the time just by showing up.”
+Edrin frowned. "How would you be?"
 
-The air shifted. Not dramatically. Just enough.
+"People ruin things just by being in them," Rachel said. The words emerged harder than she'd intended, carrying edges she hadn't known were there.
 
-Maelin didn’t answer right away. Ilyra looked down at her hands. Arathen tilted his head slightly, studying Rachel with a new focus.
+The air shifted subtly, responding to words that had exposed more than intended.
 
-“You’re not wrong,” Arathen said eventually. “But this isn’t all on you.”
+Maelin didn't rush to respond. Ilyra's attention dropped to her hands. Arathen's gaze settled on Rachel with increased focus, measuring something new.
 
-Rachel laughed once, short. “It kind of is.”
+"You're not entirely wrong," Arathen said finally. "But you're also not carrying this alone."
 
-“No,” he said. “It kind of isn’t.”
+"It feels like I am," Rachel said.
 
-They sat with that, the disagreement unresolved.
+"I know," he said. "That doesn't make it true."
 
-The tent hummed softly — not a sound so much as a pressure, like enclosed air responding to breath and movement. Rachel became acutely aware of how close everyone was. Five people. One space. Too many small noises.
+The disagreement hung between them, unresolved.
 
-She shifted again, then stopped moving altogether.
+The tent held itself around them—not quite silent, but filled with the kind of quiet that came from enclosed space and multiple people breathing. Rachel became acutely conscious of proximity. Five people. One impossible space. Every small sound magnified.
 
-“What are we actually expecting when we get there?” she asked. “Not the plan. The… vibe.”
+She went still, trying not to add to the noise.
 
-Ilyra snorted. “You’re not going to like it.”
+"What actually happens when we reach the town?" she asked. "Not the plan you're hoping for. What's realistic?"
 
-Rachel winced. “That’s encouraging.”
+Ilyra's expression stayed flat. "Probably not what we want."
 
-“Honest,” Ilyra corrected.
+"That's honest," Rachel said.
 
-Edrin spoke without looking up. “We’re hoping for neutrality.”
+"It's all I have," Ilyra replied.
 
-“That’s the goal?” Rachel said. “Neutral?”
+Edrin spoke without lifting his eyes. "We're hoping they'll be neutral. Neither hostile nor overly helpful."
 
-Maelin nodded. “Neutral means time.”
+"That's what you're hoping for?" Rachel asked. "Neutrality?"
 
-Rachel lay back, staring at the ceiling seam that curved where it shouldn’t. The tent didn’t feel unsafe. But it didn’t feel like a reward either. It felt like a pause button that might stop working if pressed too long.
+Maelin's hands folded together. "Neutral gives us time. Time to plan. Time to understand what you need."
 
-“Do you think they’ll recognize me?” she asked.
+Rachel lay back on the bed, staring at where the ceiling met the wall in a seam that curved impossibly. The tent didn't feel dangerous. But it didn't feel like safety either. It felt like a held breath that couldn't be sustained indefinitely.
 
-No one answered immediately.
+"Will they know what I am?" she asked quietly. "The people in the town?"
 
-“Recognize how?” Maelin asked gently.
+Silence stretched before anyone answered.
 
-Rachel swallowed. “As something they already understand.”
+"Know in what sense?" Maelin asked, voice careful.
 
-Arathen straightened slightly. “I don’t think anyone understands you yet.”
+Rachel's throat tightened. "Will they recognize me as something they have words for?"
 
-That wasn’t comforting.
+Arathen shifted his position slightly. "I don't think anyone has words for you yet. Including us."
 
-Rachel closed her eyes, listening to the small sounds — fabric shifting, a breath held too long, the faint creak of the tent responding to weight.
+The admission didn't comfort her.
 
-“Okay,” she said quietly. “Then I guess that’s fine.”
+Rachel closed her eyes, listening to the small sounds that filled the space—fabric moving as someone adjusted position, breath held a moment too long, the tent itself creaking slightly as it responded to weight and movement.
 
-No one corrected her.
+"All right," she said finally. "Then that's what we're working with."
 
-The light dimmed gradually, not like a lamp going out, but like the space deciding it was done paying attention. Someone lay down. Someone else turned their back. The knife stayed where it was.
+No one contradicted her.
 
-Rachel stayed awake longer than she meant to, aware of the road waiting outside, the map folded but not quiet, the Near March breathing somewhere beyond the trees.
+The light began to fade—not abruptly, but gradually, as if the space itself had decided that day was finished. Someone shifted into sleeping position. Someone else turned to face the wall. The knife remained where Ilyra had set it.
 
-Inside the tent, nothing asked anything of her.
+Rachel lay awake longer than the others, awareness tracking beyond the tent's impossible boundaries. The road waited outside, patient and indifferent. The map lay folded somewhere nearby, its routes shifting even while no one looked at it. The Near March continued its slow breathing in the distance.
 
-That didn’t mean she felt ready.
+Inside the tent, nothing demanded her attention or her response.
 
-Only that she’d stopped moving.
+That should have let her rest.
+
+Instead, she remained alert, body refusing to accept that stopping meant safety.
+
+She'd stopped moving for now.
+
+That was all she could say with certainty.

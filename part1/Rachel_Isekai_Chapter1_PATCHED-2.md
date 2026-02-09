@@ -82,9 +82,9 @@ The afternoon passed in manageable pieces. Tasks completed. Small annoyances abs
 
 Outside, the evening air reset something in her chest. The car unlocked with a chirp. She got in and rested her hands on the steering wheel for a moment before turning the key.
 
-That pause was a habit.
+Just a moment. A breath. The transition from work to home.
 
-She’d never questioned it.
+She'd always done this. Never questioned it.
 
 Traffic moved. The radio played something unfamiliar. Sunlight flared low through the windshield. Evan appeared in her mind carrying takeout bags, knocking with his elbow, smiling like he expected praise. A smile showed up on her face without permission.
 

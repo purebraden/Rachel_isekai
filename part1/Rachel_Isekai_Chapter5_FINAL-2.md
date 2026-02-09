@@ -1,215 +1,249 @@
 # Chapter Five
 
-Rachel stayed outside longer than she needed to.
+Rachel paused at the threshold.
 
-She walked the edge of the clearing first, slow and uneven, boots sinking slightly into the dirt where the ground softened. Her hand brushed bark as she passed the nearest tree. The texture surprised her—fibrous, almost layered. One of the blue leaves hung low enough to touch. It bent under her fingers, thicker than it looked, veins pressed close beneath the surface.
+The doorway stood open before her, dark and cool compared to the alien brightness outside. Inside waited answers, probably. Caution. Maybe fear. People who'd just watched her nearly tear reality apart.
 
-She let go and stepped back, heart still beating too fast for standing still.
+She could go back in. Should go back in.
 
-The sky didn’t change.
+Her feet didn't move.
 
-Neither did the trees.
+One more breath of too-sweet air. One more moment under the wrong sky. Her pulse was still too fast, her hands still unsteady, but the trapped-fire sensation was completely gone. The building's interior felt... heavier somehow. Like walking back into pressure she hadn't noticed until she'd left it.
 
-Footsteps approached behind her, steady and unhurried.
+Rachel's hand rose to her chest, pressing where that warmth had been.
 
-Rachel didn’t turn.
+Nothing now. Just the steady thump of her heart.
 
-Maelin stopped a few paces away. “Are you dizzy?”
+She took a step toward the door.
 
-“A little.”
+Maelin appeared in the doorway, silhouetted against the dim interior. She didn't come out, just stood there, patient. Waiting.
 
-“Do you want to sit?”
+"Are you all right?" Maelin asked quietly.
 
-Rachel shook her head. “If I sit, I think I won’t get back up.”
+Rachel let out a breath she didn't know she'd been holding. "Are you asking if I'm dizzy or if I'm okay?"
 
-“All right.” Maelin stayed where she was. “Are you nauseous?”
+"Both," Maelin said. "Either."
 
-“Not anymore.”
+Rachel managed a weak smile. "Dizzy, a little. But not nauseous anymore."
 
-“Good.” A pause. “If that changes, tell me.”
+"That's good." Maelin didn't move from the doorway. "Do you need more time out here?"
 
-Rachel huffed out a breath. “You’re very calm about this.”
+Did she? Rachel glanced back at the clearing. The blue-leaved trees swaying in wind she couldn't feel. The green-tinged sky that felt more right than it should. The spot where the impossible creature had stood and regarded her with its wrong-placed eyes.
 
-Maelin smiled faintly. “I’m trying not to add to what you’re already carrying.”
+This world was alien. Dangerous. She'd just proven that she was dangerous in it.
 
-Rachel glanced at her then. “You don’t look scared.”
+And some treacherous part of her didn't want to leave.
 
-“I am,” Maelin said. “Just not of you.”
+"No," Rachel said, forcing the word out. "I should come in."
 
-Rachel looked back at the trees. “I didn’t know it was going to do that.”
+Maelin's hand lifted, palm up. "You don't have to. If you need space—"
 
-“I know.”
+"I don't need space." Rachel stepped forward, close enough now to see Maelin's expression clearly. "I need answers. I need to understand what I just did and why it went so wrong and—" Her voice cracked slightly. "I need to know if I'm going to hurt someone."
 
-“You didn’t expect me either.”
+Maelin's expression softened. "You won't. Not while we're careful."
 
-“No.”
+"You don't know that."
 
-Silence stretched between them, filled by wind moving through the leaves overhead. The blue shifted as the branches swayed, light flattening across them in a way Rachel’s eyes kept trying to correct.
+"No," Maelin admitted. "But I believe it. And I'm willing to help you prove it."
 
-“We can talk out here if you want,” Maelin said. “Or we can go back inside. No more trying things. Not today.”
+The simple confidence in her voice steadied something in Rachel's chest.
 
-Rachel closed her eyes for a second. The tilt of the room came back to her, sharp and unwelcome.
+"Inside," Rachel said again, but firmer this time. "I want answers."
 
-“Inside,” she said. “But I want answers.”
+Maelin nodded and stepped back, making room. "That's fair."
 
-Maelin nodded. “That’s fair.”
-
-They walked back together. Rachel slowed at the threshold, one last look at the clearing, then crossed it.
+Rachel crossed the threshold. The air changed immediately—cooler, heavier, that subtle pressure settling back over her skin like a weight she'd briefly forgotten.
 
 Inside, the room had been rearranged.
 
 Not dramatically. Just enough. Chairs pulled back. Objects spaced wider apart. The ledger sat closed near Edrin instead of spread across the table. Ilyra leaned against the wall, arms crossed, posture loose but alert.
 
-Rachel noticed all of it before she noticed them watching her notice.
+They'd cleared the space around where Rachel had stood.
 
-“Sit,” Maelin said gently. “Or don’t.”
+Where she'd nearly torn reality apart.
 
-Rachel sat.
+Rachel stopped just inside the door, staring at that empty space. "You moved everything away from where I was."
 
-The room felt quieter with everyone in it than it had before. Not silent. Just contained.
+"Yes," Maelin said simply.
 
-“I’m going to ask questions,” Rachel said. Her thumb worried at the seam of her sleeve as she spoke. “Probably out of order.”
+"Because I'm dangerous."
 
-Maelin nodded and pulled her own chair a little closer, not enough to crowd. “That’s fine.”
+"Because we don't understand what happened yet," Maelin corrected gently. "And until we do, we're being careful."
 
-“Good,” Rachel said. “Because I don’t think I can do this neatly.”
+Rachel's hands curled into fists at her sides. "I could have killed you. All of you. The building was—I felt it groaning, like it was going to come apart."
 
-Ilyra pushed off the wall and hooked one ankle behind the other, arms folding across her chest. “No one’s grading you.”
+"But it didn't," Edrin said.
 
-Rachel huffed out a breath and looked at the table. The surface still held the faint ring where the cup had been. “Where am I.”
+"Because I ran outside!" Rachel's voice cracked. "Not because I stopped it. Not because I had any control. I just—fled. And what if next time I can't? What if it happens when I'm sleeping, or—"
 
-Edrin leaned forward, forearms braced on his knees. The ledger rested beside him, closed now, his fingers tapping once against its cover before stilling. "This settlement sits at the edge of what we call the Near March—a region where worlds come close enough to brush. Not layered. Not stacked. More like pressure points. We're in the safe zone here, but the March itself is... volatile."
+"Rachel." Ilyra's voice cut through, not unkind. "Sit down before you fall down."
 
-“That doesn’t mean anything to me,” Rachel said, without looking up.
+Rachel realized her legs were shaking. She moved to the nearest chair and collapsed into it more than sat.
 
-“I know,” he said quickly. “I’m not trying to be evasive. I’m trying not to lie by making it sound simpler than it is.”
+The room stayed quiet. No one rushed to reassure her. No one told her it would be fine.
 
-Rachel nodded once. “So it’s not my world.”
+"I'm scared," Rachel said finally, voice small. "Of myself. Of what I can do."
 
-“No,” Maelin said. She reached for the pitcher as she spoke, then stopped, hands hovering for a moment before setting it back down. “It isn’t.”
+"That's smart," Ilyra said.
 
-Rachel leaned back, chair legs scraping softly against the floor. “You didn’t drug me.”
+Rachel's head snapped up. "That's not helpful."
 
-“No,” Maelin said, immediate and steady. “We wouldn’t. And we didn’t.”
+"Wasn't trying to be helpful," Ilyra said. "Trying to be honest. You should be scared. We're scared too."
 
-Ilyra shifted her weight. “If we had, you’d still be out cold. Or yelling at us.”
+"Ilyra—" Maelin started.
 
-Rachel barked a laugh and then pressed her lips together, surprised it had come out. “Okay. Good. Because that was really bothering me.”
+"No, she's right." Rachel rubbed her face with both hands. "You should be scared. You should probably kick me out. Send me away from here before I—"
 
-Edrin picked up where Maelin left off. “The working we used was designed to cross boundaries, not to bring someone through physically, and certainly not from your side of the March. We were expecting—” He paused, fingers lifting slightly, then lowering again. “Something else.”
+"We're not doing that," Maelin said firmly.
 
-“But it got me.”
+"Why not?" Rachel demanded. "I'm a danger to you. To everyone. I don't know what I'm doing and I can't control it and—"
 
-“Yes,” he said. “And we don’t know why.”
+Edrin leaned forward. "And you came back inside anyway."
 
-Rachel looked up then, really looked at him. “You really don’t.”
+Rachel stopped.
 
-“No,” Edrin said. “If we did, we’d already be telling you.”
+"You could have stayed outside," he continued. "Could have run. Put distance between us and whatever you think you might do. But you came back. You chose to face this with us instead of alone."
 
-Maelin leaned forward, forearms resting on her thighs. “We’re not holding anything back.”
+Rachel's throat tightened. "That doesn't make me less dangerous."
 
-Rachel’s gaze dropped to the table again, to the careful distance between objects. “And what I did. With the glass. With the room.”
+"No," Maelin agreed. She pulled her chair closer, slowly, deliberately. "But it means you want to learn. To understand. To control it. And that's what matters."
 
-“We believe that originated with you,” Edrin said. “But not intentionally, and not in a way we understand yet.”
+"You don't know that I can," Rachel whispered. "Learn to control it, I mean."
 
-Ilyra crossed the room and stopped short of the table, palms braced against the edge without touching it. “You didn’t fake it. You didn’t plan it. And you didn’t handle it like someone who knew what they were doing.”
+"We don't," Ilyra said bluntly. "But we're going to try anyway."
 
-Rachel snorted. “That obvious.”
+Rachel looked between them, searching for doubt, for fear, for any sign they were just being polite before they found a way to get rid of her.
 
-“Yeah,” Ilyra said. “In a good way.”
+She found determination instead. And something that looked almost like... solidarity.
 
-Rachel rubbed her hands together once, then flattened them against her thighs. “So what happens if I try again.”
+"Why?" Rachel asked. "Why help me? You didn't ask for this. For me."
 
-Edrin inhaled, then exhaled slowly through his nose. “That’s where we slow down. Because the second attempt didn’t echo the first. It reacted differently.”
+Edrin leaned forward, forearms on his knees. "Because you didn't ask for this either. And because—" He hesitated, then continued. "Because leaving you to figure it out alone would be cruel. And dangerous. For everyone."
 
-“Meaning it could get worse.”
+"Practical and ethical," Ilyra added with a half-smile. "My favorite combination."
 
-“Yes,” he said.
+Despite everything, Rachel felt a laugh try to escape. It came out more like a sob.
 
-“Or sideways,” Ilyra added.
+Maelin reached for the pitcher and poured water, then slid the glass across the table. It stopped well short of Rachel's hands.
 
-Rachel closed her eyes briefly, then opened them again. “And you can’t send me back.”
+Rachel stared at it. "You're not handing it to me."
 
-“No,” Maelin said quietly.
+"Not yet." Maelin's fingers stayed loose around the cup. "When you're ready."
 
-“You can’t even talk to my world.”
+Rachel understood. They were giving her control. Letting her decide when to reach for it, when to trust herself not to accidentally... what? Shatter it? Freeze it mid-air?
 
-Edrin shook his head. “We wouldn’t know how to aim a message across that distance.”
+She took a breath and reached for the glass.
 
-Rachel leaned back until the chair legs hit the floor again. “So I’m stuck.”
+Her hand didn't shake. The glass stayed solid. The water stayed water.
 
-“For now,” Maelin said. “Not forever. Just… now.”
+She drank it slowly, tasting the cold, the slight mineral quality. Normal. Ordinary.
 
-Rachel’s jaw tightened. She reached up and scrubbed at her face, then dropped her hand. “I don’t love that.”
+When she set it down, nothing tilted. Nothing pushed back.
 
-“I wouldn’t expect you to,” Maelin said.
+Her shoulders lowered a fraction.
 
-Silence stretched. Edrin shifted in his seat. Ilyra uncrossed her arms and crossed them again the other way.
+"Okay." Her voice came out steadier than expected. "What do we do? How do we make sure I don't... do that again?"
 
-"What do you need right now," Maelin asked finally, "to get through the next hour."
+"We go slow," Edrin said. "We watch for warning signs. The sensations you felt—the heat in your palm, the pressure in your chest—those are tells. You learn to recognize them before they build."
 
-Rachel stared at the floor, following a crack in the stone until it disappeared under the table. What did she need? 
+"And if I can't?"
 
-Back home, the answer would have been space. Distance. Time alone to process and compartmentalize and file everything away in the right mental boxes. To make herself small and manageable and fine.
+"Then you get outside," Ilyra said practically. "Away from enclosed spaces. Away from things that can break."
 
-Here, the answer felt different. Wrong. Dangerous.
+"That's your safety plan?" Rachel asked. "Run outside?"
 
-She needed them to keep talking. Needed the weight of Maelin's attention and Edrin's earnest concern and even Ilyra's blunt observations. Needed to not be alone with what she was becoming.
+"For now," Maelin said. "Until we understand more."
 
-When had she ever needed people like this?
+Rachel rubbed her temples. "This is insane. I'm insane. This whole situation is—"
 
-"I need to not break anything," she said finally. "And I need to not feel like I'm going to."
+"Hard," Maelin finished. "And frightening. And deeply unfair. But not insane."
 
-Edrin nodded slowly. "That's reasonable."
+"What about my life?" Rachel asked. The words came out sharper than she intended. "My job. My boyfriend. Everyone who—" Her voice broke. "How long has it even been? For them?"
 
-"You also need sleep," Ilyra said.
+The three exchanged glances.
 
-Rachel blinked. "Do I."
+"We don't know," Edrin admitted. "Time doesn't align between worlds. It could be hours. It could be longer."
 
-"You're buzzing," Ilyra said. "Hard."
+Rachel's stomach dropped. "So Evan might think I'm already dead."
 
-Maelin reached for the pitcher this time and poured, the water sloshing slightly before settling. She slid the glass across the table, stopping it well short of Rachel's hands.
+No one contradicted her.
 
-Rachel waited a beat, then took it.
+Maelin looked down at her hands. "We can't send messages between worlds. I'm sorry. That's not within our abilities."
 
-The glass stayed solid.
+Rachel pressed her palms flat against the table, focusing on the solid wood, the grain beneath her fingers. "So I'm just... stuck here. With powers I don't understand and can't control, in a world that isn't mine, while everyone I know thinks I'm—" She couldn't finish the sentence.
 
-She drank, setting it down carefully when she was done.
+"You said you can't send messages," Rachel said slowly. "But you could send me back. Eventually. When you figure out how. Right?"
 
-Nothing tilted. Nothing pushed back.
+The silence stretched too long.
 
-Her shoulders lowered a fraction on their own.
+"Right?" Rachel repeated, voice rising.
 
-"There's something else you should know," Edrin said quietly.
+Edrin's expression turned pained. "It's... complicated."
 
-Rachel looked at him. His expression had gone serious, almost apologetic.
+"Uncomplicate it."
 
-"The summoning," he continued. "The way it pulled you through. That creates a kind of... resonance. Between you and this world."
+He exchanged a glance with Maelin, who nodded.
 
-"What does that mean?" Rachel asked.
+Edrin chose his words with visible precision. "The summoning created a connection between you and this world. A resonance. That's why you can do what you do—the magic isn't something you're casting, it's something you're... conducting. From here."
 
-Edrin glanced at Maelin, who nodded for him to continue.
+Rachel's chest tightened. "Okay. And?"
 
-"It means the longer you're here, the more this world recognizes you," he said. "The magic you're developing—it's not just happening randomly. It's happening because you're becoming part of this place."
+"And the longer you're here, the stronger that connection becomes," he continued. "The magic isn't just happening randomly—it's happening because you're becoming part of this place. The world is recognizing you as... belonging."
 
-Rachel's stomach tightened. "And?"
+The word hit like a punch.
 
-"And that resonance goes both ways," Ilyra said bluntly. "The more it pulls you in, the harder it would be to send you back. Eventually..." She shrugged. "Eventually it might not be possible at all."
+"But I don't belong here," Rachel said. "I belong back home."
 
-The words landed like stones in still water.
+No one responded.
 
-"How long?" Rachel asked.
+"The resonance goes both ways," Ilyra said finally, her usual bluntness softened. "The more this world pulls you in, claims you, the harder it would be to send you back."
 
-"We don't know," Maelin admitted. "Could be weeks. Could be months. But every day you're here, the connection strengthens."
+"How much harder?" Rachel demanded.
 
-Rachel stared at the table. "So there's a timer on whether I can go home."
+"We don't know," Maelin admitted. "We've never tried to reverse a summon before. But the magic you're developing—it ties you here. Every day you stay, every time you use it, even accidentally... the threads get stronger."
 
-"Yes," Edrin said simply.
+Rachel's hands were shaking again. She pressed them flat against the table. "So there's a time limit. On getting home."
 
-"Okay," Rachel said, though nothing felt okay. "Then we figure this out. Together. Quickly."
+Edrin's jaw tightened. "We think so. But we don't know how long. Weeks, maybe. Possibly months."
 
-Maelin nodded.
-Edrin let out a breath he'd been holding.
-Ilyra tipped her head once, sharp and approving.
+"Or less," Ilyra added. "Depends on how fast you're integrating."
 
-No one argued.
+Rachel laughed, the sound hollow and broken. "So I have to choose. Learn to control this power—which might take weeks or months—or try to get home before I'm stuck here forever. And I don't know which is possible or how long I have before the choice is made for me."
+
+"We'll find a way," Maelin said. "To do both. To give you both options."
+
+"You don't know that," Rachel whispered.
+
+"No," Maelin admitted. "But we're going to try anyway."
+
+The honesty of it—the refusal to offer false comfort—steadied something in Rachel's chest.
+
+She looked at each of them in turn. Maelin, determined. Edrin, guilty and earnest. Ilyra, blunt but present.
+
+Three strangers who'd accidentally kidnapped her and were now promising to help fix the unfixable.
+
+"Okay," Rachel said finally. "Then we work fast. Together. And we figure this out before I run out of time."
+
+Edrin nodded.
+
+Maelin's expression softened with something like relief.
+
+Ilyra uncrossed her arms. "First step: you need rest. Can't control magic if you're ready to fall over."
+
+Rachel wanted to argue. Wanted to demand they start immediately, that every wasted moment was a moment closer to being trapped.
+
+But Ilyra was right. Her hands were trembling with exhaustion. Her thoughts felt fuzzy at the edges.
+
+"Fine," she said. "But tomorrow we start. No delays."
+
+"Tomorrow," Maelin agreed.
+
+Rachel stood, legs unsteady but holding. The room didn't tilt. Nothing shattered.
+
+Small victories.
+
+Rachel looked at each of them in turn. "Thank you. For not giving up on me. Or running away."
+
+"We don't run," Ilyra said with a slight smile. "Not our style."
+
+Rachel found herself almost smiling back.

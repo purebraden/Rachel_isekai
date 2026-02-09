@@ -2,7 +2,13 @@
 
 Hunger woke Rachel fully.
 
-It sat low and steady, insistent enough to pull her upright before she had time to think about it. She stayed seated on the edge of the cot for a moment, feet planted, listening to the building around her and letting the shape of the morning settle.
+It sat low and steady, insistent enough to pull her upright before she had time to think about it. She stayed seated on the edge of the cot for a moment, feet planted, one hand pressed to her chest where that strange warmth had pulsed the night before.
+
+Nothing now. Just her heartbeat, steady and ordinary.
+
+She'd lain awake for a long time after feeling it, that presence beneath her ribs—warm and waiting and impossibly hers. Eventually exhaustion had pulled her under, but her dreams had been restless, full of falling and catching herself mid-air, of reaching for things that moved away from her fingers.
+
+Rachel dropped her hand and listened to the building around her, letting the shape of the morning settle.
 
 Voices carried from somewhere down the corridor. One rose, another answered. A pause. Footsteps crossed stone, slow and unhurried. Wood scraped against the floor, then stopped. The sounds repeated with small variations, a pattern forming without rushing, like the place itself had learned how to breathe.
 
@@ -80,25 +86,25 @@ She let the moment pass.
 
 Maelin reached for another cup.
 
-She lifted it from the table while speaking, attention angled toward Edrin. Her sleeve brushed the stack of plates, shifting them a fraction. One scraped softly against the wood. She adjusted it without looking.
+She lifted it from the table while speaking, attention angled toward Edrin. Her sleeve caught the edge. The cup tipped.
 
-Rachel shifted her weight, heel rocking against the stone. The table pressed lightly into her hip. Warmth from the pot drifted up and settled against her forearms.
+Water sloshed toward the rim, gravity pulling it down and out. The cup tumbled from her fingers, falling.
 
-The table slanted.
+Rachel's hand came up without thought.
 
-The cup shifted in Maelin's hand.
-
-Rachel's fingers lifted from the table edge.
+Stop.
 
 The moment stretched, thin and precise.
 
-Water crept along the rim of the cup, bulging outward. A drop formed and held. Somewhere in the corridor, a footstep landed half a beat late, then finished.
+The cup hung in the air between Maelin's hand and the floor. Water bulged at the rim, held mid-spill, neither falling nor settling. The drop that should have scattered across the stone simply waited, suspended.
 
 Rachel's breath caught high in her chest. She didn't blink.
 
 Then the room resumed.
 
-The cup settled upright against the table. The drop slid back into the glass. Footsteps continued down the corridor, rhythm slightly off before smoothing out again.
+The cup continued its fall—but slower now, drifting down like a feather instead of a stone. It touched the floor without breaking, settling upright. The water that should have spilled drew back into the glass as if time had reconsidered.
+
+Everyone in the room had gone still.
 
 Rachel drew her hand back and stared at it. Her palm tingled, warm in a way that had nothing to do with temperature. The sensation felt familiar—disturbingly familiar—like flexing a muscle she'd always had but never known how to use.
 
@@ -106,19 +112,19 @@ Like finding a word in a language she'd never been taught but somehow still unde
 
 The rightness of it made her stomach turn.
 
-Maelin stopped moving.
+Maelin stood frozen, her hand still outstretched where the cup had been. Her eyes were wide.
 
-Edrin stood fast enough to jolt the bench. Wood complained. The ledger slid from his hands and scattered across the floor, pages fanning where they landed.
+Edrin rose slowly from the bench, movements careful, deliberate. The ledger slid forgotten from his lap and scattered across the floor, pages fanning where they landed.
 
-Ilyra stepped forward, then checked herself. Her bare foot shifted against the stone. Her gaze stayed on Rachel, unblinking.
+Ilyra's gaze locked on Rachel, unblinking. "What did you just do?"
 
 Rachel pressed her hand against her thigh, trying to erase the warmth. "I didn't touch it," she said, and hated how defensive she sounded.
 
-Maelin set the cup down with care. Her fingers stayed there a moment longer than necessary before she stepped away from the table.
+Maelin's hand slowly lowered. She stared at the cup sitting upright on the floor, water still contained inside as if nothing had happened.
 
-"We saw," she said.
+"We saw," she said quietly.
 
-Edrin crouched, gathering the ledger page by page. One corner caught under the bench. He tugged it free and stacked the papers against his knee, movements careful now.
+Edrin crouched, gathering the ledger page by page. One corner caught under the bench. He tugged it free and stacked the papers against his knee, movements slow and deliberate.
 
 Ilyra said Rachel's name once. Quietly.
 
@@ -170,18 +176,30 @@ Ilyra's gaze softened briefly as Rachel shifted, then settled again.
 
 Rachel rested her palm against the table's edge. The wood angled beneath her hand.
 
-It stayed where it was.
+She focused. Tried to remember the feeling—that instinct that had risen when the cup fell. The urgency. The need to stop something bad from happening.
 
-Nothing else moved.
+Nothing came.
 
-"I need to tell my boyfriend," Rachel said. "He's going to be looking for me."
+The table stayed solid beneath her palm. Ordinary. Still.
 
-Maelin nodded. "We'll work on that."
+She waited, hand pressed flat, willing something to happen. A tingle. A warmth. Any sign that whatever she'd done before was still there, still accessible.
+
+The room stayed quiet. Patient.
+
+Rachel's hand dropped. "I can't," she said. "I don't know how I did it the first time."
+
+Maelin stepped closer, voice gentle. "That's all right. We're not in a rush."
+
+"Aren't we?" Rachel's laugh came out hollow. She rubbed her face with both hands. "I need to tell my boyfriend. He's going to be looking for me. My family. My—everyone's going to think I'm dead."
+
+The weight of it hit her all at once. The magic was interesting, frightening, impossible—but Evan was real. And he was out there, somewhere, terrified.
+
+Maelin nodded. "We'll work on that. I promise."
 
 Rachel watched her mouth as she spoke. The pause before the words. The breath afterward.
 
 She didn't press.
 
-The room carried on around her--someone picking up a plate, the pot lid settling back into place, a chair leg scraping before being corrected. Careful movements. Ordinary ones.
+The room carried on around her—someone picking up a plate, the pot lid settling back into place, a chair leg scraping before being corrected. Careful movements. Ordinary ones.
 
 Rachel stayed where she was, counting time by the small motions people made when they weren't sure how to proceed.

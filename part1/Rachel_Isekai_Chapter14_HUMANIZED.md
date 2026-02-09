@@ -1,129 +1,210 @@
 ## Chapter Fourteen
 
-The tent didn't settle around Rachel the way shelter should.
+The tent came down easier than it had gone up.
 
-She'd expected arrival to feel like rest—a moment when her body recognized safety and allowed itself to stop. Instead, the space remained stubbornly temporary in her mind, warm and quiet but refusing to register as destination. Her awareness kept reaching beyond the impossible walls, tracking the road outside, measuring the distance they'd covered against the distance still ahead.
+Rachel watched Arathen work, hands moving through a sequence that looked like folding laundry but felt like dismantling architecture. The impossible space collapsed into itself—not violently, just deliberately—until what remained was a square of canvas no larger than a dinner napkin.
 
-She sat on the edge of her assigned bed, examining one sock with more attention than it warranted. Was it damp? Or had her foot simply changed shape after hours of walking? The mattress adjusted beneath her when she shifted, responding in a way that felt wrong—too attentive, as if the bed itself was watching.
+"That shouldn't be possible," Rachel said.
 
-Across the central space, Ilyra worked at a piece of wood with a small knife, the blade moving in short, irregular strokes. No visible goal shaped the carving. The sound repeated with enough irregularity that Rachel noticed its absence as much as its presence.
+"No," Arathen agreed, tucking the folded tent into his pack. "It shouldn't."
 
-Maelin stood near the cooking area, holding a jar and reading its label. She read it twice, then set it back without opening it. Her hands moved to another container and repeated the process.
+Around them, the others moved through their own morning routines with practiced efficiency. Edrin rolled his bedding tight and secured it with leather straps. Maelin checked their water supply, redistributing weight between packs. Ilyra knelt by the dead fire, burying the ashes and scattering leaves over the disturbed earth until no trace of their camp remained.
 
-Edrin sat at the low table, book closed in front of him, fingertips resting on the cover as if to prevent it from opening on its own.
+Rachel stood uselessly in the middle of it all, holding her borrowed pack and feeling like an imposter playing at adventure.
 
-Arathen leaned in the doorway, gaze fixed on nothing in particular, attention turned inward or outward—Rachel couldn't tell which.
+"You're doing it again," Ilyra said without looking up.
 
-The silence pressed in from all sides, thick with unspoken thoughts.
+"Doing what?"
 
-Rachel broke it. "The town we're heading toward," Rachel said, breaking the silence. "What should I expect?"
+"Standing like you're waiting for permission to exist." Ilyra rose, dusting her hands. "You're part of this. Act like it."
 
-Maelin looked up, setting aside the jar she'd been examining. "Are you worried about it?"
+Rachel's face warmed. "I don't know what to do."
 
-Rachel shrugged, trying for casual and not quite managing it. "I don't know what I'm walking into."
+"Then ask," Maelin said, not unkindly. "Or watch and learn. But don't hover like you're apologizing for taking up space."
 
-Edrin set his book aside, giving her his full attention. "It's a trading town. Mixed population. People are used to seeing travelers, so you won't stand out too much."
+The words should have stung. Instead, they settled like an invitation.
 
-"Will they know what I am?" Rachel asked. "Will they be able to tell?"
+Rachel looked around, assessing. The packs were almost ready. The camp was nearly erased. What was left?
 
-"Tell what?" Ilyra asked.
+"Food," she said. "We need to eat."
 
-"That I don't belong," Rachel said quietly. "That I'm from somewhere else. That I can do things I shouldn't be able to do."
+"Smart," Edrin said, pausing his packing to glance at her. "We have trail rations, but they're meant to supplement, not sustain. We'll need to hunt or forage today."
 
-Maelin moved closer, settling beside Rachel. "You belong wherever you are. You're not less real just because you started somewhere different."
+"I can help with that," Rachel said, then immediately second-guessed herself. Could she? She'd never hunted in her life. Never even been camping, really, unless you counted the one corporate retreat where they'd stayed in cabins with Wi-Fi.
 
-"But I don't know how to be new here," Rachel admitted. "Back home, I was good at blending in. Good at making myself small and useful and easy to ignore. But here, everything I do feels loud."
+Arathen's eyes found hers across the clearing. "You might be more help than you think."
 
-"Because you're not trying to disappear anymore," Arathen observed gently.
+Something in his tone made her pulse quicken. He knew. Of course he knew. He'd been planning this.
 
-Rachel looked at him, startled by how precisely that landed.
+Twenty minutes later, they broke camp as the light shifted from green-gray to something almost golden. The forest around them felt alive in a way that woods back home never had—not threatening exactly, but aware. Watching.
 
-Edrin leaned forward earnestly. "The people in this town—they're not going to judge you. And if anyone gives you trouble, they'll have to go through all of us first."
+Rachel walked between Maelin and Edrin, her pack settling into a rhythm against her shoulders. The borrowed boots Ilyra had found in the last town were stiff but functional, and after an hour of walking, her feet had started to remember how to move over uneven ground.
 
-"We don't let people hurt our friends," Ilyra added, and the simple declaration of friendship made Rachel's eyes sting.
+"There," Ilyra said quietly, stopping so suddenly that Rachel nearly walked into her.
 
-"I just don't want to mess this up," Rachel said. "Don't want to be the reason something goes wrong. I have a talent for that."
+Everyone froze.
 
-Maelin's expression softened with understanding. "Rachel, you've been here less than a week and you've already saved us from taking a compromised route, read a map that most trained scholars can't parse, and handled powers that would send most people into shock. You're not the liability you think you are."
+Ilyra pointed ahead and to the left, where the undergrowth thinned near a stand of silver-barked trees. At first, Rachel saw nothing. Then movement—a flicker of brown, low to the ground.
 
-"You really think that?" Rachel asked quietly.
+A rabbit. Larger than the ones back home, with ears that swiveled independently and fur that seemed to shift color depending on the angle of light. It was nibbling at something green, nose twitching.
 
-"I know that," Maelin said firmly. "We all do."
+Edrin's hand moved slowly toward the bow strapped across his back.
 
-The tent held them in comfortable closeness—not quite silent, but filled with the kind of quiet that came from people who'd begun to trust each other. Five people in an impossible space that somehow felt exactly right.
+The rabbit's head snapped up.
 
-"What actually happens when we reach the town?" Rachel asked. "Best guess?"
+"Wait," Arathen said softly. He was looking at Rachel. "Let her try."
 
-"They'll be curious," Arathen said. "Probably cautious. We're asking them to harbor someone who crosses boundaries in unusual ways. That makes people nervous."
+Rachel's stomach dropped. "I've never—"
 
-"So we're hoping for tolerance," Rachel said.
+"You don't need to kill it," he said. "Just stop it. Give Edrin time to aim."
 
-"We're hoping for understanding," Maelin corrected. "And if we don't get it from the town, we'll go somewhere else. You're not negotiable."
+The rabbit was already moving, haunches tensing to bolt.
 
-The fierceness in her voice surprised Rachel. "You barely know me."
+Rachel's hands went cold. "I don't know if I can—"
 
-"We know enough," Edrin said. "You're patient when we fumble explanations. You make breakfast without being asked. You warn us away from danger. Those aren't small things."
+"You can," Arathen said. Not a question. A statement.
 
-"Also you haven't run screaming yet," Ilyra added. "Which shows remarkable judgment."
+The rabbit leaped.
 
-Rachel huffed out something close to a laugh. "The bar is low, huh?"
+Rachel's hand shot out—pure instinct, no thought—and the world caught.
 
-"The bar is exactly where it needs to be," Ilyra replied.
+Not completely. Not like the cup, where everything had frozen solid. This was different. Gentler. The rabbit hung mid-leap, legs extended, but it was still moving—just impossibly slowly, like it was pushing through water instead of air.
 
-Rachel lay back on the bed, staring at where the ceiling met the wall in a seam that curved impossibly. The tent didn't feel temporary anymore. It felt like shelter. Like safety.
+Rachel's breath came short and fast. The warmth was there in her palm, familiar now, but controlled. Flowing instead of pooling. She could feel the boundaries of what she was doing—not stopping time, but bending it, stretching the moment until it lasted longer than physics allowed.
 
-"I'm afraid," she admitted quietly. "Of what happens next. Of who I'm becoming." She paused, then forced out the rest. "Of not knowing if I'll ever get home. Of not knowing if I even want to anymore."
+Edrin moved. Smooth. Practiced. Drew the bow. Aimed.
 
-The admission hung in the air like a confession.
+Released.
 
-"That's reasonable," Maelin said softly. "All of that is reasonable."
+The arrow flew true.
 
-But it wasn't, was it? What kind of person chose a world of magic and danger and impossible spaces over the safe, known life they'd left behind? What kind of person felt more at home with kidnappers than with a boyfriend who loved them?
+Rachel let go.
 
-The answer settled cold in Rachel's chest: the kind of person who'd been drowning slowly for twenty-six years and had only just learned what air tasted like.
+The world resumed. The rabbit dropped, already dead before it hit the ground. Quick. Clean.
 
-"I should want to go back," Rachel said. "Evan is there. My job. My whole life. I should be fighting every minute to get back to them."
+Rachel stood there, hand still outstretched, heart hammering.
 
-"But you're not," Ilyra said. Not a question.
+"Good," Ilyra said. Just that. But she sounded impressed.
 
-"No." Rachel's voice barely rose above a whisper. "I'm not. And I don't know what that makes me."
+Maelin squeezed Rachel's shoulder as she passed, moving to help Edrin retrieve the kill.
 
-"Human," Arathen said gently. "It makes you human."
+Arathen hadn't moved. He was watching Rachel with that same intensity from before—measuring, cataloging. But beneath the observation was something else. Satisfaction, maybe. Or confirmation.
 
-"We're afraid too," Edrin added. "Of what we've set in motion. Of whether we can help you the way you need. But we're less afraid when we're together."
+"How did that feel?" he asked.
 
-"Found family is like that," Arathen said quietly. "You choose each other. And then you keep choosing."
+Rachel looked down at her hand. The warmth was already fading, leaving only a pleasant tingle. "Different from before. Not as... heavy."
 
-Rachel closed her eyes, letting the words settle. The light began to fade—not abruptly, but gradually, as if the space itself had decided day was finished. Around her, the others prepared for sleep. Small sounds of settling. Fabric shifting. Breath evening out.
+"Because you're learning control," Arathen said. "Learning to modulate. That's remarkable progress for someone who discovered their abilities less than two weeks ago."
 
-"Thank you," Rachel said into the dimming space. "For choosing me."
+There it was again. That emphasis. That careful choice of words that suggested he was thinking something he wasn't saying.
 
-"Right back at you," Ilyra replied, and something in her voice said she meant it.
+"It felt easy," Rachel admitted quietly. "Is that bad?"
 
-Rachel lay there as the others' breathing deepened into sleep. She thought about Evan. Tried to picture his face with the clarity he deserved—the specific way his mouth pulled when he smiled, the gray T-shirt he wore on bad days.
+Arathen's mouth pulled into something that wasn't quite a smile. "That depends on your perspective."
 
-The image came slower than it should have. Blurrier than Maelin's or Edrin's or even Ilyra's.
+Before Rachel could ask what that meant, Maelin called out, "Two more ahead. Small clearing, thirty paces north."
 
-She'd known them less than a week.
+They moved as a unit now, quieter, purpose focused. Rachel found herself falling into the rhythm without thinking—watching where she stepped, breathing shallow, moving when they moved and stopping when they stopped.
 
-She'd known him two years.
+The clearing opened up ahead. Two more rabbits, these larger, grazing near a fallen log.
 
-Rachel pressed her palm against her chest, feeling her heartbeat, and tried not to think about what that meant. About what she'd already started choosing without choosing.
+This time, no one had to tell her what to do.
 
-About what it said about her that when she pictured home now, she saw folded canvas and impossible space and three people who'd kidnapped her and somehow become the ones she couldn't imagine leaving.
+Rachel reached out—not with her hand, but with that sense she was starting to recognize. The one that felt like touching something intangible, like running her fingers through water that shouldn't exist.
 
-The missing piece she'd felt her entire life—that gap she'd carried through coffee shops and office buildings and dinner with Evan—it wasn't missing anymore. Or maybe it had never been missing at all. Maybe she'd just been in the wrong place for it to exist.
+The rabbits slowed.
 
-Here, in this impossible tent with these impossible people, she was whole.
+Not frozen. Not even obviously stopped. Just... delayed. Moving at half-speed, then quarter-speed, their awareness of danger arriving too late to matter.
 
-And that truth was more terrifying than any magic she'd discovered.
+Edrin took one. Ilyra, bow suddenly in hand, took the other.
 
-If they found a way to send her back tomorrow, she'd have to decide.
+The world snapped back.
 
-She wasn't ready for that choice. Wasn't sure she'd ever be.
+Rachel swayed, exhaustion pulling at her knees, but Maelin was already there, steadying her.
 
-But deep down, underneath the guilt and the fear and the confusion, she already knew what she'd choose. Had been choosing it, without choosing, from the moment she'd stopped the glass from falling.
+"I'm okay," Rachel said.
 
-Rachel closed her eyes and listened to breathing that wasn't hers.
+"I know," Maelin replied. "But you're allowed to not be."
 
-Outside, the road went on without them.
+They field-dressed the kills with an efficiency that spoke of long practice. Rachel watched, queasy at first, then increasingly fascinated. There was no waste. No cruelty. Just necessity transformed into sustenance with respect and skill.
+
+"You're not squeamish," Edrin observed, glancing up from his work.
+
+"I thought I would be," Rachel admitted. "But it feels... I don't know. Honest?"
+
+"It is," Maelin said. "More honest than buying pre-packaged meat and pretending it appeared by magic."
+
+Rachel almost laughed at that. Here, the magic was real. The meat was earned.
+
+By the time they found a suitable campsite—a clearing near a narrow stream where the water ran clear and cold—the wrapped meat had settled into a comfortable weight in Ilyra's pack. The rabbits roasted over a fire that Ilyra coaxed from damp wood with impressive patience. The smell made Rachel's stomach clench with hunger so sharp it almost hurt.
+
+When had she last been truly hungry? Not snack-hungry or skipping-lunch-because-of-meetings hungry. Actually hungry, where food became something necessary instead of something scheduled.
+
+Edrin portioned the meat carefully, making sure everyone got equal shares. Rachel accepted hers and bit in without waiting for it to cool. The heat stung her tongue, but the flavor—smoky and rich and real—made her not care.
+
+"Slow down," Ilyra said, amused. "It's not going anywhere."
+
+"Sorry," Rachel mumbled around a mouthful.
+
+"Don't be sorry," Maelin said. "Be hungry. You earned it."
+
+That stopped Rachel mid-chew. Earned it. Because she'd helped. Because her powers had been useful instead of terrifying.
+
+She looked across the fire and found Arathen watching her again, expression unreadable in the flickering light.
+
+"What?" Rachel asked.
+
+"You're smiling," he said.
+
+Rachel touched her face. She was. "Is that bad?"
+
+"No," Arathen said quietly. "It's good. You should smile more."
+
+Something in his tone made her chest tighten—not painfully, just aware. She looked away, back to her food, and tried to ignore the warmth that had nothing to do with the fire.
+
+Later, after the meal was finished and the bones were buried and the fire had burned down to coals, Rachel sat with her back against a tree and watched the sky darken through unfamiliar constellations.
+
+She should miss home. Should be thinking about Evan, about her apartment, about everything she'd lost.
+
+Instead, what she felt was this: satisfaction. Competence. Belonging.
+
+And beneath it all, a quiet guilt that she was starting to ignore.
+
+"You're thinking too loud," Ilyra said from somewhere to her left.
+
+Rachel huffed. "Is that possible?"
+
+"With you, apparently."
+
+Rachel let the silence settle before speaking again. "I used to have panic attacks about being useless. About not contributing enough at work, at home, in my relationship. Like I was always one mistake away from people realizing I didn't actually belong anywhere."
+
+"And now?" Maelin asked gently.
+
+Rachel looked at her hands—the same hands that had stopped time, that had made the hunt possible, that had helped feed the people around her. "Now I stopped two rabbits mid-leap so we could eat dinner. And it felt like the most natural thing in the world."
+
+"Because it was," Arathen said. He'd been so quiet she'd almost forgotten he was there. "Natural for you, at least."
+
+There it was again. That implication.
+
+Rachel turned to look at him. "What aren't you telling me?"
+
+Arathen met her gaze steadily. "A lot of things. But most of them are just theories until we reach Sivara. She'll have better answers than I can give you."
+
+"But you have suspicions," Rachel pressed.
+
+"Yes."
+
+"Are they bad?"
+
+Arathen considered that. "They're complicated. And potentially difficult to accept. But bad?" He shook his head slowly. "I don't think so. Different, certainly. But not bad."
+
+Rachel wanted to push, to demand he tell her everything he suspected. But exhaustion was pulling at her now—the good kind, earned through movement and magic and purpose.
+
+"Tomorrow," she said.
+
+"Tomorrow," Arathen agreed.
+
+Rachel pulled her borrowed blanket tighter and let her eyes close. Around her, the others settled into their own sleep. The forest breathed. The stream whispered. The stars wheeled overhead in patterns that had never mapped her home.
+
+And for the first time since the summoning, Rachel fell asleep without dreaming of the life she'd left behind.
+

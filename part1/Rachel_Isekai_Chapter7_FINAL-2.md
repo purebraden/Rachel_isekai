@@ -1,289 +1,155 @@
-# Chapter Seven
+## Chapter Seven
 
-Edrin didn’t announce what he was about to do.
+Rachel was still outside when she heard the door.
 
-He stood, pushed his chair back with care, and crossed to the shelf along the interior wall. His fingers moved across spines slowly, not searching so much as confirming they were still there. When he stopped, it was on a thin volume wedged between two heavier books. He eased it free like the shelf might resist if he rushed.
+Not the sound itself—this place had doors that sighed and settled and did their best to be quiet—but the way the air behind her changed, like someone had stepped into the space and carried a different temperature with them.
 
-The cover was plain brown cloth, worn pale at the corners. One edge had been repaired with thread that didn’t match.
+She didn’t turn right away.
 
-Maelin straightened before Rachel fully registered why.
+She stood under the wrong sky and let her breathing even out, because her body kept trying to sprint ahead of her brain. Because her brain kept trying to sprint ahead of her life. Because the green-leaning light made her feel faintly sick if she stared at it too long.
 
-From the doorway, Ilyra let out a short breath through her nose. Not a laugh. Not quite.
+Footsteps came closer over the dirt. Unhurried. Not cautious in the way Maelin had been cautious, like she was trying not to startle a wounded animal. These steps belonged to someone who assumed the ground would hold.
 
-Rachel watched all three of them react, then looked back at the book. It didn’t look like anything. If it had been sitting on her coffee table back home, she would have picked it up, flipped it open, and put it back down without a thought.
+“Rachel?”
 
-“What?” she said finally. “Is that the call-him book?”
+It wasn’t Maelin.
 
-Edrin didn’t correct her. He carried it to the table and set it down carefully, fingers lingering on the cover as if he were reminding himself it was real. “It’s a paired volume.”
+Rachel turned.
 
-“So,” Rachel said, leaning forward, then stopping herself halfway. “Letters appear? Like magic mail?”
+Four people stood at the edge of the clearing instead of three.
 
-“You write here,” he said, opening it and smoothing the first pages with his palm. “He receives it there.”
+Edrin was there, shoulders tight, hands folded like he didn’t know what to do with them anymore. Maelin stood a half-step behind him, steady. Ilyra was to the side, posture loose, eyes sharp, watching everything that wasn’t the person in front of her.
 
-“How long does that take?”
+And between them—slightly forward, like he’d wandered into the right spot by accident—was a man Rachel hadn’t seen before.
 
-Edrin didn’t answer right away. He adjusted the cloth marker, frowned at the page, then said, “It depends.”
+Older than the rest. Not old-old. Old enough that the lines at the corners of his eyes looked like they belonged there, like they’d been earned doing something he liked. His hair was dark with silver threaded through it, pulled back without care and still somehow tidy. His coat was worn the way a useful thing gets worn, not the way an expensive thing gets damaged.
 
-“On what?”
+He looked at Rachel like she was a puzzle he wanted to solve, and like the puzzle might bite him if he did it wrong.
 
-“Distance. Conditions.” He lifted his hand and Rachel saw faint impressions in the paper, old writing pressed deep into the fibers. “On him.”
+“Hi,” he said, as if greeting her outside under a wrong-colored sky was a normal thing to do. “I’m Arathen.”
 
-Rachel leaned back. “Does it always work?”
+Rachel waited for someone else to say something. No one did.
 
-“When it matters,” Maelin said.
+She glanced at Edrin.
 
-Rachel turned to her. “That wasn’t the question.”
+Edrin nodded once, the way people nod when they’re relieved and ashamed at the same time.
 
-Maelin met her eyes. “It was my answer.”
+Rachel looked back at Arathen. “You came fast.”
 
-Rachel let that sit. “So this matters?”
+Arathen made a small face. “Fast is relative. You should see how slowly the March likes to cooperate when you’re in a hurry.”
 
-Maelin reached for the pitcher instead of answering, poured water, and set a glass closer to Rachel’s side of the table. The sound of it touching wood landed heavier than a yes or no.
+Ilyra’s mouth twitched.
 
-Edrin turned to a page marked with a narrow strip of cloth. The paper there was cleaner, less bruised by use. He took a small tin from his pocket and opened it. The smell reached Rachel first—metallic, sharp, like crushed coins and leaves.
+Arathen noticed it and looked pleased with himself, like he’d just gotten a point in a game only he was playing. Then his eyes went back to Rachel, and the playfulness didn’t vanish so much as shift aside, making room for focus.
 
-“That’s ink?” Rachel asked.
+“Are you alright?” he asked.
 
-“It is.”
+Rachel’s hands curled. Uncurled. “I don’t know. I’m not hurt.”
 
-He picked up the pen, then stopped, the nib hovering. Not frozen. Thinking.
+“That’s a good start.” He walked a few steps closer, stopping far enough away that he wasn’t crowding her. He didn’t look at the sky until he was beside her, and when he did, he looked at it like he’d seen this shade before and didn’t like what it implied.
 
-“Before I write,” he said, “I want to be clear.”
+“Pretty,” he said lightly.
 
-Rachel folded her arms. “Clear is good.”
+“It’s wrong,” Rachel said.
 
-“I’m going to write what we know. And what we don’t.” His eyes flicked to her, then away. “And I’m not going to guess about your world.”
+Arathen nodded. “Yes.”
 
-Rachel nodded. “Okay.”
+He turned back toward the others. “Inside, please. Let’s not do heavy conversations in the open unless we have to.”
 
-Maelin said quietly, “And you can stop us.”
+Ilyra moved first. Maelin followed. Edrin hesitated, eyes flicking to Rachel, then to Arathen.
 
-Ilyra pushed off the doorway and came closer, boots quiet on stone. “You can also tell him yourself, if you want?”
+Arathen caught the hesitation and sighed. “Edrin. You did the right thing calling me.”
 
-Rachel opened her mouth, then closed it. “I don’t know what I’m allowed to say.”
+Edrin's shoulders dropped a fraction. "We might have waited too long."
 
-“That’s not a trick question,” Ilyra said. “That’s the problem.”
+"Or too short," Arathen said. "Depends on what happens next."
 
-Edrin exhaled and dipped the pen. Ink stretched thin before breaking. He waited again.
+They walked back inside.
 
-Maelin said his name.
+Rachel felt it the moment she crossed the threshold—a wrongness in the air, a pressure building like static before lightning. The room's boundaries were shifting, destabilizing, responding to too many people with too much awareness all in one space.
 
-He looked up.
+"Something's—" she started.
 
-She nodded toward Rachel, then toward the chair nearest the table.
+The air rippled. Books on the shelf trembled. The water in the pitcher began moving in ways water shouldn't, climbing up the sides in defiance of gravity.
 
-Edrin slid it out with his foot. Rachel took it without ceremony. From there the table felt farther away. Safer. Her knee bounced once before she caught it.
+"Rachel," Arathen said sharply. "Can you feel it?"
 
-“What are you writing?” she asked.
+"Yes," she gasped. The pressure was building behind her eyes, in her chest. The boundaries of the room were too thin, pressed too close together. She could feel them starting to tear.
 
-“An opening. A description. A request.”
+Her hands moved without conscious thought, reaching toward the disturbance. The warmth flared in her palms—familiar now, almost comfortable. She found the tear, the place where boundaries had started to separate, and smoothed it. Like pressing wrinkles from fabric. The pressure eased.
 
-“Start with ‘we messed up,’” Ilyra said.
+The water in the pitcher settled. The books stopped trembling. The air cleared.
 
-“That’s implied.”
+Rachel swayed, suddenly exhausted.
 
-“Make it less implied.”
+Arathen caught her elbow, steadying. His eyes were wide, calculating. "You just stabilized a boundary fluctuation. Instinctively. Without instruction."
 
-“Not like that,” Maelin said, already smiling.
+"I didn't think about it," Rachel said. "I just felt it was wrong and—"
 
-Rachel let out a breath she hadn’t realized she’d been holding. “Can I see it first?”
+"Fixed it," Arathen finished. His expression had shifted, concern mixing with something that might have been awe. "Edrin's reports didn't mention this level of sensitivity. You can feel boundary stress before it manifests?"
 
-“Yes.” Immediate.
+"I don't know," Rachel said. "Maybe? Yes?"
 
-He grabbed a scrap of paper instead and wrote quickly. When he slid it across, Rachel read it, then read it again.
+The room felt different with Arathen in it—not rearranged, just claimed. And now he'd seen what she could do when she wasn't even trying.
 
-**Arathen—We attempted a cross-boundary summons and received an unanticipated subject. We need your guidance.**
+Arathen set his bag near the table. He did not touch the book.
 
-“That makes me sound like a loose animal,” Rachel said.
+“Alright,” he said, rubbing his hands once. “Tell me what happened. In your words.”
 
-Ilyra snorted.
+Rachel sat. Maelin sat close. Ilyra leaned against the wall. Edrin hovered.
 
-Edrin grimaced. “It’s an opening line.”
+Rachel talked. About the summoning. The fear. The glass. The pause. The pressure.
 
-“It makes me a thing.”
+"When you stopped the glass," Arathen said gently, "what were you thinking?"
 
-He flipped the paper without arguing and rewrote.
+"Don't spill," Rachel said. "Don't break."
 
-**Arathen—We attempted a cross-boundary summons and brought through a person. Her name is Rachel.**
+"A prevention instinct," Arathen said. "Interesting."
 
-Rachel read it more slowly this time. "Better. But add something else."
+He was watching her with that same intensity—not unkind, but thorough. Like he was cataloging details that didn't quite align with his expectations.
 
-Edrin looked up, pen hovering.
+"You're measuring me," Rachel said.
 
-"Tell him I'm cooperating," Rachel said. "Tell him I want to understand what's happening to me. And—" She hesitated, then pushed forward. "Tell him there might be a timer on sending me back, so if he has answers, we need them soon."
+"I am," Arathen said calmly. "Not you. What you're carrying." He paused, head tilting slightly. "Though the line between those two things might be thinner than we'd like."
 
-Edrin met her eyes, then nodded and added the lines.
+Something in his tone made Rachel's pulse quicken. "What does that mean?"
 
-Maelin said, "Thank you," and meant more than the words.
+"It means I'm not making assumptions yet," he said evenly. "But Rachel—what you did shouldn't have been possible for someone from a world without ambient magic. The fact that it was..." He let the sentence hang, unfinished, like an invitation to fill in the blank herself.
 
-Edrin wrote it into the book. The ink sank unevenly, dark at the edges. He paused often, not to think, but to wait.
+Rachel felt safer.
 
-"You're telling him about the hesitation?" Ilyra asked.
+Rachel felt watched.
 
-"Yes."
+Arathen laid out rules. No testing alone. No new summoning. Familiar spaces only. Rest.
 
-"And the tilt?"
+Rachel asked about home.
 
-"Yes."
+The word caught in her throat. Home. Which home? The apartment she'd rented? The city where she'd lived? The world she'd left?
 
-"And the resonance effect?" Rachel added.
+Or this place, where the air recognized her and magic moved through her like breathing?
 
-Edrin nodded. "I have to. He needs to know everything."
+Arathen deferred, and Rachel found herself almost relieved.
 
-"And the fact that—"
+Later, when Rachel asked what she was, he said, "You're Rachel."
 
-"Ilyra," Maelin said.
+Boxes, he said, were dangerous.
 
-Ilyra stopped, hands lifted. "Okay."
+Rachel thought about the box she'd built around herself back there. Fine. Functional. Small enough to fit anywhere, unobtrusive enough that no one looked too close. 
 
-Rachel swallowed. "What fact?"
+She'd lived in that box for twenty-six years and called it a life.
 
-Edrin didn't answer. His pen hovered.
+When the conversation slowed, Rachel asked to go outside again.
 
-"That's a face conversation," Maelin said. "Not an ink one."
+Arathen allowed it. With Maelin.
 
-Rachel didn't like it, but she understood. Some things couldn't be written down. "Fine. But he needs to know I'm not passive in this. I'm trying to work with you."
+Outside, the sky was still wrong.
 
-"I'll make that clear," Edrin promised.
+Rachel stood under it, breathing, the light pressing softly against her eyes the way it had before. Maelin stayed close without touching, close enough that Rachel could feel the heat of another person without having to acknowledge it.
 
-When Edrin finished, he didn’t close the book right away. He let the page sit, then closed it gently.
+Behind them, the door clicked as it settled back into place.
 
-“What now?” Rachel asked.
+Rachel tipped her head up. The thin, green-leaning light moved across the leaves overhead, the color refusing to correct itself no matter how long she stared.
 
-“Now we wait.”
+Maelin's voice came quiet beside her. "Ready to go back in?"
 
-“How long?”
-
-Edrin glanced at Maelin.
-
-“We’ll know.”
-
-Rachel pressed her lips together. Trust a clock she couldn’t see.
-
-Ilyra moved first. “We’re not staring at it.”
-
-Maelin stood, set cups out, tore bread, poured tea. Someone sat. Someone stood again. Steam curled and thinned.
-
-Rachel picked up fruit, set it down. “Okay,” she said. “Normal conversation. On purpose.”
-
-“Yes,” Maelin said.
-
-Rachel looked at Edrin. “What were you like before all this?”
-
-“Before?” He frowned. “I studied binding theory.”
-
-“That still sounds like summoning.”
-
-“It isn’t,” he said, then sighed. “It’s the structure underneath. The part where answers exist before language.”
-
-“You always talk like that?” Rachel asked.
-
-“Only when he’s nervous,” Ilyra said.
-
-Edrin shot her a look. “I don’t—”
-
-“You do,” Maelin said. “Less now.”
-
-Rachel smiled. “I worked in logistics. Scheduling. Operations. I fixed things before anyone noticed they were broken.”
-
-Edrin nodded. “You managed systems.”
-
-Rachel pointed at him. “That. You just did my job.”
-
-“Then we’d get along,” he said.
-
-“I would’ve made you label everything.”
-
-“I already do.”
-
-Later—after tea had cooled and been reheated—Maelin asked about Evan.
-
-Rachel hesitated. “He’s a physical therapist.”
-
-“That sounds useful,” Maelin said.
-
-“It is,” Rachel said. “He fixes people. Bodies, I mean. He’s really good at it.”
-
-Ilyra leaned against the wall. “How’s he when he’s angry?”
-
-Rachel blinked. “Quiet.”
-
-“Quiet how?”
-
-She thought about it. “He apologizes. Even when he shouldn’t. He starts asking questions like he’s trying to solve the argument instead of being in it.”
-
-Ilyra nodded slowly. “Fixer.”
-
-“Yes,” Rachel said. “He’ll take the blame just to keep things moving.”
-
-Maelin’s voice was gentle. “That can be kind.”
-
-“It is,” Rachel said. “It’s also exhausting.”
-
-Later still—after Evan drifted away and came back sideways—Rachel asked Ilyra how she knew so much about injuries.
-
-Ilyra shrugged. "My aunt ran a clinic near one of the river routes. People came through half-broken and lied about how bad it was."
-
-"You learned healing there?" Rachel asked.
-
-"Because no one else would," Ilyra said. "You patch first. You ask later. Sometimes never."
-
-Maelin watched her carefully.
-
-Ilyra went on, voice rougher now. "People don't tell the truth about pain. Bodies do."
-
-Rachel found herself nodding, understanding settling deep. Back home, conversations like this—real ones, past the surface—had felt like work. Performance. She'd measured every word, calibrated every response, constantly aware of how she appeared.
-
-Here, she'd just asked. And Ilyra had just answered. No performance required.
-
-The ease of it should have comforted her.
-
-Instead, it felt like proof of something she didn't want to acknowledge: that she'd been performing her entire life, and only now, in this impossible place with these strangers, had she stopped.
-
-The book stayed on the table.
-
-No one touched it.
-
-Then Edrin lifted his head.
-
-Maelin froze.
-
-Ilyra went still.
-
-“What?” Rachel asked.
-
-Edrin crossed the room and opened the book.
-
-The writing appeared slowly.
-
-**Received.**
-
-Then:
-
-**Do not attempt replication again.**
-
-Rachel leaned forward before she meant to.
-
-More lines followed.
-
-**Is she stabilized after the hesitation?**  
-**Describe the environmental response in exact terms.**  
-**Where are you holding her?**
-
-“Holding?” Rachel said.
-
-“He means location,” Edrin said automatically.
-
-The last line took longer.
-
-**I am coming. Do nothing until I arrive.**
-
-No one spoke.
-
-Rachel stood. The bench scraped as she moved.
-
-"I'm going outside," she said.
-
-She didn't wait for permission.
-
-As she moved toward the door, that persistent thought returned: Every hour here makes it harder to leave. The resonance was pulling her deeper into this world with each breath, each step, each moment of belonging. The timer was ticking, and she could feel it in her bones now—not as urgency, but as inevitability.
+Rachel shook her head. "Not yet."

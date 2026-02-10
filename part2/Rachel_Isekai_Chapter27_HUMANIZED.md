@@ -92,7 +92,11 @@ One of us.
 
 "Yes," Rachel said, voice steadier than she felt. "I think I am."
 
-Sivara's expression shifted through several emotions Rachel couldn't name before settling on something that might have been curiosity mixed with concern. "Come in," she said, stepping back. "All of you. We have much to discuss."
+Sivara's gaze swept across the group, pausing briefly on Arathen. Something passed between them—recognition, acknowledgment. "Kael's son," she said quietly. "I wondered if you'd find your way here eventually."
+
+Arathen inclined his head. "Sivara."
+
+"Your mother would be proud," Sivara said, then her attention returned to Rachel. "Come in. All of you. We have much to discuss."
 
 The interior of Sivara's residence was exactly what Rachel should have expected and nothing like she'd imagined. The space was larger inside than outside—not impossibly so, just noticeably so, like the building had been given permission to ignore normal spatial constraints. The walls were that same living wood, breathing softly, covered in patterns that might have been growth rings or might have been writing or might have been both.
 

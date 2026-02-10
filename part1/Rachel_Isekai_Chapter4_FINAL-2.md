@@ -1,4 +1,4 @@
-# Chapter Four
+## Chapter Four
 
 Rachel couldn't stop replaying it.
 

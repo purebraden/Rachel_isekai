@@ -1,4 +1,4 @@
-# Chapter One
+## Chapter One
 
 Rachel Mercer’s life was fine.
 

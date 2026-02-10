@@ -62,7 +62,7 @@ Maelin exhaled slowly, the sound carrying weight. "Then we don't test that alone
 
 The door opened.
 
-Arathen stood in the frame as if he'd been there all along, attention fixed somewhere past them both.
+Arathen stood in the frame as if he'd been there all along, attention fixed somewhere past them both. He was older than Rachel had expected—early forties, maybe, with silver threading through dark hair in patterns that didn't quite follow age alone. His features held a sharpness that made him difficult to look away from, like angles that caught light wrong. Not unattractive. Just... present in a way that took up more space than his actual body should have occupied.
 
 "Well," he said. His voice stayed level, clinical. "That clarifies something."
 
@@ -138,7 +138,7 @@ Rachel opened her mouth to agree, then stopped. Was she? Constantly?
 
 She tried to remember the last time she'd actively thought about Evan—not just mentioned him in conversation, but actually pictured him, worried about what he was going through. Hours ago? Yesterday?
 
-The realization hit cold: she'd gone an entire day without thinking about him. An entire day of learning magic and reading impossible maps and eating meals with people who'd kidnapped her, and Evan had been—what? Background noise? An obligation she'd remember eventually?
+The realization hit cold: she'd gone an entire day without thinking about him. An entire day of learning magic and practicing with boundaries and eating meals with people who'd kidnapped her, and Evan had been—what? Background noise? An obligation she'd remember eventually?
 
 "Yes," she said, but the word tasted like a lie. "Constantly."
 
@@ -160,7 +160,9 @@ Arathen's attention shifted, sharpened with understanding. "Operations," he repe
 
 Rachel turned to look at him. "Explains what?"
 
-He accepted the plate she offered him. "Why you read the map so clearly. Why you sense boundaries. You've spent years learning to see where things might break before they do."
+For a moment, in the dim kitchen light, his eyes caught and held illumination in a way that didn't quite track—like an animal's reflection, there and gone before she could be certain she'd seen it. The effect was subtle enough that she almost dismissed it, but something about him made her attention snag and refuse to let go.
+
+He accepted the plate she offered him. "Why you sense boundaries so clearly. Why you can feel when things are about to break. You've spent years learning to see where systems might fail before they do."
 
 The words landed softer than she'd expected, recognition rather than judgment.
 

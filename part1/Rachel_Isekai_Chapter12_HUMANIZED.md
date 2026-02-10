@@ -30,6 +30,18 @@ Rachel wanted to believe that.
 
 They walked in loose formation, each person settling into a natural position. Ilyra moved ahead, attention scanning the road with the learned focus of someone who knew which details mattered and which could be ignored. Edrin followed several paces back, consulting the map periodically before looking up to confirm what he'd read against what he saw. Arathen drifted—sometimes beside Rachel, sometimes behind, his position shifting without apparent pattern.
 
+The forest beside the road demanded attention in ways Earth forests never had. The trees grew wrong—bark spiraling counterclockwise in tight helixes, branches splitting at angles that seemed structurally impossible. Some trunks were translucent enough to show the fluid moving inside them, sap that glowed faintly amber. The leaves were too blue, veins pressing so close to the surface they looked embossed, and they rustled with a sound like chimes rather than paper.
+
+Something moved through the canopy above them—not quite bird, not quite mammal. Rachel caught glimpses: six legs, wings that seemed to be made of membrane stretched between finger-like bones, a tail that ended in a tuft of something that might have been feathers or might have been something else entirely. It called out—a sound that started as birdsong and fractured into something crystalline, notes that didn't quite resolve.
+
+Flowers grew in clusters along the roadside, their petals arranged in perfect spirals that made Rachel's eyes want to follow the pattern inward. They were red, but red like Rachel had never seen—red that seemed to contain other colors trying to escape. When the wind moved through them, they released pollen that caught the light and hung suspended for too long, drifting in patterns that defied physics.
+
+"Don't touch those," Maelin warned, noticing Rachel's attention. "The spiral blooms. Their pollen can disorient you if you get too close."
+
+Rachel pulled her gaze away with effort. "Everything here is so... deliberate. Like it was designed instead of evolved."
+
+"Different rules," Arathen said from beside her. "Evolution here responds to magic as much as natural selection. Things grow toward power, not just sunlight."
+
 Rachel's feet found rhythm in the uneven ground. Her shoulders ached under the pack's weight. Sweat gathered at the small of her back.
 
 It was the most physically present she'd felt in years.
@@ -170,6 +182,36 @@ The presence withdrew suddenly, like a door closing. Rachel felt its absence as 
 
 Arathen's jaw was tight. "We need to move faster. If someone's tracking Rachel, they might not be content with just watching."
 
+As they shouldered their packs and continued walking, Rachel's mind churned. "Wait," she said, stopping. "What exactly are boundaries? I keep sensing them, crossing them, being watched through them—but I don't actually know what they are."
+
+Arathen turned back, something shifting in his expression. Not surprise—more like he'd been waiting for this question.
+
+"Boundaries are where different states of reality meet," he said. "Where the rules of one world press against the rules of another. Think of reality as layers—your world is one layer, this world is another, and there are countless others. Boundaries are the spaces between those layers."
+
+"Like walls?" Rachel asked.
+
+"More like membranes," Edrin said, coming closer. "Walls are solid, rigid. Boundaries are flexible. They can be thin or thick, stable or unstable. They keep worlds separate, but they also allow for... permeability. Under the right conditions."
+
+Arathen continued. "The March is a region where boundaries have become unstable—too many realities pressing against each other, creating fractures. That's why it's dangerous. You could step into a thin place and fall through into somewhere else entirely."
+
+"But some people can manipulate boundaries," Rachel said slowly. "Like demons. Like me."
+
+"Like you," Arathen confirmed. "Boundary walkers don't just sense where realities meet—they can affect them. Strengthen thin places. Weaken thick ones. Cross between worlds intentionally. What you do with time and space? That's boundary manipulation. You're bending the rules of this reality because you can access the spaces where rules are flexible."
+
+Rachel processed that. "So when I pause time—"
+
+"You're not actually stopping time," Edrin said, excitement creeping into his voice. "You're creating a localized boundary around the object where time flows differently. A pocket where your rules override the world's rules."
+
+"And when someone watches me through boundaries—"
+
+"They're extending their awareness across those spaces between worlds," Arathen said. "Using the boundaries as... pathways. Connections. It takes significant power and skill."
+
+The explanation settled heavy in Rachel's chest. She wasn't just doing magic. She was manipulating the fabric of reality itself. The spaces between worlds.
+
+"That's terrifying," she said.
+
+"Yes," Arathen agreed. "But it's also what you are."
+
 As they shouldered their packs and continued walking, Rachel felt different. Not confident—she wasn't that foolish—but less afraid of what lived inside her.
 
 And more afraid of whoever was interested in it.
@@ -178,11 +220,27 @@ The watcher's presence had felt analytical. Clinical. Like she was a specimen be
 
 She didn't like it at all.
 
-As they walked again, the world opened up in small ways. A farmhouse set back from the road. A pair of travelers heading the opposite direction who nodded without stopping. Someone’s laughter drifting from somewhere Rachel couldn’t see.
+As they walked again, the world opened up in small ways. Rachel's attention snagged on details she was only beginning to recognize as significant.
 
-This wasn’t wilderness.
+A creature the size of a housecat darted across the path—four-legged like Earth mammals, but with a second set of smaller limbs tucked against its chest. Its fur was iridescent, shifting between blue and copper depending on how the light caught it. It paused to study them with eyes that had horizontal pupils, then vanished into the undergrowth with unsettling speed.
 
-That unsettled her more than she expected.
+The undergrowth itself was thick with ferns that weren't quite ferns—fronds that moved when nothing touched them, curling inward whenever shadows passed overhead. Among them grew clusters of fungi in impossible colors: violet that glowed faintly in shade, orange that seemed to pulse with its own internal light. Edrin noticed Rachel staring and said quietly, "Don't eat anything without asking first. Half the plants here are toxic to humans."
+
+"Are they toxic to me?" Rachel asked.
+
+"Unclear," Edrin admitted. "We're still learning what rules apply to you."
+
+A farmhouse appeared set back from the road, its walls made of that same living wood Rachel had seen in Thornhaven—grown rather than built, shaped by magic into shelter. Smoke rose from a chimney that spiraled up into the canopy. In the field beside it, something that might have been cattle grazed, though they had too many legs and their heads were the wrong shape, elongated and crowned with what looked like bone ridges rather than horns.
+
+A pair of travelers passed heading the opposite direction—human, or human enough, with packs like theirs and the weathered look of people who spent their lives on roads. They nodded without stopping, but Rachel caught one of them glancing at her with something that might have been recognition or might have been curiosity.
+
+Someone's laughter drifted from somewhere Rachel couldn't see, high and bright, followed by a child's voice speaking in a language that sounded almost familiar but resolved into nothing she could understand.
+
+This wasn't wilderness.
+
+That unsettled her more than she expected. She'd been thinking of this world as fantasy, as something separate from ordinary life. But people lived here. Farmed here. Raised children and traveled roads and laughed at jokes she'd never understand.
+
+It was real. Not a dream or a temporary displacement. Real.
 
 By late afternoon, the pack's weight had become nearly unbearable. Rachel's shoulders burned with each step, the straps cutting into muscle that hadn't known this kind of sustained strain existed. She was calculating how to ask for a rest without revealing how badly she needed one when Ilyra slowed.
 
@@ -206,7 +264,11 @@ And underneath it, worse than the guilt—the knowledge that even if they found 
 
 The timer wasn't just ticking anymore. It might have already run out.
 
-They left the road, moving into a shallow grove of trees that offered cover without feeling enclosed. The ground looked level enough, clear enough.
+They left the road, moving into a shallow grove of trees that offered cover without feeling enclosed. The trees here were different from the roadside forest—shorter, with bark that had a smooth, almost waxy texture. Their leaves grew in clusters that rotated slowly throughout the day, following the sun's path. The ground beneath them was carpeted with something that looked like moss but felt springier, more resilient, like walking on living memory foam.
+
+Small flying insects drifted through the air—not quite fireflies, but similar. They pulsed with bioluminescence in patterns that seemed almost communicative: two quick flashes, a pause, three slow pulses. A whole conversation Rachel couldn't read. They avoided the group carefully, maintaining a consistent distance as if proximity to humans was something they'd learned to judge precisely.
+
+In the branches overhead, something chirped—high and sustained, more like a frog than a bird. Another answered from farther away, and then another, until the grove filled with a chorus of overlapping calls that rose and fell in waves.
 
 Maelin crouched to examine the earth, pressing her palm flat against it. "This will do."
 

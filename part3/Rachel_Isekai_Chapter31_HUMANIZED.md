@@ -100,6 +100,18 @@ Rachel felt exposed. "You can see my dreams?"
 
 The observation landed with uncomfortable accuracy.
 
+Kovan's gaze shifted to Arathen, who'd been standing quietly near the door. "Kael's son. I didn't expect to see you here."
+
+Arathen inclined his head. "Kovan."
+
+"Your mother spoke highly of you," Kovan said. "Said you chose to walk the human path despite your heritage. Admirable restraint." His eyes moved between Arathen and Rachel. "And now you're guiding another half-blood? Or is she more than half?"
+
+"More," Sivara said. "Rachel is full demon. Suppressed and raised human, but full-blood boundary walker."
+
+Kovan's eyebrows rose. "That explains the power signature. Half-bloods are diluted. She's not."
+
+Rachel looked at Arathen, understanding settling. He'd been navigating demon politics his whole life. He knew these people, these rules, this world. And he'd chosen to help her anyway.
+
 Senna leaned forward. "That's normal. Transition takes time. Even for demons raised in our world, identity is complicated. You're navigating it with grace."
 
 "Some of us think so," Valen said. "Others remain skeptical."

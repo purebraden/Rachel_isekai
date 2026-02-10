@@ -76,6 +76,42 @@ Rachel had known he'd say it. Had been building toward this understanding for da
 
 "I do, actually." He leaned back against the tree, eyes never leaving hers. "Rachel, I've been studying boundary magic and temporal manipulation for thirty years. I've seen people with a fraction of your power destroy everything around them because they couldn't control it. You have more ability than anyone I've ever encountered, and you're exercising a level of control that shouldn't be possible for someone so new to their abilities."
 
+Rachel stared at him. "How do you know so much about this? You're not just... academically interested. You talk about demons like you understand them from the inside."
+
+A long silence stretched between them. The fire popped. Something rustled in the undergrowth.
+
+"Because I do," Arathen said finally. His voice was quiet, careful. "Understand them from the inside."
+
+Rachel's breath caught. "What?"
+
+"My mother was a demon." The words came out steady, like he'd been holding them for a long time. "A shadow demon. My father was human. I'm what happens when those worlds collide."
+
+The revelation settled slowly, recontextualizing everything Rachel thought she'd understood.
+
+"You're half-demon," she said.
+
+"Yes."
+
+"And you didn't think to mention this?" Rachel's voice rose slightly. "When I was terrified about what I might be, you just—"
+
+"I was watching," Arathen interrupted gently. "Waiting to see if you'd figure it out on your own. And trying to decide when to tell you." He met her eyes. "I've spent my whole life passing as human, Rachel. It's safer. Easier. I don't share this casually."
+
+Rachel processed that. "Why tell me now?"
+
+"Because you asked. Because you needed to hear it from someone who's been where you are." His expression softened. "I grew up knowing what I was. I had both parents to teach me how to navigate being neither human nor demon, how to exist in the spaces between. You didn't have that. You've been doing this alone, and you're doing it remarkably well."
+
+"I don't feel like I'm doing well," Rachel said.
+
+"That's also part of it," Arathen said, something almost like a smile crossing his face. "The uncertainty. The fear. The constant worry that you'll hurt someone. I remember all of that."
+
+Rachel looked at him—really looked. The silver in his hair. The way light caught his eyes. The presence that took up more space than it should. "The shadow demon thing. Is that why your eyes do that? The reflection thing?"
+
+"Yes. And why I can sense boundaries better than most humans. Why your power affected me but didn't freeze me completely—I have some resistance, but not immunity. I'm not a boundary walker like you are." He paused. "Shadow demons have different abilities. Stealth, enhanced senses, some combat applications. Useful for research. Less useful for teaching you what you need to know."
+
+"That's why we're going to Sivara," Rachel said slowly.
+
+"That's why we're going to Sivara," he confirmed. "She's your kind of demon. Boundary walker. She can teach you the specific skills I can't. But I can teach you how to live as something that doesn't quite fit anywhere. That's expertise I have in abundance."
+
 "That doesn't comfort me," Rachel said.
 
 "It should," he replied. "Because it means whatever you are, whoever you are at your core—you're someone who chooses caution. Who values the people around you more than your own power. That's not a small thing."

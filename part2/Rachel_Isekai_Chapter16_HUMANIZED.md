@@ -74,9 +74,65 @@ The woman looked up then, and her expression shifted through several emotions in
 
 Merra's attention lingered on Rachel for another moment before she seemed to physically pull it away. "What do you need?"
 
-Edrin moved forward with a list he'd been maintaining since they'd left the outpost. His voice fell into the rhythm of negotiation—quantities, qualities, prices that meant something in a currency Rachel didn't understand. Maelin drifted toward the herb section, attention caught by something she recognized.
+But before Edrin could start his list, Ilyra spoke up. "Rachel needs shoes first. Those won't survive another day." She gestured at Rachel's work flats, now showing visible cracks along the soles.
 
-Rachel stood near the door and tried to be unobtrusive.
+Merra's gaze dropped to Rachel's feet, and something flickered across her expression—not quite pity, not quite amusement. "The cobbler is two doors down. Theren. Tell him I sent you."
+
+"Thank you," Rachel said, and her voice came out steadier than she felt.
+
+They left the shop, Arathen staying behind to wait for Edrin. Ilyra led Rachel and Maelin down the street.
+
+The cobbler's shop was smaller, darker, with a smell that was part leather and part something acrid Rachel couldn't identify—some kind of preservative or dye, maybe. The walls were lined with shelves holding boots and shoes in various stages of completion.
+
+The man behind the workbench looked up as they entered. Theren was older, maybe sixty, with hands that showed decades of skilled labor—callused, scarred, but moving with practiced precision as he set down whatever he'd been stitching. His eyes were striking—one brown, one a pale gray-green that seemed almost luminous in the dim shop. Not cataracts. Something else. Something that marked him as not-quite-human.
+
+"Merra's recommendation?" he asked, voice gravelly.
+
+"Yes," Ilyra said. "Our friend needs traveling boots. Something that'll last."
+
+Theren's attention fixed on Rachel. "Sit."
+
+Rachel sat on the bench he indicated. He crouched before her without ceremony, his joints crackling audibly, and began examining her feet through her ruined flats. His touch was efficient, professional—measuring width, checking arch support, pressing against the ball of her foot to test flexibility.
+
+"You've been walking on roads designed for different feet," he said, not looking up. "These are city shoes. Office shoes. They'll give you blisters and joint pain before they fall apart completely, which they're about to do."
+
+"I didn't exactly plan the trip," Rachel said.
+
+A sound that might have been a chuckle. "Few people do." He stood, moving to the shelves with purpose. "You need arch support. Wide toe box. And something that can handle boundary regions—leather here responds poorly to prolonged exposure to thin places. I'll need to use treated hide."
+
+He pulled down three pairs of boots, each in that same too-brown leather that seemed to be standard here. "Try these."
+
+Rachel tried the first pair. Too tight across the instep.
+
+The second pair felt better, but when she stood and walked a few steps, something pressed wrong against her heel.
+
+The third pair settled onto her feet like they'd been waiting for her. The leather was softer than she expected, broken in but not worn out. The soles felt thicker than her old shoes, cushioned in a way that made her realize how much impact she'd been absorbing through her feet.
+
+"These," she said.
+
+Theren nodded, unsurprised. "Those are imbued. Minimal work, but enough to resist boundary degradation. They'll last you a year of hard travel if you treat them right." His mismatched eyes studied her for a moment. "You're going somewhere unstable."
+
+It wasn't a question.
+
+"Yes," Rachel said, because lying seemed pointless.
+
+"Take care of your feet," Theren said. "Can't run from danger or walk toward safety if you can't walk at all."
+
+Maelin handled the payment while Rachel changed into the boots, lacing them with hands that weren't entirely steady. When she stood, her feet felt... different. Better. Like they'd been given permission to be feet instead of just transportation.
+
+"Thank you," she said to Theren.
+
+He'd already returned to his workbench, but he raised one hand in acknowledgment without looking up. "Safe travels, stranger."
+
+Back on the street, wearing boots that fit, Rachel felt a strange sense of completion. Like she'd been partially present and was now fully here.
+
+"Better?" Ilyra asked.
+
+"Better," Rachel confirmed.
+
+They returned to Merra's shop, where Edrin had started his list. His voice fell into the rhythm of negotiation—quantities, qualities, prices that meant something in a currency Rachel didn't understand. Maelin drifted toward the herb section, attention caught by something she recognized.
+
+Rachel stood near the door, in boots that would last, and tried to be unobtrusive.
 
 It didn't work.
 

@@ -4,7 +4,7 @@
 
 ---
 
-# Chapter One
+## Chapter One
 
 Rachel Mercer’s life was fine.
 
@@ -183,7 +183,7 @@ Behind her, the doorway stayed open. Waiting too.
 
 ---
 
-# Chapter Two
+## Chapter Two
 
 Rachel stayed on the floor longer than she needed to.
 
@@ -398,7 +398,7 @@ She pressed her hand against her chest and felt it pulse there, waiting.
 
 ---
 
-# Chapter Three
+## Chapter Three
 
 Hunger woke Rachel fully.
 
@@ -607,7 +607,7 @@ Rachel stayed where she was, counting time by the small motions people made when
 
 ---
 
-# Chapter Four
+## Chapter Four
 
 Rachel couldn't stop replaying it.
 
@@ -804,7 +804,7 @@ Rachel walked back toward the doorway. Back toward whatever came next.
 
 ---
 
-# Chapter Five
+## Chapter Five
 
 Rachel paused at the threshold.
 
@@ -1057,7 +1057,7 @@ Rachel found herself almost smiling back.
 
 ---
 
-# Chapter Six
+## Chapter Six
 
 Rachel woke to movement.
 
@@ -1736,7 +1736,7 @@ Maelin exhaled slowly, the sound carrying weight. "Then we don't test that alone
 
 The door opened.
 
-Arathen stood in the frame as if he'd been there all along, attention fixed somewhere past them both.
+Arathen stood in the frame as if he'd been there all along, attention fixed somewhere past them both. He was older than Rachel had expected—early forties, maybe, with silver threading through dark hair in patterns that didn't quite follow age alone. His features held a sharpness that made him difficult to look away from, like angles that caught light wrong. Not unattractive. Just... present in a way that took up more space than his actual body should have occupied.
 
 "Well," he said. His voice stayed level, clinical. "That clarifies something."
 
@@ -1812,7 +1812,7 @@ Rachel opened her mouth to agree, then stopped. Was she? Constantly?
 
 She tried to remember the last time she'd actively thought about Evan—not just mentioned him in conversation, but actually pictured him, worried about what he was going through. Hours ago? Yesterday?
 
-The realization hit cold: she'd gone an entire day without thinking about him. An entire day of learning magic and reading impossible maps and eating meals with people who'd kidnapped her, and Evan had been—what? Background noise? An obligation she'd remember eventually?
+The realization hit cold: she'd gone an entire day without thinking about him. An entire day of learning magic and practicing with boundaries and eating meals with people who'd kidnapped her, and Evan had been—what? Background noise? An obligation she'd remember eventually?
 
 "Yes," she said, but the word tasted like a lie. "Constantly."
 
@@ -1834,7 +1834,9 @@ Arathen's attention shifted, sharpened with understanding. "Operations," he repe
 
 Rachel turned to look at him. "Explains what?"
 
-He accepted the plate she offered him. "Why you read the map so clearly. Why you sense boundaries. You've spent years learning to see where things might break before they do."
+For a moment, in the dim kitchen light, his eyes caught and held illumination in a way that didn't quite track—like an animal's reflection, there and gone before she could be certain she'd seen it. The effect was subtle enough that she almost dismissed it, but something about him made her attention snag and refuse to let go.
+
+He accepted the plate she offered him. "Why you sense boundaries so clearly. Why you can feel when things are about to break. You've spent years learning to see where systems might fail before they do."
 
 The words landed softer than she'd expected, recognition rather than judgment.
 
@@ -2061,11 +2063,13 @@ Arathen stumbled forward, momentum restored too quickly. Maelin caught him befor
 
 "I'm sorry," Rachel said, the words tumbling out. "I didn't mean—I was trying to just pause the bead but it—" Her hands were shaking. "Are you okay? Did I hurt you?"
 
-Arathen held up a hand, breathing carefully. "I'm fine. Just... disoriented." He sat down heavily. "That was... unexpected."
+Arathen held up a hand, breathing carefully. "I'm fine. Just... disoriented." He sat down heavily. "That shouldn't have worked on me like that."
 
-"You paused him," Edrin said, voice thin with shock. "You caught a person in temporal field. That shouldn't—demons can't do that. We're supposed to be immune to—"
+"You paused him," Edrin said, voice thin with shock. "You caught a person in temporal field. That shouldn't—boundary walkers can't do that. They're immune to—"
 
-"I'm not a demon," Rachel interrupted. "Maybe that's why—" She stopped. Looked at Arathen. "I could have hurt you. What if I'd frozen you completely? What if I couldn't restart you?"
+"I felt it," Arathen said quietly, and something in his tone made Rachel's attention sharpen. "Not like... not like a full effect. Like pushing through resistance. But it worked." He looked at Rachel with an expression she couldn't quite read. "You're stronger than I expected."
+
+"I'm not—I'm not a boundary walker," Rachel said. "Maybe that's why—" She stopped. Looked at Arathen. "I could have hurt you. What if I'd frozen you completely? What if I couldn't restart you?"
 
 "But you didn't," Arathen said, though his voice wasn't entirely steady. "You caught yourself. Released immediately. That's good instinct, Rachel."
 
@@ -2278,7 +2282,23 @@ The word fell heavy into the silence.
 
 No one denied it.
 
-Edrin's voice came quiet. "A specific one. Keleth. She's a boundary walker—someone who exists between worlds by nature. We thought if anyone could understand what's happening to the March, could tell us how to stop it..."
+Rachel's mind filled with images—horns, fire, things that lurked in darkness. She must have made a face because Maelin spoke quickly.
+
+"Not what you're thinking," Maelin said. "Demons here aren't—they're not evil. They're not monsters. It's just what we call beings who exist between worlds naturally. Boundary walkers."
+
+"Like a species," Edrin added. "Not a judgment."
+
+Rachel stared at them. "So when you say demon, you just mean... someone who can cross boundaries?"
+
+"Someone who lives in the spaces between," Arathen clarified. "It's their nature, not their morality. Some are helpful. Some aren't. Like people."
+
+"And there are different types," Edrin added. "Boundary walkers like Keleth specialize in dimensional magic—crossing between worlds, manipulating space and time. But there are others. Shadow demons, elemental demons, empaths. Different abilities, different natures."
+
+The clarification settled uneasily. Rachel's whole life, the word demon had meant one thing. Here it meant something else entirely.
+
+"Okay," Rachel said slowly. "So you were trying to summon a specific type. A boundary walker."
+
+Edrin's voice came quiet. "A specific one. Keleth. She's helped stabilize fractures before, according to the records. We thought if anyone could understand what's happening to the March, could tell us how to stop it..."
 
 "It would be someone who lives in those in-between spaces," Arathen finished.
 
@@ -2290,23 +2310,11 @@ Ilyra's arms remained folded. "Demons understand boundaries better than most. Ke
 
 Rachel stared at the floor, at the grain of the wood, at anything but the people watching her process this. Something shifted inside her—not quite fear, not quite anger. Something older and less defined.
 
-"Who were you trying to reach?" she asked quietly.
+"So Keleth exists between worlds," Rachel said slowly. "And you thought that meant she could fix the March. But instead the summoning found... me."
 
-Edrin opened his mouth, clearly wanting to answer.
+"Someone else who exists between worlds," Arathen said quietly. "Or someone who could."
 
-Arathen raised one hand—barely a movement, gentle. "We can tell you," he said. "But perhaps not all at once. You've learned a great deal in a very short time."
-
-Rachel's gaze lifted to him. "I can handle it."
-
-"I know you can," Arathen said, and he sounded like he meant it. "But handling something and needing to handle it are different things. We owe you the truth. We also owe you the space to receive it at a pace you choose."
-
-The distinction made Rachel pause. He wasn't refusing. He was offering her control.
-
-"Soon though," she said. "I need to know."
-
-"Soon," he agreed. "You have my word."
-
-Edrin looked between them, then nodded. "Whenever you're ready, Rachel. We'll tell you everything."
+The implication hung heavy in the air.
 
 Rachel pressed her palms flat against the floor, seeking stability in the solid, unchanging pressure of wood and stone.
 
@@ -2444,7 +2452,7 @@ A beat of silence.
 
 Edrin cleared his throat. "Because she's a demon." The words came out like a confession.
 
-Rachel's stomach dropped. The word hit different than she expected—not scary movie, not hellfire and brimstone. Just... other. Definitively other.
+Rachel's stomach dropped. Not because she expected horns or hellfire—they'd clarified that already—but because the word still carried weight. Boundary walker. Someone fundamentally other. Someone who existed in spaces Rachel was only beginning to understand.
 
 "You're taking me to meet a demon," she said flatly.
 
@@ -2631,9 +2639,9 @@ Rachel's hand drifted to her palm, remembering the warmth. "The heat. The tightn
 
 "Rachel." Maelin's voice was gentle but firm. "We're not going to let you face this alone. That's the entire point of traveling together."
 
-Rachel nodded, throat tight. "What if I hurt someone while I'm sleeping? The tent—what if I—"
+Rachel nodded, throat tight. "What if I hurt someone while I'm sleeping? What if I lose control and—"
 
-"The tent has its own stability," Arathen said. "It's not part of normal space in the way the building is. If anything, it might insulate against your abilities rather than amplify them."
+"We'll take precautions," Arathen said. "And the sleeping arrangements we'll use have their own stability. They're not part of normal space in the way buildings are. If anything, they might insulate against your abilities rather than amplify them."
 
 "Might," Rachel repeated.
 
@@ -2697,6 +2705,18 @@ Maelin's smile held sympathy. "Sooner than you think when you're in it. You're t
 Rachel wanted to believe that.
 
 They walked in loose formation, each person settling into a natural position. Ilyra moved ahead, attention scanning the road with the learned focus of someone who knew which details mattered and which could be ignored. Edrin followed several paces back, consulting the map periodically before looking up to confirm what he'd read against what he saw. Arathen drifted—sometimes beside Rachel, sometimes behind, his position shifting without apparent pattern.
+
+The forest beside the road demanded attention in ways Earth forests never had. The trees grew wrong—bark spiraling counterclockwise in tight helixes, branches splitting at angles that seemed structurally impossible. Some trunks were translucent enough to show the fluid moving inside them, sap that glowed faintly amber. The leaves were too blue, veins pressing so close to the surface they looked embossed, and they rustled with a sound like chimes rather than paper.
+
+Something moved through the canopy above them—not quite bird, not quite mammal. Rachel caught glimpses: six legs, wings that seemed to be made of membrane stretched between finger-like bones, a tail that ended in a tuft of something that might have been feathers or might have been something else entirely. It called out—a sound that started as birdsong and fractured into something crystalline, notes that didn't quite resolve.
+
+Flowers grew in clusters along the roadside, their petals arranged in perfect spirals that made Rachel's eyes want to follow the pattern inward. They were red, but red like Rachel had never seen—red that seemed to contain other colors trying to escape. When the wind moved through them, they released pollen that caught the light and hung suspended for too long, drifting in patterns that defied physics.
+
+"Don't touch those," Maelin warned, noticing Rachel's attention. "The spiral blooms. Their pollen can disorient you if you get too close."
+
+Rachel pulled her gaze away with effort. "Everything here is so... deliberate. Like it was designed instead of evolved."
+
+"Different rules," Arathen said from beside her. "Evolution here responds to magic as much as natural selection. Things grow toward power, not just sunlight."
 
 Rachel's feet found rhythm in the uneven ground. Her shoulders ached under the pack's weight. Sweat gathered at the small of her back.
 
@@ -2838,6 +2858,36 @@ The presence withdrew suddenly, like a door closing. Rachel felt its absence as 
 
 Arathen's jaw was tight. "We need to move faster. If someone's tracking Rachel, they might not be content with just watching."
 
+As they shouldered their packs and continued walking, Rachel's mind churned. "Wait," she said, stopping. "What exactly are boundaries? I keep sensing them, crossing them, being watched through them—but I don't actually know what they are."
+
+Arathen turned back, something shifting in his expression. Not surprise—more like he'd been waiting for this question.
+
+"Boundaries are where different states of reality meet," he said. "Where the rules of one world press against the rules of another. Think of reality as layers—your world is one layer, this world is another, and there are countless others. Boundaries are the spaces between those layers."
+
+"Like walls?" Rachel asked.
+
+"More like membranes," Edrin said, coming closer. "Walls are solid, rigid. Boundaries are flexible. They can be thin or thick, stable or unstable. They keep worlds separate, but they also allow for... permeability. Under the right conditions."
+
+Arathen continued. "The March is a region where boundaries have become unstable—too many realities pressing against each other, creating fractures. That's why it's dangerous. You could step into a thin place and fall through into somewhere else entirely."
+
+"But some people can manipulate boundaries," Rachel said slowly. "Like demons. Like me."
+
+"Like you," Arathen confirmed. "Boundary walkers don't just sense where realities meet—they can affect them. Strengthen thin places. Weaken thick ones. Cross between worlds intentionally. What you do with time and space? That's boundary manipulation. You're bending the rules of this reality because you can access the spaces where rules are flexible."
+
+Rachel processed that. "So when I pause time—"
+
+"You're not actually stopping time," Edrin said, excitement creeping into his voice. "You're creating a localized boundary around the object where time flows differently. A pocket where your rules override the world's rules."
+
+"And when someone watches me through boundaries—"
+
+"They're extending their awareness across those spaces between worlds," Arathen said. "Using the boundaries as... pathways. Connections. It takes significant power and skill."
+
+The explanation settled heavy in Rachel's chest. She wasn't just doing magic. She was manipulating the fabric of reality itself. The spaces between worlds.
+
+"That's terrifying," she said.
+
+"Yes," Arathen agreed. "But it's also what you are."
+
 As they shouldered their packs and continued walking, Rachel felt different. Not confident—she wasn't that foolish—but less afraid of what lived inside her.
 
 And more afraid of whoever was interested in it.
@@ -2846,11 +2896,27 @@ The watcher's presence had felt analytical. Clinical. Like she was a specimen be
 
 She didn't like it at all.
 
-As they walked again, the world opened up in small ways. A farmhouse set back from the road. A pair of travelers heading the opposite direction who nodded without stopping. Someone’s laughter drifting from somewhere Rachel couldn’t see.
+As they walked again, the world opened up in small ways. Rachel's attention snagged on details she was only beginning to recognize as significant.
 
-This wasn’t wilderness.
+A creature the size of a housecat darted across the path—four-legged like Earth mammals, but with a second set of smaller limbs tucked against its chest. Its fur was iridescent, shifting between blue and copper depending on how the light caught it. It paused to study them with eyes that had horizontal pupils, then vanished into the undergrowth with unsettling speed.
 
-That unsettled her more than she expected.
+The undergrowth itself was thick with ferns that weren't quite ferns—fronds that moved when nothing touched them, curling inward whenever shadows passed overhead. Among them grew clusters of fungi in impossible colors: violet that glowed faintly in shade, orange that seemed to pulse with its own internal light. Edrin noticed Rachel staring and said quietly, "Don't eat anything without asking first. Half the plants here are toxic to humans."
+
+"Are they toxic to me?" Rachel asked.
+
+"Unclear," Edrin admitted. "We're still learning what rules apply to you."
+
+A farmhouse appeared set back from the road, its walls made of that same living wood Rachel had seen in Thornhaven—grown rather than built, shaped by magic into shelter. Smoke rose from a chimney that spiraled up into the canopy. In the field beside it, something that might have been cattle grazed, though they had too many legs and their heads were the wrong shape, elongated and crowned with what looked like bone ridges rather than horns.
+
+A pair of travelers passed heading the opposite direction—human, or human enough, with packs like theirs and the weathered look of people who spent their lives on roads. They nodded without stopping, but Rachel caught one of them glancing at her with something that might have been recognition or might have been curiosity.
+
+Someone's laughter drifted from somewhere Rachel couldn't see, high and bright, followed by a child's voice speaking in a language that sounded almost familiar but resolved into nothing she could understand.
+
+This wasn't wilderness.
+
+That unsettled her more than she expected. She'd been thinking of this world as fantasy, as something separate from ordinary life. But people lived here. Farmed here. Raised children and traveled roads and laughed at jokes she'd never understand.
+
+It was real. Not a dream or a temporary displacement. Real.
 
 By late afternoon, the pack's weight had become nearly unbearable. Rachel's shoulders burned with each step, the straps cutting into muscle that hadn't known this kind of sustained strain existed. She was calculating how to ask for a rest without revealing how badly she needed one when Ilyra slowed.
 
@@ -2874,7 +2940,11 @@ And underneath it, worse than the guilt—the knowledge that even if they found 
 
 The timer wasn't just ticking anymore. It might have already run out.
 
-They left the road, moving into a shallow grove of trees that offered cover without feeling enclosed. The ground looked level enough, clear enough.
+They left the road, moving into a shallow grove of trees that offered cover without feeling enclosed. The trees here were different from the roadside forest—shorter, with bark that had a smooth, almost waxy texture. Their leaves grew in clusters that rotated slowly throughout the day, following the sun's path. The ground beneath them was carpeted with something that looked like moss but felt springier, more resilient, like walking on living memory foam.
+
+Small flying insects drifted through the air—not quite fireflies, but similar. They pulsed with bioluminescence in patterns that seemed almost communicative: two quick flashes, a pause, three slow pulses. A whole conversation Rachel couldn't read. They avoided the group carefully, maintaining a consistent distance as if proximity to humans was something they'd learned to judge precisely.
+
+In the branches overhead, something chirped—high and sustained, more like a frog than a bird. Another answered from farther away, and then another, until the grove filled with a chorus of overlapping calls that rose and fell in waves.
 
 Maelin crouched to examine the earth, pressing her palm flat against it. "This will do."
 
@@ -3424,9 +3494,65 @@ The woman looked up then, and her expression shifted through several emotions in
 
 Merra's attention lingered on Rachel for another moment before she seemed to physically pull it away. "What do you need?"
 
-Edrin moved forward with a list he'd been maintaining since they'd left the outpost. His voice fell into the rhythm of negotiation—quantities, qualities, prices that meant something in a currency Rachel didn't understand. Maelin drifted toward the herb section, attention caught by something she recognized.
+But before Edrin could start his list, Ilyra spoke up. "Rachel needs shoes first. Those won't survive another day." She gestured at Rachel's work flats, now showing visible cracks along the soles.
 
-Rachel stood near the door and tried to be unobtrusive.
+Merra's gaze dropped to Rachel's feet, and something flickered across her expression—not quite pity, not quite amusement. "The cobbler is two doors down. Theren. Tell him I sent you."
+
+"Thank you," Rachel said, and her voice came out steadier than she felt.
+
+They left the shop, Arathen staying behind to wait for Edrin. Ilyra led Rachel and Maelin down the street.
+
+The cobbler's shop was smaller, darker, with a smell that was part leather and part something acrid Rachel couldn't identify—some kind of preservative or dye, maybe. The walls were lined with shelves holding boots and shoes in various stages of completion.
+
+The man behind the workbench looked up as they entered. Theren was older, maybe sixty, with hands that showed decades of skilled labor—callused, scarred, but moving with practiced precision as he set down whatever he'd been stitching. His eyes were striking—one brown, one a pale gray-green that seemed almost luminous in the dim shop. Not cataracts. Something else. Something that marked him as not-quite-human.
+
+"Merra's recommendation?" he asked, voice gravelly.
+
+"Yes," Ilyra said. "Our friend needs traveling boots. Something that'll last."
+
+Theren's attention fixed on Rachel. "Sit."
+
+Rachel sat on the bench he indicated. He crouched before her without ceremony, his joints crackling audibly, and began examining her feet through her ruined flats. His touch was efficient, professional—measuring width, checking arch support, pressing against the ball of her foot to test flexibility.
+
+"You've been walking on roads designed for different feet," he said, not looking up. "These are city shoes. Office shoes. They'll give you blisters and joint pain before they fall apart completely, which they're about to do."
+
+"I didn't exactly plan the trip," Rachel said.
+
+A sound that might have been a chuckle. "Few people do." He stood, moving to the shelves with purpose. "You need arch support. Wide toe box. And something that can handle boundary regions—leather here responds poorly to prolonged exposure to thin places. I'll need to use treated hide."
+
+He pulled down three pairs of boots, each in that same too-brown leather that seemed to be standard here. "Try these."
+
+Rachel tried the first pair. Too tight across the instep.
+
+The second pair felt better, but when she stood and walked a few steps, something pressed wrong against her heel.
+
+The third pair settled onto her feet like they'd been waiting for her. The leather was softer than she expected, broken in but not worn out. The soles felt thicker than her old shoes, cushioned in a way that made her realize how much impact she'd been absorbing through her feet.
+
+"These," she said.
+
+Theren nodded, unsurprised. "Those are imbued. Minimal work, but enough to resist boundary degradation. They'll last you a year of hard travel if you treat them right." His mismatched eyes studied her for a moment. "You're going somewhere unstable."
+
+It wasn't a question.
+
+"Yes," Rachel said, because lying seemed pointless.
+
+"Take care of your feet," Theren said. "Can't run from danger or walk toward safety if you can't walk at all."
+
+Maelin handled the payment while Rachel changed into the boots, lacing them with hands that weren't entirely steady. When she stood, her feet felt... different. Better. Like they'd been given permission to be feet instead of just transportation.
+
+"Thank you," she said to Theren.
+
+He'd already returned to his workbench, but he raised one hand in acknowledgment without looking up. "Safe travels, stranger."
+
+Back on the street, wearing boots that fit, Rachel felt a strange sense of completion. Like she'd been partially present and was now fully here.
+
+"Better?" Ilyra asked.
+
+"Better," Rachel confirmed.
+
+They returned to Merra's shop, where Edrin had started his list. His voice fell into the rhythm of negotiation—quantities, qualities, prices that meant something in a currency Rachel didn't understand. Maelin drifted toward the herb section, attention caught by something she recognized.
+
+Rachel stood near the door, in boots that would last, and tried to be unobtrusive.
 
 It didn't work.
 
@@ -4325,6 +4451,42 @@ Rachel had known he'd say it. Had been building toward this understanding for da
 "You don't know that."
 
 "I do, actually." He leaned back against the tree, eyes never leaving hers. "Rachel, I've been studying boundary magic and temporal manipulation for thirty years. I've seen people with a fraction of your power destroy everything around them because they couldn't control it. You have more ability than anyone I've ever encountered, and you're exercising a level of control that shouldn't be possible for someone so new to their abilities."
+
+Rachel stared at him. "How do you know so much about this? You're not just... academically interested. You talk about demons like you understand them from the inside."
+
+A long silence stretched between them. The fire popped. Something rustled in the undergrowth.
+
+"Because I do," Arathen said finally. His voice was quiet, careful. "Understand them from the inside."
+
+Rachel's breath caught. "What?"
+
+"My mother was a demon." The words came out steady, like he'd been holding them for a long time. "A shadow demon. My father was human. I'm what happens when those worlds collide."
+
+The revelation settled slowly, recontextualizing everything Rachel thought she'd understood.
+
+"You're half-demon," she said.
+
+"Yes."
+
+"And you didn't think to mention this?" Rachel's voice rose slightly. "When I was terrified about what I might be, you just—"
+
+"I was watching," Arathen interrupted gently. "Waiting to see if you'd figure it out on your own. And trying to decide when to tell you." He met her eyes. "I've spent my whole life passing as human, Rachel. It's safer. Easier. I don't share this casually."
+
+Rachel processed that. "Why tell me now?"
+
+"Because you asked. Because you needed to hear it from someone who's been where you are." His expression softened. "I grew up knowing what I was. I had both parents to teach me how to navigate being neither human nor demon, how to exist in the spaces between. You didn't have that. You've been doing this alone, and you're doing it remarkably well."
+
+"I don't feel like I'm doing well," Rachel said.
+
+"That's also part of it," Arathen said, something almost like a smile crossing his face. "The uncertainty. The fear. The constant worry that you'll hurt someone. I remember all of that."
+
+Rachel looked at him—really looked. The silver in his hair. The way light caught his eyes. The presence that took up more space than it should. "The shadow demon thing. Is that why your eyes do that? The reflection thing?"
+
+"Yes. And why I can sense boundaries better than most humans. Why your power affected me but didn't freeze me completely—I have some resistance, but not immunity. I'm not a boundary walker like you are." He paused. "Shadow demons have different abilities. Stealth, enhanced senses, some combat applications. Useful for research. Less useful for teaching you what you need to know."
+
+"That's why we're going to Sivara," Rachel said slowly.
+
+"That's why we're going to Sivara," he confirmed. "She's your kind of demon. Boundary walker. She can teach you the specific skills I can't. But I can teach you how to live as something that doesn't quite fit anywhere. That's expertise I have in abundance."
 
 "That doesn't comfort me," Rachel said.
 
@@ -6006,7 +6168,11 @@ One of us.
 
 "Yes," Rachel said, voice steadier than she felt. "I think I am."
 
-Sivara's expression shifted through several emotions Rachel couldn't name before settling on something that might have been curiosity mixed with concern. "Come in," she said, stepping back. "All of you. We have much to discuss."
+Sivara's gaze swept across the group, pausing briefly on Arathen. Something passed between them—recognition, acknowledgment. "Kael's son," she said quietly. "I wondered if you'd find your way here eventually."
+
+Arathen inclined his head. "Sivara."
+
+"Your mother would be proud," Sivara said, then her attention returned to Rachel. "Come in. All of you. We have much to discuss."
 
 The interior of Sivara's residence was exactly what Rachel should have expected and nothing like she'd imagined. The space was larger inside than outside—not impossibly so, just noticeably so, like the building had been given permission to ignore normal spatial constraints. The walls were that same living wood, breathing softly, covered in patterns that might have been growth rings or might have been writing or might have been both.
 
@@ -6847,6 +7013,18 @@ Rachel felt exposed. "You can see my dreams?"
 "Only their echoes," Ilya said. "I don't intrude unless invited. But yes—your dream presence is strong. Clear. You haven't fully accepted that your human life is over. Part of you still reaches for it."
 
 The observation landed with uncomfortable accuracy.
+
+Kovan's gaze shifted to Arathen, who'd been standing quietly near the door. "Kael's son. I didn't expect to see you here."
+
+Arathen inclined his head. "Kovan."
+
+"Your mother spoke highly of you," Kovan said. "Said you chose to walk the human path despite your heritage. Admirable restraint." His eyes moved between Arathen and Rachel. "And now you're guiding another half-blood? Or is she more than half?"
+
+"More," Sivara said. "Rachel is full demon. Suppressed and raised human, but full-blood boundary walker."
+
+Kovan's eyebrows rose. "That explains the power signature. Half-bloods are diluted. She's not."
+
+Rachel looked at Arathen, understanding settling. He'd been navigating demon politics his whole life. He knew these people, these rules, this world. And he'd chosen to help her anyway.
 
 Senna leaned forward. "That's normal. Transition takes time. Even for demons raised in our world, identity is complicated. You're navigating it with grace."
 

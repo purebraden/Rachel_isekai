@@ -1,4 +1,4 @@
-# Chapter Two
+## Chapter Two
 
 Rachel stayed on the floor longer than she needed to.
 

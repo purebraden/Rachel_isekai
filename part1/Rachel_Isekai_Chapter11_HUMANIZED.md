@@ -146,9 +146,9 @@ Rachel's hand drifted to her palm, remembering the warmth. "The heat. The tightn
 
 "Rachel." Maelin's voice was gentle but firm. "We're not going to let you face this alone. That's the entire point of traveling together."
 
-Rachel nodded, throat tight. "What if I hurt someone while I'm sleeping? The tent—what if I—"
+Rachel nodded, throat tight. "What if I hurt someone while I'm sleeping? What if I lose control and—"
 
-"The tent has its own stability," Arathen said. "It's not part of normal space in the way the building is. If anything, it might insulate against your abilities rather than amplify them."
+"We'll take precautions," Arathen said. "And the sleeping arrangements we'll use have their own stability. They're not part of normal space in the way buildings are. If anything, they might insulate against your abilities rather than amplify them."
 
 "Might," Rachel repeated.
 

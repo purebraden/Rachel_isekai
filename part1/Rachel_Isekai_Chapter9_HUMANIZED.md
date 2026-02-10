@@ -170,11 +170,13 @@ Arathen stumbled forward, momentum restored too quickly. Maelin caught him befor
 
 "I'm sorry," Rachel said, the words tumbling out. "I didn't mean—I was trying to just pause the bead but it—" Her hands were shaking. "Are you okay? Did I hurt you?"
 
-Arathen held up a hand, breathing carefully. "I'm fine. Just... disoriented." He sat down heavily. "That was... unexpected."
+Arathen held up a hand, breathing carefully. "I'm fine. Just... disoriented." He sat down heavily. "That shouldn't have worked on me like that."
 
-"You paused him," Edrin said, voice thin with shock. "You caught a person in temporal field. That shouldn't—demons can't do that. We're supposed to be immune to—"
+"You paused him," Edrin said, voice thin with shock. "You caught a person in temporal field. That shouldn't—boundary walkers can't do that. They're immune to—"
 
-"I'm not a demon," Rachel interrupted. "Maybe that's why—" She stopped. Looked at Arathen. "I could have hurt you. What if I'd frozen you completely? What if I couldn't restart you?"
+"I felt it," Arathen said quietly, and something in his tone made Rachel's attention sharpen. "Not like... not like a full effect. Like pushing through resistance. But it worked." He looked at Rachel with an expression she couldn't quite read. "You're stronger than I expected."
+
+"I'm not—I'm not a boundary walker," Rachel said. "Maybe that's why—" She stopped. Looked at Arathen. "I could have hurt you. What if I'd frozen you completely? What if I couldn't restart you?"
 
 "But you didn't," Arathen said, though his voice wasn't entirely steady. "You caught yourself. Released immediately. That's good instinct, Rachel."
 

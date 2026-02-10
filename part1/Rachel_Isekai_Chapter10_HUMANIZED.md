@@ -100,7 +100,23 @@ The word fell heavy into the silence.
 
 No one denied it.
 
-Edrin's voice came quiet. "A specific one. Keleth. She's a boundary walker—someone who exists between worlds by nature. We thought if anyone could understand what's happening to the March, could tell us how to stop it..."
+Rachel's mind filled with images—horns, fire, things that lurked in darkness. She must have made a face because Maelin spoke quickly.
+
+"Not what you're thinking," Maelin said. "Demons here aren't—they're not evil. They're not monsters. It's just what we call beings who exist between worlds naturally. Boundary walkers."
+
+"Like a species," Edrin added. "Not a judgment."
+
+Rachel stared at them. "So when you say demon, you just mean... someone who can cross boundaries?"
+
+"Someone who lives in the spaces between," Arathen clarified. "It's their nature, not their morality. Some are helpful. Some aren't. Like people."
+
+"And there are different types," Edrin added. "Boundary walkers like Keleth specialize in dimensional magic—crossing between worlds, manipulating space and time. But there are others. Shadow demons, elemental demons, empaths. Different abilities, different natures."
+
+The clarification settled uneasily. Rachel's whole life, the word demon had meant one thing. Here it meant something else entirely.
+
+"Okay," Rachel said slowly. "So you were trying to summon a specific type. A boundary walker."
+
+Edrin's voice came quiet. "A specific one. Keleth. She's helped stabilize fractures before, according to the records. We thought if anyone could understand what's happening to the March, could tell us how to stop it..."
 
 "It would be someone who lives in those in-between spaces," Arathen finished.
 
@@ -112,23 +128,11 @@ Ilyra's arms remained folded. "Demons understand boundaries better than most. Ke
 
 Rachel stared at the floor, at the grain of the wood, at anything but the people watching her process this. Something shifted inside her—not quite fear, not quite anger. Something older and less defined.
 
-"Who were you trying to reach?" she asked quietly.
+"So Keleth exists between worlds," Rachel said slowly. "And you thought that meant she could fix the March. But instead the summoning found... me."
 
-Edrin opened his mouth, clearly wanting to answer.
+"Someone else who exists between worlds," Arathen said quietly. "Or someone who could."
 
-Arathen raised one hand—barely a movement, gentle. "We can tell you," he said. "But perhaps not all at once. You've learned a great deal in a very short time."
-
-Rachel's gaze lifted to him. "I can handle it."
-
-"I know you can," Arathen said, and he sounded like he meant it. "But handling something and needing to handle it are different things. We owe you the truth. We also owe you the space to receive it at a pace you choose."
-
-The distinction made Rachel pause. He wasn't refusing. He was offering her control.
-
-"Soon though," she said. "I need to know."
-
-"Soon," he agreed. "You have my word."
-
-Edrin looked between them, then nodded. "Whenever you're ready, Rachel. We'll tell you everything."
+The implication hung heavy in the air.
 
 Rachel pressed her palms flat against the floor, seeking stability in the solid, unchanging pressure of wood and stone.
 
@@ -266,7 +270,7 @@ A beat of silence.
 
 Edrin cleared his throat. "Because she's a demon." The words came out like a confession.
 
-Rachel's stomach dropped. The word hit different than she expected—not scary movie, not hellfire and brimstone. Just... other. Definitively other.
+Rachel's stomach dropped. Not because she expected horns or hellfire—they'd clarified that already—but because the word still carried weight. Boundary walker. Someone fundamentally other. Someone who existed in spaces Rachel was only beginning to understand.
 
 "You're taking me to meet a demon," she said flatly.
 

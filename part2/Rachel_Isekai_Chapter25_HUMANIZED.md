@@ -126,6 +126,78 @@ The air changed too. Became charged, electric, like the feeling before a storm b
 
 Rachel wasn't sure how to feel about that. Protection implied safety, but it also implied debt. Obligation. Nothing was free, not even sanctuary.
 
+They'd been walking another twenty minutes when Rachel saw the figures.
+
+At first, she thought they were just more trees—the copper-bark kind that grew in this region. But trees didn't move. Didn't watch. And these were definitely watching.
+
+There were three of them, standing just off the marked path among the darker undergrowth. Tall—impossibly tall, maybe eight feet—and pale. Not pale like lack of sunlight. Pale like things that had never seen sunlight, like deep-cave creatures, like bone china lit from within.
+
+Their skin was luminous, almost translucent, showing suggestions of structure beneath—veins or roots or something in between. Hair that moved without wind, long and white and flowing like it was underwater. Faces that were beautiful in a way that made Rachel's eyes hurt, features too perfect, too symmetrical, proportions that were just slightly wrong in ways she couldn't articulate.
+
+And their eyes. Black. Completely black, no whites, no pupils, just darkness that reflected nothing.
+
+"Rachel," one of them said. Her voice—Rachel thought it was a her—sounded like wind through hollow trees. "You are new here."
+
+Rachel stopped. The others had stopped too, she realized. Edrin had gone very still. Ilyra's hand was on her knife but hadn't drawn it. Arathen had positioned himself slightly ahead of Rachel, his posture tense.
+
+"Yes," Rachel said, because ignoring them felt rude. "We're traveling to Thornhaven."
+
+"Thornhaven," another one repeated, the word stretching out too long. "So close. So far. The paths between are treacherous." They smiled, and Rachel's stomach turned. Too many teeth. Teeth that were slightly too long, too sharp, arranged in a way that was almost right but fundamentally wrong. "We could show you safer paths. Quicker paths. Paths that don't tire."
+
+"That's very kind," Rachel started, stepping forward, "but we—"
+
+Arathen's hand caught her arm, grip tight enough to hurt. "Rachel. No."
+
+The pale folk's smiles widened. All three of them now, grinning those too-wide grins with those too-many teeth. "The new one is polite," the first said. "Polite and powerful and so very lost. We could help. We want to help. Come with us, walk our paths, accept our hospitality. Just for a moment. Just to rest."
+
+Rachel felt the pull of it—not physical, but real nonetheless. The promise of easier travel, of safety, of rest. Her exhaustion responding to the offer like magnetism.
+
+"They're beautiful," she said, and her voice sounded distant to her own ears.
+
+"Rachel." Arathen's voice was sharp now, urgent. "Look at their feet."
+
+Rachel looked down. The pale folk had no feet. Their legs simply faded into nothing about six inches above the ground, dissolving into mist that sank into the earth like roots. And where that mist touched, the plants had died. Not withered. Died. Gone gray and brittle and lifeless.
+
+"We mean no harm," the pale folk said, but their voices had changed, gone hollow and echoing. "We only wish to share. To show. To teach the new walker what walks between."
+
+"Decline," Ilyra said quietly but firmly. "Politely. Now."
+
+Rachel pulled against the strange magnetism, forced her voice to work. "Thank you for your offer, but we must decline. We're expected in Thornhaven and cannot delay."
+
+The pale folk's expressions didn't change—still smiling, still showing too many teeth. But something in the air shifted. Grew colder.
+
+"Pity," they said in unison, their voices overlapping in a way that made Rachel's bones ache. "New walkers who decline our paths often regret it. Often return. Often beg."
+
+"But we are patient," the first one added. "We will wait. We always wait. And the paths between always circle back."
+
+They faded then. Not walking away. Just dissolving, like mist in morning sun, leaving behind only dead plants and the lingering scent of something sweet and rotting.
+
+Rachel's legs gave out. She sat down hard on the path, breathing fast and shallow.
+
+"What—what were those?"
+
+"Pale folk," Arathen said grimly, crouching beside her. "Forest spirits. They lure travelers off marked paths with promises of shortcuts, hospitality, rest. Anyone who accepts ends up lost. Not dead exactly. Just... lost. Walking their paths forever, serving them, becoming them eventually."
+
+"You almost accepted," Ilyra said, and her voice was shaking slightly. "Rachel, you almost went with them."
+
+"They were offering to help," Rachel said weakly. "I was being polite."
+
+"Politeness will kill you in this world," Maelin said. She'd moved to Rachel's other side, her hand finding Rachel's shoulder. "Human politeness, at least. You have to learn to refuse. Firmly. Even when it feels rude."
+
+"The shadow demon warned us," Edrin said, voice tight. "Don't accept invitations from pale folk. I thought—I thought we'd stay on the path and they'd leave us alone. I didn't think they'd approach directly."
+
+"They usually don't," Arathen said. "They must have sensed Rachel. New walker, powerful, unfamiliar with the rules. They saw an opportunity."
+
+Rachel was shaking now, the delayed fear hitting her. "I almost went. If you hadn't grabbed me—"
+
+"But I did," Arathen said firmly. "And you declined in time. You're safe."
+
+"This time," Rachel whispered. "What about next time? What about all the things I don't know, all the rules I haven't learned, all the ways this world can kill me that seem like kindness?"
+
+"That's why we're going to Sivara," Arathen said. "That's why you'll learn. That's why you're not alone."
+
+They sat there for a few more minutes, letting Rachel recover, letting the fear drain away enough that she could stand again. When they finally continued walking, they stayed even closer together, and Rachel noticed that everyone kept glancing off the marked path, checking for pale figures that might be watching.
+
 They found a campsite just beyond the final marker stone—still technically outside Thornhaven proper but close enough that the boundary was visible if Rachel concentrated. Not a physical boundary. A magical one. A line of intention that said "here begins somewhere distinct."
 
 Camp assembled itself. Fire got built. Dinner got prepared. The familiar rhythms of an evening that Rachel had started to count on. Stars began appearing overhead—wrong stars, in wrong patterns, but stars nonetheless. The two moons rose—large silver, small blue—and Rachel found herself thinking of them as her moons now instead of wrong moons.
@@ -160,9 +232,11 @@ Rachel thought about it honestly. Thought about her apartment, her job, her rela
 
 "No," she said. "I don't regret it. Which probably makes me a terrible person, but I don't."
 
-"It doesn't make you terrible," Arathen said. "It makes you honest."
+"It doesn't make you terrible." Arathen turned to face her fully, and Rachel was suddenly aware of how close they were standing. Close enough that she could see the silver threading through his dark hair in the moonlight, the way his eyes reflected the bioluminescent patterns around them. "It makes you someone who knows what she wants. Finally."
 
-They stood a while longer. The night deepened. The moons climbed higher. The forest settled into its nocturnal rhythms—creatures calling to each other in voices that were becoming familiar, plants opening or closing according to schedules Rachel didn't yet understand but was learning to recognize.
+The way he said "finally" made Rachel's pulse quicken. Made her wonder if he was talking about more than just her choice to stay in this world.
+
+They stood a while longer. The night deepened. The moons climbed higher. The forest settled into its nocturnal rhythms—creatures calling to each other in voices that were becoming familiar, plants opening or closing according to schedules Rachel didn't yet understand but was learning to recognize. And through it all, Rachel remained aware of Arathen beside her, the careful distance between them that felt more intentional than accidental.
 
 "Tomorrow we meet Sivara," Rachel said.
 

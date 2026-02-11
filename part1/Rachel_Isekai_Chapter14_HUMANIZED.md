@@ -164,11 +164,7 @@ Something in his tone made her chest tighten—not painfully, just aware. She lo
 
 Later, after the meal was finished and the bones were buried and the fire had burned down to coals, Rachel sat with her back against a tree and watched the sky darken through unfamiliar constellations.
 
-She should miss home. Should be thinking about Evan, about her apartment, about everything she'd lost.
-
-Instead, what she felt was this: satisfaction. Competence. Belonging.
-
-And beneath it all, a quiet guilt that she was starting to ignore.
+The satisfaction from the hunt lingered—not just the success, but the ease of it. The way her power had responded without hesitation, without fear. She'd helped. Actually helped. Made a real difference instead of just taking up space.
 
 "You're thinking too loud," Ilyra said from somewhere to her left.
 

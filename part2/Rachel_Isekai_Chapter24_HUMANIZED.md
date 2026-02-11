@@ -68,11 +68,11 @@ Rachel opened her mouth to say yes. Of course yes. She'd loved Evan—or thought
 
 But the word that came out was: "No."
 
-Arathen didn't react with surprise. Just nodded slowly, like she'd confirmed something he'd suspected.
+Arathen didn't react with surprise. Just nodded slowly, like she'd confirmed something he'd suspected. The firelight caught the silver in his hair, made his eyes reflect like dark water.
 
 "No," Rachel repeated, testing the word. "I don't want to work to remember him. Is that awful?"
 
-"It's honest," Arathen said. "And honesty is rarely awful, even when it's uncomfortable."
+"It's human," Arathen said quietly. His gaze held hers for a moment longer than necessary before he looked back at the fire. "People move on. Hearts change. You're allowed to let go of something that didn't fit."
 
 Rachel pulled her knees up, resting her chin on them. "I think I'm realizing I didn't love him the way I thought I did. Or the way I was supposed to. He was... convenient. Safe. Proof that I could have a normal relationship like normal people do." She paused. "But I wasn't normal. And trying to be normal made everything feel hollow."
 
@@ -100,11 +100,13 @@ And beneath that: freedom.
 
 "I'm a terrible person," she said.
 
-"You're not," Arathen said firmly. "You're someone who's finally being honest with herself. That's brave, not terrible."
+"You're not." Arathen shifted closer, just slightly, and Rachel felt the warmth of him in the cool night air. "You're someone who's finally stopped apologizing for wanting something real. That takes courage, Rachel. Not cruelty."
 
 "It doesn't feel brave," Rachel said. "It feels like I'm abandoning him. Like I'm taking the easy way out."
 
-"There's nothing easy about what you're doing," Arathen said. "Nothing easy about any of this. You're just making the choice that's true instead of the choice that looks right from the outside."
+"There's nothing easy about what you're doing." His voice had gone softer, and when Rachel looked up, she found him watching her with an intensity that made her breath catch. "Nothing easy about any of this. You're just making the choice that's true instead of the choice that looks right from the outside."
+
+Rachel couldn't look away. Couldn't pretend she didn't notice the way his attention felt different lately—more focused, more intentional. The space between them felt charged, like the air before a storm.
 
 Rachel turned that over in her mind. True versus right. They weren't the same thing, were they? Right was what you were supposed to do. True was what actually aligned with reality.
 
@@ -230,7 +232,7 @@ Rachel nodded slowly. "The power signature. It felt like... the watcher. The one
 
 Rachel pulled her blanket tighter despite the crackling power still warming her hands. "How much farther to Thornhaven?"
 
-"Two days," Arathen said. "Maybe three. Depends on whether we're tracked again, whether they try another assault."
+"One day if we push hard," Arathen said. "Maybe a day and a half if we have to be cautious. Depends on whether we're tracked again, whether they try another assault."
 
 "They will," Ilyra said flatly. "They're committed now."
 

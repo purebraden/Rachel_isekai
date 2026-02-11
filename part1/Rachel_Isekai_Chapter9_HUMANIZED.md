@@ -188,11 +188,9 @@ Arathen considered, then nodded. "Yes. And Rachel—" He met her eyes. "That was
 
 "Now we know I'm even more dangerous than we thought," Rachel said quietly.
 
-The room went silent. No one contradicted her.
+The room went silent. No one contradicted her because they couldn't. The truth of it settled heavy in Rachel's chest.
 
-Because they couldn't.
-
-The instruction settled wrong in Rachel's chest, but she nodded anyway.
+"Let's try again," Arathen said gently, breaking the tension. "Controlled. Careful."
 
 He rolled the bead.
 

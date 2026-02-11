@@ -230,7 +230,7 @@ The undergrowth itself was thick with ferns that weren't quite ferns—fronds th
 
 "Unclear," Edrin admitted. "We're still learning what rules apply to you."
 
-A farmhouse appeared set back from the road, its walls made of that same living wood Rachel had seen in Thornhaven—grown rather than built, shaped by magic into shelter. Smoke rose from a chimney that spiraled up into the canopy. In the field beside it, something that might have been cattle grazed, though they had too many legs and their heads were the wrong shape, elongated and crowned with what looked like bone ridges rather than horns.
+A farmhouse appeared set back from the road, its walls made of that same living wood Rachel had noticed in the settlement—grown rather than built, shaped by magic into shelter. Smoke rose from a chimney that spiraled up into the canopy. In the field beside it, something that might have been cattle grazed, though they had too many legs and their heads were the wrong shape, elongated and crowned with what looked like bone ridges rather than horns.
 
 A pair of travelers passed heading the opposite direction—human, or human enough, with packs like theirs and the weathered look of people who spent their lives on roads. They nodded without stopping, but Rachel caught one of them glancing at her with something that might have been recognition or might have been curiosity.
 

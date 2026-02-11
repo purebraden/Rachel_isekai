@@ -281,3 +281,7 @@ Rachel's attention drifted back to the space where the bead had hung suspended. 
 Maelin's hand rested briefly on her shoulder. "Come sit down. I'll make tea."
 
 Rachel nodded, suddenly aware of how much she wanted exactly that—to sit, to have someone care for her in small ways, to not be alone with what she'd just discovered she could do.
+
+
+---
+

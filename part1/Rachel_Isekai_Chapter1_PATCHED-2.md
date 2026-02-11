@@ -173,3 +173,7 @@ The quiet stretched. None of them moved to help her up. None of them asked her t
 Rachel pressed her scraped palms against the cold stone, feeling the broken circle beneath her, and waited.
 
 Behind her, the doorway stayed open. Waiting too.
+
+
+---
+

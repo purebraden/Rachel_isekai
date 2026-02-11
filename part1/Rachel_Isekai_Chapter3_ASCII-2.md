@@ -203,3 +203,7 @@ She didn't press.
 The room carried on around her—someone picking up a plate, the pot lid settling back into place, a chair leg scraping before being corrected. Careful movements. Ordinary ones.
 
 Rachel stayed where she was, counting time by the small motions people made when they weren't sure how to proceed.
+
+
+---
+

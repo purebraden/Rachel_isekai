@@ -305,3 +305,7 @@ Rachel closed her eyes briefly. Opened them. The world remained unchanged, but s
 "I'll never be ready," she said. "But let's go anyway."
 
 Maelin smiled at that. "That's usually how it works."
+
+
+---
+

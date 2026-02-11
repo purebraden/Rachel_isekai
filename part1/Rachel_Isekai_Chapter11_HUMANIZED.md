@@ -173,3 +173,7 @@ Maelin paused in her own packing and looked over. "You all right?"
 "No," Rachel said. "But I will be."
 
 Maelin nodded, accepting that.
+
+
+---
+

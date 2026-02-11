@@ -38,12 +38,12 @@ def get_chapter_files():
     for filename in part1_files:
         chapters.append(base_dir / "part1" / filename)
     
-    # Part 2: Chapters 16-29
-    for i in range(16, 30):
+    # Part 2: Chapters 15-28
+    for i in range(15, 29):
         chapters.append(base_dir / "part2" / f"Rachel_Isekai_Chapter{i}_HUMANIZED.md")
     
-    # Part 3: Chapters 30-43
-    for i in range(30, 44):
+    # Part 3: Chapters 29-42
+    for i in range(29, 43):
         chapters.append(base_dir / "part3" / f"Rachel_Isekai_Chapter{i}_HUMANIZED.md")
     
     return chapters
@@ -115,13 +115,12 @@ def create_epub_book(chapters, output_file):
         html_content = markdown.markdown(content)
         
         # Create chapter
-        chapter_num = i if i <= 14 else i + 1  # Account for missing chapter 15
         epub_chapter = epub.EpubHtml(
-            title=f'Chapter {chapter_num}',
-            file_name=f'chapter_{chapter_num:02d}.xhtml',
+            title=f'Chapter {i}',
+            file_name=f'chapter_{i:02d}.xhtml',
             lang='en'
         )
-        epub_chapter.content = f'<h1>Chapter {chapter_num}</h1>{html_content}'
+        epub_chapter.content = f'<h1>Chapter {i}</h1>{html_content}'
         
         # Add chapter to book
         book.add_item(epub_chapter)

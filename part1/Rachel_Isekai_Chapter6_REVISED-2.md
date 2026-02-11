@@ -450,3 +450,7 @@ She didn't wait for permission.
 
 As she moved toward the door, that persistent thought returned: Every hour here makes it harder to leave. The resonance was pulling her deeper into this world with each breath, each step, each moment of belonging. The timer was ticking, and she could feel it in her bones now—not as urgency, but as inevitability.
 
+
+
+---
+

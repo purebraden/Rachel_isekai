@@ -1,4 +1,4 @@
-## Chapter Thirty
+## Chapter Twenty-Nine
 
 Sivara's residence rearranged itself overnight.
 
@@ -197,8 +197,4 @@ But more than that—she was Rachel. Surrounded by people who loved her, learnin
 Tomorrow would bring more training. More questions. More complexity.
 
 But tonight, she was exactly where she belonged.
-
-
-
----
 

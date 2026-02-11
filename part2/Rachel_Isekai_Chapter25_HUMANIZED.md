@@ -266,3 +266,7 @@ They walked back to camp together. To the fire and the friends and the temporary
 
 Tomorrow would bring answers.
 
+
+
+---
+

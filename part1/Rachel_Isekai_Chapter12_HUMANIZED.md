@@ -349,3 +349,7 @@ Rachel looked around the impossible space—walls that shouldn't exist, light fr
 Rachel nodded and lay back, staring at the curved ceiling.
 
 Outside, the road waited. Inside, her eyes stayed open.
+
+
+---
+

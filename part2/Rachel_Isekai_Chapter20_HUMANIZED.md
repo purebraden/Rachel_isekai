@@ -100,7 +100,23 @@ Rachel processed that. "Why tell me now?"
 
 "Because you asked. Because you needed to hear it from someone who's been where you are." His expression softened. "I grew up knowing what I was. I had both parents to teach me how to navigate being neither human nor demon, how to exist in the spaces between. You didn't have that. You've been doing this alone, and you're doing it remarkably well."
 
-"I don't feel like I'm doing well," Rachel said.
+"Your mother," Rachel said carefully. "Is she... is she still alive?"
+
+"Yes." Something flickered across Arathen's face—complicated, layered. "She lives in Kethran, one of the demon territories to the south. We correspond regularly. She visits when she can, though it's complicated. Demons living openly among humans draw attention, and she prefers to avoid that."
+
+"So you still see her?"
+
+"Once or twice a year," Arathen confirmed. "More often through letters. She's the one who taught me most of what I know about demon culture, politics, territories. My father taught me how to pass as human, how to navigate human society safely. Between them, I learned to be... adaptable."
+
+Rachel heard what he wasn't saying. "But you don't quite fit in either world."
+
+"No," he admitted. "I don't. Demons see me as too human. Humans would see me as too demon, if they knew. So I exist in the middle, studying the boundaries between worlds because I am one, in a way."
+
+"That sounds lonely," Rachel said softly.
+
+"Sometimes," Arathen agreed. "Less so than it used to be." He met her eyes, and there was something warm there, something personal. "Finding people who understand the in-between spaces—that helps."
+
+"I don't feel like I'm doing well," Rachel said, returning to his earlier point but carrying the weight of their shared understanding.
 
 "That's also part of it," Arathen said, something almost like a smile crossing his face. "The uncertainty. The fear. The constant worry that you'll hurt someone. I remember all of that."
 
@@ -112,7 +128,37 @@ Rachel looked at him—really looked. The silver in his hair. The way light caug
 
 "That's why we're going to Sivara," he confirmed. "She's your kind of demon. Boundary walker. She can teach you the specific skills I can't. But I can teach you how to live as something that doesn't quite fit anywhere. That's expertise I have in abundance."
 
-"That doesn't comfort me," Rachel said.
+Rachel hesitated, then asked the question that had been sitting in the back of her mind since Chapter Nine. "The wooden bead you gave me. You said it was your daughter's."
+
+Arathen went very still. The silence stretched long enough that Rachel almost apologized for asking. Then he spoke, his voice carefully controlled.
+
+"Her name was Mira. She was... bright. Curious. Too curious, sometimes." A pause. "She wanted to study boundaries like I did. I tried to teach her to be careful. To respect the danger. But she was young, and young people think they're invincible."
+
+Rachel's chest tightened. "What happened?"
+
+"She was twenty-three. Working on a boundary stabilization project near the March with a team of researchers. There was a collapse—unexpected, catastrophic. The kind that shouldn't have happened with all the precautions they'd taken." His voice remained steady, but Rachel could hear the effort it took. "Most of the team made it out. Mira didn't. She went back to try to save someone else who was trapped."
+
+"Did she—" Rachel couldn't finish the question.
+
+"We don't know," Arathen said, and that was somehow worse than certainty. "When a boundary collapses completely, when someone is caught in that kind of unraveling... they don't die, exactly. They're just... elsewhere. Scattered across realities we can't reach. Lost between worlds." He was quiet for a moment. "That was forty-seven years ago."
+
+Rachel stared at him. Forty-seven years. She'd been assuming his daughter was recently lost, but of course—he was half-demon, with extended lifespan. Forty-seven years might feel like yesterday to him.
+
+"I'm sorry," she said, knowing it was inadequate.
+
+"So am I." Arathen's hand tightened around hers briefly. "I keep the bead because it's all I have left of her. Something solid, something real. I gave it to you because..." He paused, choosing words carefully. "Because I see her curiosity in you. Her kindness. And I thought maybe this time, I could keep someone safe. Teach them to be careful without teaching them to be afraid."
+
+Rachel felt tears pressing at her eyes. "That's why you're so careful about the boundary work. Why you watch me so closely."
+
+"Yes." Simple. Honest. "I won't lose someone else to the spaces between worlds. Not if I can help it."
+
+The weight of that settled between them—his grief, his fear, his determination. Rachel understood now why he'd been so patient with her, so insistent on safety, so careful to teach her control before power.
+
+"Thank you," she said quietly. "For telling me. For trusting me with the bead."
+
+"Thank you for asking," Arathen replied. "And for listening."
+
+"That doesn't comfort me," Rachel said, returning to their earlier thread but with new understanding of why Arathen's expertise felt so personal.
 
 "It should," he replied. "Because it means whatever you are, whoever you are at your core—you're someone who chooses caution. Who values the people around you more than your own power. That's not a small thing."
 
@@ -128,7 +174,9 @@ Rachel looked at her hands. Ordinary hands. Human-looking hands. Hands that had 
 
 "I feel like an imposter," she said. "Even now. Even knowing what I probably am. I look at Maelin and Edrin and Ilyra and you, and you're all so clearly yourselves. And I'm just—" She struggled for the word. "Hollow. Like I'm performing existence instead of living it."
 
-Arathen's hand found her shoulder. "That feeling is what happens when you spend twenty-six years pretending to be something you're not. It's going to take time to unlearn. To figure out who Rachel is when she's not trying to fit into a human-shaped space."
+Arathen's hand found her shoulder, warm even through the fabric of her shirt. Rachel became acutely aware of the contact—his palm against her shoulder blade, the steadying pressure of his touch. "That feeling is what happens when you spend twenty-six years pretending to be something you're not. It's going to take time to unlearn. To figure out who Rachel is when she's not trying to fit into a human-shaped space."
+
+His hand lingered there for a moment before falling away, and Rachel felt the absence of it like cold air rushing in.
 
 "What if I don't like who that is?"
 
@@ -156,17 +204,19 @@ Rachel found herself smiling despite everything. "You're very certain about a pe
 
 The question came out more vulnerable than she'd intended. More honest. More revealing.
 
-Arathen was quiet for a long moment, gaze searching her face in the dim light. When he spoke, his voice had changed—softer, more personal than professional.
+Arathen was quiet for a long moment, his gaze holding hers in the dim light. The firelight caught the planes of his face, the silver in his hair, the way his eyes reflected like deep water. When he spoke, his voice had changed—softer, more personal than professional.
 
-"I see someone who's been alone her entire life and is only just starting to realize she doesn't have to be anymore," he said. "Someone who's stronger than she knows and kinder than she believes. Someone who's been taught to think of herself as too much and not enough at the same time, when the truth is she's exactly who she's supposed to be." He paused. "And I see someone who's terrified that if people really knew her, they'd leave. When the reality is, we already know you. And we're still here."
+"I see someone who's been alone her entire life and is only just starting to realize she doesn't have to be anymore," he said. "Someone who's stronger than she knows and kinder than she believes. Someone who's been taught to think of herself as too much and not enough at the same time, when the truth is she's exactly who she's supposed to be." He paused, and Rachel felt the weight of his attention like a physical thing. "And I see someone who's terrified that if people really knew her, they'd leave. When the reality is, we already know you. And we're still here."
 
-Rachel's vision blurred. She blinked hard against tears she hadn't given permission to form.
+Rachel's vision blurred. She blinked hard against tears she hadn't given permission to form. When she looked up again, Arathen was still watching her with an expression that made her chest tight—something between concern and something else she wasn't ready to name.
 
 "That's a very nice speech," she managed.
 
-"It's also true," Arathen said.
+"It's also true," Arathen said quietly.
 
-They sat in silence, the space between them both comfortable and charged with something Rachel didn't have words for. Not attraction exactly—though maybe that too, she wasn't sure, couldn't parse her own feelings through the chaos of everything else. But connection. Recognition. The particular intimacy that came from being seen and choosing not to hide.
+They sat in silence, the space between them both comfortable and charged with something Rachel didn't have words for. Connection. Recognition. The particular intimacy that came from being seen and choosing not to hide. And yes—if she was being honest with herself—attraction. The kind that had been building slowly, moment by moment, conversation by conversation. The kind she hadn't let herself acknowledge because everything else felt too complicated already.
+
+But it was there. In the way she'd started noticing the silver in his hair. The way his voice affected her. The careful distance he maintained that somehow felt more intimate than closeness.
 
 "Thank you," Rachel said finally. "For not lying to me. For not pretending this is all going to be simple."
 
@@ -180,11 +230,13 @@ Rachel pulled her knees up, wrapped her arms around them, made herself smaller i
 
 "What if she doesn't want to help?" Rachel asked. "What if she sees me and decides I'm a threat, or a mistake, or—"
 
-"Rachel." Arathen's hand found hers in the dark. Just resting there, warm and solid. "One problem at a time. Right now, the problem is you're exhausted and not sleeping. Everything else can wait until tomorrow."
+"Rachel." Arathen's hand found hers in the dark, his fingers warm as they settled over her knuckles. The touch was gentle, careful—asking, not demanding. "One problem at a time. Right now, the problem is you're exhausted and not sleeping. Everything else can wait until tomorrow."
 
-His hand on hers felt significant in a way Rachel couldn't articulate. Not romantic—or not only romantic. Just... present. Real. An anchor point when everything else felt unstable.
+Rachel's breath caught at the contact. His hand on hers felt significant in a way that had nothing to do with comfort and everything to do with the careful way he'd been watching her lately. The way she'd been aware of him. Present. Real. Something more than friendship but not quite defined yet.
 
-She didn't pull away.
+She didn't pull away. Instead, she turned her hand over, letting their palms press together. His thumb brushed against the side of her hand—a small movement that sent warmth up her arm.
+
+Neither of them acknowledged what was happening. But neither of them let go.
 
 They sat like that for a while, watching the darkness, not speaking. Eventually Rachel felt her breathing even out, her body remembering how to be tired instead of wired. The fear that had been pressing against her chest eased slightly.
 

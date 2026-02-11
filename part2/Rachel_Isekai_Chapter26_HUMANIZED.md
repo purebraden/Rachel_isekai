@@ -148,7 +148,7 @@ People gathered here. Some sitting on benches carved from single pieces of wood,
 
 Normal. Except for the magic. Except for the boundaries pressing close. Except for the fact that half the children playing had features that couldn't exist in Rachel's old world.
 
-Normal for here, Rachel corrected herself. And "here" was starting to feel more real than "there" ever had.
+Normal for here, Rachel corrected herself. She was learning to recalibrate normal.
 
 They returned to the inn as the light began to fail. Both moons were rising—large silver, small blue—casting their overlapping shadows across impossible architecture. Thornhaven at night was even more beautiful than during the day, bioluminescent patterns emerging on buildings, magical lights that weren't fire or electricity but something else entirely, colors that didn't quite match Earth's palette painting everything in shades Rachel had no names for.
 
@@ -166,19 +166,21 @@ They ate dinner in the common room—stew that tasted like beef but wasn't, brea
 
 No one bothered them. No one stared. They were just travelers in a town of travelers, all of them between one place and another.
 
-After dinner, Rachel stood at the window of her room, looking out at Thornhaven settling into night. The lights. The architecture. The boundaries pressing close like attention, like possibility, like home.
+After dinner, Rachel stood at the window of her room, looking out at Thornhaven settling into night. The lights. The architecture. The boundaries pressing close like attention, like possibility.
 
 Tomorrow she'd meet Sivara.
 
-Tomorrow she'd get real answers.
+Tomorrow she'd get real answers about what she was, what that meant, how to control the power that kept expanding whether she wanted it to or not.
 
 Tomorrow everything would change.
 
 Again.
 
-But tonight—tonight she was here, in a town that felt more like home than anywhere she'd ever lived, surrounded by people who knew what she was and chose her anyway, standing at the threshold of understanding herself for maybe the first time in her life.
+Rachel pressed her palm against the cool glass, feeling the wards humming beneath its surface. Somewhere out there, Sivara was preparing to meet her. A demon powerful enough to teach her. A boundary walker who might actually understand.
 
-Tomorrow could wait.
+The fear was still there—it always was. But anticipation had joined it. Curiosity. Even a kind of excitement that felt dangerous to acknowledge.
 
-Tonight was enough.
+She was ready.
+
+Or as ready as she'd ever be.
 

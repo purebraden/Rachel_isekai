@@ -42,8 +42,8 @@ def get_chapter_files():
     for i in range(15, 29):
         chapters.append(base_dir / "part2" / f"Rachel_Isekai_Chapter{i}_HUMANIZED.md")
     
-    # Part 3: Chapters 29-42
-    for i in range(29, 43):
+    # Part 3: Chapters 29-43
+    for i in range(29, 44):
         chapters.append(base_dir / "part3" / f"Rachel_Isekai_Chapter{i}_HUMANIZED.md")
     
     return chapters

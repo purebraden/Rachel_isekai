@@ -234,15 +234,55 @@ Arathen's hand found hers in the dark—a deliberate touch, palm to palm. "That'
 
 They resumed walking, hands still linked, something fundamental shifted between them. Not resolved—Rachel wasn't ready for resolution, and Arathen wasn't pushing. But acknowledged. Named. Real.
 
-When they reached the inn, Maelin was waiting with questions. How did it go? Were they nice? Did anyone threaten you? Rachel answered them all, grateful for the distraction, for the normalcy of friend-curiosity instead of political assessment.
+They'd almost reached the inn when a figure detached from the shadows. Rachel's power flared instinctively before she recognized him.
 
-But later, lying in bed, her mind returned to Arathen. To the way he'd looked at her. To the careful admission that he cared.
+Kovan.
+
+The adjudicator stopped a respectful distance away. "Rachel. A word, if you're willing."
+
+Arathen tensed beside her, but Rachel nodded. "Of course."
+
+Kovan glanced at Arathen, then back to Rachel. "I wanted you to know—I'll be filing formal support for your territorial claim with the Council tomorrow. Vouching for your legitimacy as Theryn's heir."
+
+Rachel's breath caught. "Why?"
+
+"Because tonight you proved something I needed to see," Kovan said. "Demons respect courage more than caution. You came to that gathering exhausted, barely recovered from battle, knowing you'd be assessed and judged. You could have postponed. Any reasonable person would have. But you didn't." He paused. "That tells me you're your mother's daughter. Theryn never postponed difficult confrontations either. She faced them head-on, even when it cost her."
+
+"Thank you," Rachel managed.
+
+"Don't thank me yet," Kovan said. "My support will make your claim harder to contest, but it won't make it easy. Be ready." He nodded to them both and disappeared back into the evening.
+
+Rachel stood there, processing. Arathen was very still beside her.
+
+"He would have filed that support regardless," Arathen said quietly. But his tone suggested he didn't quite believe it.
+
+"No," Rachel said, understanding settling. "He wouldn't have. If I'd postponed, if I'd shown caution over courage, he would have seen me as weak. As someone who needed protection instead of deserving inheritance." She looked at Arathen. "You were wrong. Not just wrong about what I needed—wrong about what tonight would cost me if I didn't show up."
+
+Arathen's expression shifted—surprise, then comprehension, then something that looked like respect. "You're right. I was thinking like a protector, not like someone who understands demon politics. Kovan values boldness. Postponing would have cost you his support."
+
+"Which I now have," Rachel said. "Because I trusted my judgment over yours."
+
+"Because you knew what you needed better than I did," Arathen agreed. He drew a breath. "I'm sorry. Not just for overstepping earlier, but for being wrong about the stakes. You could have lost something crucial tonight if you'd listened to me."
+
+Rachel felt something shift between them. This wasn't him being perfect and understanding. This was him being genuinely, consequentially wrong, and having to acknowledge it.
+
+"Thank you," Rachel said. "For admitting that."
+
+They continued to the inn in silence, but it felt different now. Less like mentor and student. More like two people who'd just established that Rachel's judgment could be trusted—even when it contradicted Arathen's.
+
+When they reached the inn, Maelin was waiting with questions. How did it go? Were they nice? Did anyone threaten you? Rachel answered them all, mentioning Kovan's promise casually, not elaborating on how close she'd come to missing that opportunity.
+
+But later, lying in bed, her mind kept returning to the moment when Arathen admitted he'd been wrong. Really wrong. Wrong in a way that would have had real consequences.
+
+And he'd owned it. Without defensiveness, without minimizing. Just... admitted it.
+
+That mattered more than she could articulate.
 
 She'd spent weeks thinking of him as mentor, guide, protector.
 
-Now she was thinking of him as something else.
+Now she was thinking of him as something else. Someone who could be wrong. Who could learn. Who didn't need to be perfect to be worth trusting.
 
-Someone whose presence steadied her. Whose opinion mattered. Whose attention made her aware of herself in ways that felt both terrifying and right.
+Someone whose presence steadied her. Whose opinion mattered, even when it was wrong. Whose attention made her aware of herself in ways that felt both terrifying and right.
 
 She wasn't ready to name it. Wasn't ready to act on it.
 

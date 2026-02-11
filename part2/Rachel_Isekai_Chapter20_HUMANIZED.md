@@ -144,9 +144,9 @@ Rachel's chest tightened. "What happened?"
 
 Rachel stared at him. Forty-seven years. She'd been assuming his daughter was recently lost, but of course—he was half-demon, with extended lifespan. Forty-seven years might feel like yesterday to him.
 
-"I'm sorry," she said, knowing it was inadequate.
+Her chest tightened. No words were adequate for this.
 
-"So am I." Arathen's hand tightened around hers briefly. "I keep the bead because it's all I have left of her. Something solid, something real. I gave it to you because..." He paused, choosing words carefully. "Because I see her curiosity in you. Her kindness. And I thought maybe this time, I could keep someone safe. Teach them to be careful without teaching them to be afraid."
+"I keep the bead because it's all I have left of her," Arathen said. "Something solid, something real. I gave it to you because..." He paused, choosing words carefully. "Because I see her curiosity in you. Her kindness. And I thought maybe this time, I could keep someone safe. Teach them to be careful without teaching them to be afraid."
 
 Rachel felt tears pressing at her eyes. "That's why you're so careful about the boundary work. Why you watch me so closely."
 
@@ -154,9 +154,7 @@ Rachel felt tears pressing at her eyes. "That's why you're so careful about the 
 
 The weight of that settled between them—his grief, his fear, his determination. Rachel understood now why he'd been so patient with her, so insistent on safety, so careful to teach her control before power.
 
-"Thank you," she said quietly. "For telling me. For trusting me with the bead."
-
-"Thank you for asking," Arathen replied. "And for listening."
+She looked down at where their hands were still joined. He'd trusted her with this. With the bead, with the story, with the weight of his loss.
 
 "That doesn't comfort me," Rachel said, returning to their earlier thread but with new understanding of why Arathen's expertise felt so personal.
 
@@ -218,7 +216,7 @@ They sat in silence, the space between them both comfortable and charged with so
 
 But it was there. In the way she'd started noticing the silver in his hair. The way his voice affected her. The careful distance he maintained that somehow felt more intimate than closeness.
 
-"Thank you," Rachel said finally. "For not lying to me. For not pretending this is all going to be simple."
+She met his eyes. "You've never pretended this would be simple."
 
 "It won't be simple," Arathen agreed. "But that doesn't mean it has to be impossible."
 
@@ -272,13 +270,21 @@ But sitting here, with Arathen's hand warm against hers and the knowledge that h
 
 "Mm?"
 
-"What you said earlier. About me being exactly who I'm supposed to be." She swallowed. "Did you mean that?"
+"If I'm a demon—if that's what I really am—does that mean everything I thought about myself was wrong? My whole life, every choice I made thinking I was human, trying to be human..." She trailed off. "Was any of it real?"
 
-He was quiet for a moment. Then his hand squeezed hers, gentle and deliberate.
+He was quiet for a long moment. His hand was still warm against hers, but he didn't answer immediately. When he finally spoke, his voice was careful.
 
-"Yes," he said. "I meant it."
+"I don't know," he admitted. "That's a question only you can answer."
 
-Rachel closed her eyes and let herself believe him.
+Rachel felt something twist in her chest. She'd wanted reassurance. Easy answers. But Arathen was right—this wasn't something anyone else could resolve for her.
 
-Just for tonight, she let herself believe she might actually be enough.
+"Will I ever know?" she asked quietly. "Or will I spend the rest of my life wondering what parts of me are real and what parts were just... performing?"
+
+"I think," Arathen said slowly, "that's the question you'll be living with for a while."
+
+Rachel opened her eyes, staring out at the darkness. His hand was still in hers. She was still sitting here, still breathing, still uncertain.
+
+Maybe that was all she got for now.
+
+Just the uncertainty. And someone willing to sit in it with her.
 

@@ -52,7 +52,7 @@ Rachel processed that. "So I need a title."
 
 "So I'm just Rachel," she said.
 
-"For now." Sivara returned to her chair. "But the demon who repaired the Sethril collapse will already have informal titles circulating. The Unsealed. The Human-Raised. Theryn's Daughter, if anyone figures out that connection."
+"For now." Sivara returned to her chair. "But once word spreads about the Sethril collapse, titles will start to circulate. The Unsealed. The Human-Raised. Eventually, if the right people start asking questions..." She paused meaningfully. "Theryn's Daughter."
 
 Rachel's head snapped up. "How do you know about Theryn?"
 
@@ -182,7 +182,7 @@ But Rachel understood. He was protecting them. Protecting her. Watching for thre
 
 The afternoon faded into evening. They ate together—a meal cobbled from market finds and shared stories. Rachel told them what she'd learned about demon names and politics. Edrin shared discoveries from the library. Ilyra recounted a conversation with a guardsman that had devolved into an impromptu weapons demonstration.
 
-Normal. Comfortable. Found family in all the ways that mattered.
+Normal. Comfortable. The rhythm of people who'd chosen each other.
 
 Later, as Rachel prepared for bed, she stood at the window and looked out at Thornhaven. The town glowed with bioluminescent patterns, boundaries humming their constant presence beneath everything.
 
@@ -196,7 +196,5 @@ But more than that—she was Rachel. Surrounded by people who loved her, learnin
 
 Tomorrow would bring more training. More questions. More complexity.
 
-Tonight, that was enough.
-
-She was exactly where she belonged.
+But tonight, she was exactly where she belonged.
 

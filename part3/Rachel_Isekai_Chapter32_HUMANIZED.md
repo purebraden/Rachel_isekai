@@ -82,9 +82,9 @@ Rachel's hands were shaking. "Why tell me this if you won't teach me?"
 
 Rachel nodded slowly. The weight of that knowledge settled heavy in her chest. Another way she could hurt people. Another danger she carried inside herself.
 
-"Thank you," she said quietly. "For trusting me with that."
+She met Sivara's eyes. "I understand. I won't use it."
 
-"Don't thank me yet," Sivara said. "Just remember. No matter how desperate things get—there are always alternatives to unmaking. Even if they're harder to see in the moment."
+"Good," Sivara said. "Just remember—no matter how desperate things get, there are always alternatives to unmaking. Even if they're harder to see in the moment."
 
 After that came the strangest lesson.
 
@@ -114,7 +114,47 @@ By midday, Rachel was exhausted. Sivara finally called a halt, noting the way Ra
 
 "Rest," she said. "Your brain needs processing time. Tomorrow we work on defensive applications."
 
-Rachel walked back to the inn slowly, her head too full and too empty simultaneously. At the door, she nearly collided with Maelin and Ilyra, both dressed for exploration and looking pleased with themselves.
+"I can keep going," Rachel said immediately. "Just give me a minute."
+
+Sivara's eyes narrowed. "You've been training for six hours. You're pale, shaking, and radiating exhaustion. You need rest."
+
+"I'm fine," Rachel insisted. Something in her chest was tight, urgent. She'd heard the concern in Sivara's voice earlier—*you're advancing too quickly*—and all her old performance anxiety had reared up. What if she wasn't good enough? What if she slowed down and never caught up? What if the demons coming after her were stronger because she'd wasted time resting when she should have been training?
+
+"Rachel—"
+
+"Show me the defensive applications now," Rachel said. "Or at least the basics. I can handle it."
+
+"I don't doubt you can handle it," Sivara said carefully. "I doubt you should. Pushing through exhaustion doesn't make you stronger. It makes you sloppy. And sloppy means dangerous."
+
+But Rachel was already reaching for the boundaries around them, trying to sense defensive configurations, trying to prove she didn't need rest. She extended her awareness too far, too fast, without the careful control Sivara had been teaching her all morning.
+
+The feedback hit like a physical blow.
+
+Rachel's vision whited out. The boundaries she'd been sensing crashed back into her consciousness all at once—every thin place, every repair, every fluctuation within a hundred yards. It was too much information, no filter, no control. Her brain tried to process it all simultaneously and couldn't.
+
+She hit the ground hard, barely aware of Sivara catching her before her head struck stone.
+
+When her vision cleared, she was lying on her back, staring up at blue-green leaves. Sivara's face appeared above her, expression cold with fury.
+
+"What," Sivara said with dangerous quiet, "did I just tell you?"
+
+Rachel's mouth tasted like copper. Her head felt like someone had cracked it open. "I—I thought I could—"
+
+"You thought wrong," Sivara said flatly. "You thought you knew better than your instructor, better than someone with centuries of experience teaching demons not to destroy themselves. You thought you were the exception."
+
+Shame burned through Rachel's chest. "I'm sorry."
+
+"Sorry doesn't fix boundary feedback damage," Sivara said. "You're lucky. This time all you did was knock yourself unconscious and give yourself a splitting headache. Next time you might fragment your own sense of self trying to process too much too fast." She helped Rachel sit up with none of her usual gentleness. "You don't get to push this hard. Not yet. I understand you're scared. I understand you feel like you're behind, like you need to catch up to whatever threats are coming. But killing yourself through overtraining helps no one."
+
+Rachel pressed her palms against her eyes, fighting tears of frustration and shame. "I just wanted to prove I could do it."
+
+"Prove to who?" Sivara asked. "Me? I already know you're capable. Yourself? All you proved is that you're willing to hurt yourself to meet impossible standards. That's not strength, Rachel. That's self-destruction wearing strength's mask."
+
+Rachel didn't have an answer for that.
+
+Sivara's expression softened slightly. "Go back to the inn. Rest. Actually rest, not 'perform resting while secretly planning tomorrow's training.' Tomorrow we talk about knowing your limits before I teach you anything else."
+
+Rachel nodded miserably and stood on shaking legs. The walk back to the inn took twice as long as usual, her body protesting every step. Her head pounded with each heartbeat. At the door, she nearly collided with Maelin and Ilyra, both dressed for exploration and looking pleased with themselves.
 
 "How's training?" Maelin asked.
 
@@ -156,7 +196,7 @@ Rachel processed that. "So there are others who know who I am. Who I was."
 
 They spent the afternoon together—Rachel sharing what she'd learned about boundary reading, Edrin presenting his research, Maelin and Ilyra describing Thornhaven's social dynamics. Arathen joined them eventually, his own research adding depth to the conversation.
 
-It felt normal. Comfortable. Found family settling into patterns that had become routine.
+It felt normal. Comfortable. The easy rhythm of people who knew each other well.
 
 But underneath, Rachel felt the pressure building. The sealed past. The threats that had necessitated her suppression. The political implications of her existence.
 
@@ -186,7 +226,7 @@ She was demon. Powerful. Unprecedented.
 
 And she was going to learn to be unchallengeable.
 
-Whatever came next, she'd face it with her found family beside her, with training that made her capable, with the knowledge that she belonged exactly where she was.
+Whatever came next, she'd face it with her people beside her, with training that made her capable, with the knowledge that she belonged exactly where she was.
 
 Tomorrow would bring more lessons. More revelations. More complexity.
 

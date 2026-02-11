@@ -36,7 +36,7 @@ And some treacherous part of her didn't want to leave.
 
 "No," Rachel said, forcing the word out. "I should come in."
 
-Maelin's hand lifted, palm up. "You don't have to. If you need space—"
+Maelin's hand lifted, palm up. "If you need space—"
 
 "I don't need space." Rachel stepped forward, close enough now to see Maelin's expression clearly. "I need answers. I need to understand what I just did and why it went so wrong and—" Her voice cracked slightly. "I need to know if I'm going to hurt someone."
 
@@ -242,8 +242,8 @@ Rachel stood, legs unsteady but holding. The room didn't tilt. Nothing shattered
 
 Small victories.
 
-Rachel looked at each of them in turn. "Thank you. For not giving up on me. Or running away."
+Rachel looked at each of them in turn. They'd stayed. Through the disaster, through her losing control, through the very real possibility she could have killed them. They'd stayed.
 
-"We don't run," Ilyra said with a slight smile. "Not our style."
+"We don't run," Ilyra said with a slight smile, reading Rachel's expression. "Not our style."
 
 Rachel found herself almost smiling back.

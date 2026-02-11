@@ -66,7 +66,7 @@ Edrin's attention snapped to her immediately, and he looked almost excited. "You
 
 Arathen adjusted his pace until he walked between them, his expression thoughtful. "That's the March's edge. Most people don't notice it until they're standing right at the threshold."
 
-Rachel's unease deepened. "Should I be able to feel it from this far away?"
+Rachel's unease deepened. "I can feel it from here. That's not normal, is it?"
 
 "It means you're sensitive to the boundaries," Arathen said. "Which is useful, even if it's uncomfortable."
 
@@ -78,7 +78,7 @@ They didn't move any nearer to it. Edrin consulted the map more frequently, mutt
 
 Edrin looked up from the map, frowning. "The marked route continues right."
 
-"I know what the map says," Rachel said. "But the road to the right—it feels wrong. Unstable. Like walking on ice that's starting to thin."
+"I know," Rachel said slowly. "But something feels off about that direction." She couldn't articulate why—just a pressure in her chest, an instinctive recoil. "Like it's not... stable?"
 
 Ilyra studied the terrain in both directions. "The left looks rougher. More overgrown."
 
@@ -318,9 +318,9 @@ Rachel took a few steps inside, touching the wall to confirm it was solid. "How 
 
 Maelin smiled at that, pleased. "I'm glad you like it. You'll have your own space—there's a small room in the back that's quiet."
 
-The thoughtfulness of that—of making sure Rachel had privacy—struck her unexpectedly hard.
+The thoughtfulness of that—of making sure Rachel had privacy—struck her unexpectedly hard. They'd arranged this. Planned it. Made sure she had space.
 
-"Thank you," she said, and her voice came out softer than she'd intended. "All of you. For—" She gestured vaguely. "For not leaving me behind. For including me."
+She nodded once, the gesture more meaningful than words.
 
 "You're one of us now," Ilyra said matter-of-factly. "Where else would you be?"
 

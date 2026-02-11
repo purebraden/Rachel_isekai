@@ -48,9 +48,9 @@ Even as she spoke, the boundary pulsed again. Another twenty yards consumed. Ano
 
 "Then we run," Ilyra said. "Perpendicular to the expansion. Get out of its path—"
 
-"It's not expanding in a line," Rachel said. "It's expanding in all directions. Like a sphere. We're already inside the danger zone."
+"I don't think it's expanding in a line," Rachel said, uncertainty creeping into her voice. Her head throbbed, vision blurring at the edges from sensory overload. "It feels like—" She pressed a hand to her temple. "Like it's growing outward. All directions at once?"
 
-Arathen's face had gone very pale. He looked at his device again, then at the collapse, then at Rachel. "How do you know that?"
+Arathen's face had gone very pale. He looked at his device again, then at the collapse, then at Rachel. "That would mean we're already inside the affected area." His voice was tight. "How are you sensing that?"
 
 Rachel couldn't explain it. She just knew. Could feel the shape of the collapse in her mind, could sense its boundaries—current and projected—like reading a map written in sensation instead of images.
 
@@ -320,5 +320,5 @@ She'd proven what she was.
 
 And she'd survived.
 
-For today, that was enough.
+She closed her eyes and let sleep take her.
 

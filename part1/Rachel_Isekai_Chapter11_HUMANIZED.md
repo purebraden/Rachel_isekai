@@ -38,9 +38,7 @@ She looked down at her borrowed clothes. Even these weren't hers, and somehow th
 
 "We're terrible hosts," Maelin said suddenly, and Rachel looked up to find her approaching with a bundle of fabric. "You've been here days and we never thought—" She shook her head. "These should fit. They're practical for travel, and they're yours to keep."
 
-The emphasis on that last word made Rachel's throat tight.
-
-"Thank you," she managed.
+The emphasis on that last word made Rachel's throat tight. She nodded, not trusting her voice.
 
 Maelin knelt down beside her rather than handing the clothes from standing. "I wish we had more to offer. Some of your own things."
 
@@ -54,11 +52,9 @@ Rachel stared at it. "You're giving me your pack?"
 
 "I have another," Ilyra said. "Better one, actually. This one deserves someone who'll appreciate it."
 
-The casual generosity undid something in Rachel's chest. "I don't know what to say."
+The casual generosity undid something in Rachel's chest. She accepted the knife, feeling its weight, its balance. A gift. A tool. A declaration that they expected her to stay alive long enough to use it.
 
-"You don't have to say anything," Ilyra replied.
-
-Rachel stared at it for a moment before tucking the clothes Maelin had given her inside. The simple act of having something to put away, somewhere to put it, steadied her more than she'd expected. She folded each piece with more care than necessary, attention fixed on the ordinary task.
+Rachel tucked the clothes Maelin had given her inside the pack along with the knife. The simple act of having something to put away, somewhere to put it, steadied her more than she'd expected. She folded each piece with more care than necessary, attention fixed on the ordinary task.
 
 "Shoes," Ilyra said, looking at Rachel's feet. "Those won't last a day on the road."
 
@@ -82,15 +78,15 @@ Edrin straightened, attention immediately focused. "You're bringing that."
 
 The map spread across the table as Arathen weighted the corners. Lines emerged slowly, as if the surface needed time to remember what it was meant to show. Rachel found herself drawn closer, pulled by something she couldn't name.
 
-The symbols resolved into clarity as she looked at them—not gradually, but all at once, as if they'd been waiting for her attention specifically.
+The symbols blurred, then sharpened—not in her eyes, but somewhere behind them. She couldn't read the map the way the others did, couldn't trace routes or identify landmarks. But one line caught her attention, pulled at something in her chest.
 
 She frowned, leaning closer.
 
-"That route is broken," she said, pointing to a line that curved through the eastern section. "You'll want to avoid it."
+"Something's wrong with that route," she said, pointing to a line that curved through the eastern section. The words came before she understood why. "I don't know how I know, but you'll want to avoid it."
 
 Edrin moved beside her immediately, following her gesture. "It's marked as continuous on the map."
 
-"I know what it shows," Rachel said. "But it's wrong. The route is interrupted. Like something pulled it apart or—" She tilted her head, trying to understand what she was seeing. "Like it's trying to exist in two places at once and failing at both."
+"I know what it shows," Rachel said, uncertainty creeping in. "But it feels... broken? Interrupted?" She struggled for language. "I can't explain it. It just feels wrong."
 
 Ilyra leaned in to look where Rachel pointed. "That passes near the Near March. If it's destabilizing..." She trailed off, concern evident.
 

@@ -82,7 +82,7 @@ Maelin's hand found Rachel's, warm and solid. "That's not selfish," she said fir
 
 Rachel's vision blurred. She blinked hard against tears she hadn't given permission to form. "What if we figure out how to send me back? What if there's a way?"
 
-"Then you'll have a choice," Maelin said simply. "And you'll make whatever choice is right for you. But Rachel—" She waited until Rachel looked at her. "You don't have to choose suffering just because it's what you're used to. You're allowed to choose happiness. You're allowed to choose belonging."
+"Then you'll have a choice," Maelin said simply. "And you'll make whatever choice is right for you. But Rachel—" She waited until Rachel looked at her. "You're allowed to choose happiness. You're allowed to choose belonging. Even if it's new."
 
 "I barely know you," Rachel said, throat tight. "All of you. It's been less than two weeks. How can this feel more like home than twenty-six years of actual home?"
 
@@ -228,7 +228,7 @@ Rachel glanced at him. "Did she?"
 
 "Do you regret it?" Arathen asked. "Coming here. Everything that happened after."
 
-Rachel thought about it honestly. Thought about her apartment, her job, her relationship, her carefully constructed life that had fit wrong from the beginning. Thought about power and terror and belonging and found family and magic that responded to her like recognition.
+Rachel thought about it honestly. Thought about her apartment, her job, her relationship, her carefully constructed life that had fit wrong from the beginning. Thought about power and terror and belonging and these people who'd become her family and magic that responded to her like recognition.
 
 "No," she said. "I don't regret it. Which probably makes me a terrible person, but I don't."
 
@@ -265,16 +265,4 @@ Rachel laughed softly. "I'll try to remember that."
 They walked back to camp together. To the fire and the friends and the temporary home they'd built in the space between where they'd been and where they were going.
 
 Tomorrow would bring answers.
-
-Tonight brought peace.
-
-And Rachel, for the first time since the summoning, let herself believe that maybe—just maybe—everything was going to be okay.
-
-Not easy. Not simple. Not anything like she'd imagined her life would be.
-
-But okay.
-
-In the ways that actually mattered.
-
-In the ways that were true.
 

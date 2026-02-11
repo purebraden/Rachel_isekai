@@ -172,11 +172,7 @@ Sivara's expression softened slightly. "Because I was unprecedented once too. An
 
 Rachel settled in for what she suspected would be a very long afternoon.
 
-But she wasn't alone. Wasn't unsupported.
-
-She was found family.
-
-She was boundary walker.
+She was a boundary walker.
 
 She was unprecedented and powerful and absolutely, definitively no longer pretending to be something she wasn't.
 

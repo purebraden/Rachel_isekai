@@ -236,7 +236,7 @@ Rachel pulled her blanket tighter despite the crackling power still warming her 
 
 "They will," Ilyra said flatly. "They're committed now."
 
-Rachel looked around at her found family—all awake now, all alert, all ready to protect her from threats that came even in sleep.
+Rachel looked around at them—all awake now, all alert, all ready to protect her from threats that came even in sleep.
 
 "I'm sorry," she said. "For bringing this down on you. For—"
 

@@ -1,6 +1,6 @@
 ## Chapter Thirty-Seven
 
-Sivara summoned them to her residence at dawn. Rachel moved slowly, every step requiring conscious effort. Her boundaries were still damaged from the fragment technique she'd used against Vex's assassin—visible if you knew how to look, fraying at the edges like fabric coming apart at the seams.
+Sivara summoned them to her residence at dawn. Rachel moved slowly, every step requiring conscious effort. Her boundaries were still damaged from the spatial freeze she'd used against Vex's assassins—visible if you knew how to look, fraying at the edges like fabric coming apart at the seams. Freezing space itself, holding three demons at once while fighting—she'd overextended badly, and her personal boundaries had paid the price.
 
 Maelin noticed immediately. "Should you be moving around?"
 
@@ -30,19 +30,23 @@ They gathered around the projection. Rachel stayed seated, conserving energy for
 
 Rachel stared at the map. "He wanted her territory."
 
-"He wanted to eliminate a competitor," Sivara corrected. "In demon politics, that often means marriage, alliance, or murder. Theryn refused the first two." She paused. "And Vex attempted the third."
+"He wanted to eliminate a competitor," Sivara corrected. "In demon politics, that often means marriage, alliance, or murder. Theryn refused the first two." She paused. "I've been researching since the assassin attack—calling in favors, accessing restricted records. And I found something."
+
+"What?" Arathen asked, voice tight.
+
+"Twenty-six years ago, there was an 'incident' in Theryn's primary territory. A boundary collapse that nearly killed her. The official record called it natural, but—" Sivara's expression darkened. "The pattern matches Vex's work. Deliberate destabilization made to look accidental."
 
 The room went silent.
 
 "He tried to kill her?" Rachel asked.
 
-"Twenty-six years ago, Vex made a move against Theryn's territory. Not directly—he was too smart for that. He orchestrated a boundary collapse, made it look natural. Theryn survived, but barely. And she realized she was pregnant."
+"I believe so," Sivara said carefully. "And the timing is significant. Theryn survived, went into hiding shortly after, and then disappeared completely with an infant—you. If she discovered she was pregnant and realized Vex was targeting her..." She trailed off meaningfully.
 
-Sivara's expression was dark. "You were the heir. The legitimate claim to her territory. If Vex killed Theryn, the territory would be contested, possibly redistributed. But if he killed you both—especially the infant heir—he could claim the territory was abandoned, petition the Council for acquisition rights."
+Rachel's stomach turned. "He would have wanted me dead too. An heir complicates territorial acquisition."
 
-Rachel's stomach turned. "He tried to kill me as a baby."
+"Exactly," Sivara said. "If Vex killed Theryn, the territory would be contested. But if he eliminated both her and any potential heirs, he could claim the territory was abandoned, petition the Council for acquisition rights. Theryn must have realized the danger you represented—not to Vex specifically, but as leverage in demon politics. So she sealed you and hid you where no one would think to look."
 
-"Yes," Sivara said. "Theryn discovered his plan. She fled with you, went into hiding. And then—" She gestured at the map, where Theryn's territory faded to grey. "She disappeared. The Council assumed she'd died, maybe in another collapse. Her territory was declared contested, eventually redistributed among multiple claimants. Vex got some of it, but not all. He's been patient, acquiring pieces slowly over the years."
+She gestured at the map, where Theryn's territory faded to grey. "The Council assumed she'd died. Her territory was declared contested, eventually redistributed among multiple claimants. Vex acquired portions through legal channels over the years—patient, methodical, building his empire piece by piece."
 
 "Until I appeared," Rachel said. "Alive. Unsealed. Legitimate heir."
 
@@ -80,7 +84,7 @@ Rachel left the residence, needing air, needing space. She walked without destin
 
 Each step hurt in ways that had nothing to do with her body. Her boundaries—the fundamental definition of where she ended and the rest of reality began—were damaged. Fraying. She could feel herself bleeding into the space around her, her edges fuzzing out. It took active concentration to maintain coherence, to not simply scatter into the ambient boundary presence that filled Thornhaven.
 
-This was the cost of fragmenting another demon. The backlash Sivara had warned about. Rachel had broken someone's definition of self, and in doing so, had cracked her own.
+This was the cost of overextending. She'd frozen space itself, manipulated time, maintained control over multiple targets simultaneously while under attack. She'd pushed her abilities beyond their limits, and her personal boundaries had torn under the strain. Like overstretching a muscle, except the muscle was her fundamental definition of self.
 
 It would heal. Sivara had promised that much. But it would take days, maybe weeks. And in the meantime, Rachel was vulnerable in ways she couldn't fully articulate. Less herself. More permeable. Easier to affect, easier to manipulate, easier to hurt.
 
@@ -98,21 +102,17 @@ Arathen.
 
 He didn't speak immediately, just stood beside her, looking out at the forest's strange beauty. Blue-green leaves, spiral bark, the constant sense of worlds brushing close.
 
-"I'm sorry," Rachel said finally.
+"I keep putting you in danger," Rachel said finally.
 
-"For what?" Arathen asked.
+"You don't," Arathen countered. "Vex does. The situation does. You're just trying to survive it."
 
-"For all of this. The danger, the politics, the—" She gestured helplessly. "Everything. You signed up to mentor an accidental summons. Not fight demon lords over territorial inheritance."
+"You signed up to mentor an accidental summons," Rachel said. "Not fight demon lords over territorial inheritance."
 
 "I signed up for you," Arathen said quietly. "All of you. Including the complications."
 
-Rachel looked at him. "Why? You barely knew me."
+Rachel looked at him. "Why?"
 
-"I knew enough," Arathen said. "I saw someone terrified of their own power but choosing to learn anyway. Someone who could have demanded we send her home but instead tried to understand what was happening. Someone who—" He paused. "Someone who kept choosing other people over herself. Your first instinct is always to protect others. That's rare. Especially among demons."
-
-"It's not always good," Rachel said. "Sometimes it's just fear of being a burden."
-
-"I know," Arathen said. "But you're not a burden, Rachel. You're—" He stopped, restarted. "You're important. Not because of your power or your inheritance. Because of who you are. How you treat people. The way you've built family from strangers. The way you keep trying even when everything is terrifying."
+"Because I wanted to," Arathen said. He paused. "And because walking away was never an option."
 
 Rachel's throat tightened. "I'm not trying to be noble. I'm just trying to survive."
 
@@ -130,15 +130,23 @@ The words hung between them, raw and honest.
 
 "I don't know what to do with that," Rachel whispered.
 
-"You don't have to do anything with it," Arathen said. "I'm not asking for anything. I just needed you to know. So that if you walk into Council negotiations or face Vex or make impossible choices—you know you're not alone. You know someone cares about specifically you, not your power or inheritance or political value. Just you."
+"Nothing," Arathen said. "I'm not asking for anything. I just needed you to know. So that if you walk into Council negotiations or face Vex or make impossible choices—you know you're not alone. You know someone cares about specifically you, not your power or inheritance or political value. Just you."
 
-Rachel felt tears threatening. "I notice you too. More than I used to. The way you watch, the way you've been there for everything. I don't know what that means yet, but I'm noticing."
+Rachel felt tears threatening, her chest tight with emotions she'd been holding at bay for weeks. "When I let go of Evan," she said, voice unsteady, "I told myself I wasn't ready for this. That I needed to figure out who I was before I could be with someone. That it wouldn't be fair to drag anyone into my chaos."
 
-"That's enough," Arathen said. "For now, that's enough."
+Arathen was very still, listening.
 
-The moment stretched between them, weighted with possibility. Arathen took half a step closer. Rachel didn't step back.
+"But you've been in the chaos the whole time," Rachel continued. "You've seen me at my worst—terrified and powerful and completely lost—and you're still here. Still looking at me like—" She stopped, overwhelmed. "Like I matter. Not what I can do or who I might be descended from. Just me."
 
-His hand lifted, hesitant, and touched her face gently. Rachel leaned into it without thinking, the contact grounding her in ways nothing else had.
+"Because you do matter," Arathen said quietly. "More than I knew how to say until now."
+
+Rachel closed the distance between them, not thinking, just moving on instinct that felt more right than any decision she'd ever made. "I'm falling for you too," she said, the words tumbling out raw and honest. "I have been for weeks. Every nighttime conversation. Every moment you believed in me when I didn't believe in myself. Every time you made me feel like I was worth choosing." She looked up at him, at the way he was watching her with barely restrained emotion. "I'm terrified of what that means. Of how much it could hurt. But I'm more terrified of not saying it."
+
+Arathen's expression broke open—relief and joy and something fierce that made Rachel's breath catch. "That's not just enough," he said, voice rough. "That's everything."
+
+The moment stretched between them, weighted with possibility. Arathen took half a step closer, his hand lifting to cup her face—gentle but deliberate. Rachel leaned into the touch, her eyes closing briefly, then opening to meet his gaze.
+
+His thumb brushed her cheek. "Rachel—"
 
 "Rachel—" he started.
 
@@ -172,7 +180,7 @@ Rachel's stomach dropped. "He's using Thornhaven as leverage."
 
 "He'll try," Sivara corrected. "And we'll stop him. But Rachel—" Her expression was hard. "You don't negotiate with demons like Vex. You show strength or you die. There's no middle ground."
 
-Rachel looked at her found family—Arathen standing beside her, protective and terrified. Maelin, Ilyra, and Edrin gathered close, all of them ready to fight. Sivara, power barely contained, prepared to defend her student and her town.
+Rachel looked at them—Arathen standing beside her, protective and terrified. Maelin, Ilyra, and Edrin gathered close, all of them ready to fight. Sivara, power barely contained, prepared to defend her student and her town.
 
 And she made a choice.
 
@@ -198,7 +206,7 @@ The next hour was the most intense of Rachel's life. Sivara pushed her through c
 
 Rachel absorbed it desperately, instinct and instruction merging into something useful.
 
-When the deadline arrived, she stood at Thornhaven's boundary line with Sivara beside her, Arathen at her back, and her found family arranged around her like the warriors they'd become.
+When the deadline arrived, she stood at Thornhaven's boundary line with Sivara beside her, Arathen at her back, and her friends arranged around her like the warriors they'd become.
 
 Vex's forces approached—a dozen demons, all powerful, all ready for violence.
 

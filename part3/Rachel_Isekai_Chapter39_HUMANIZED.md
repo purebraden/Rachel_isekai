@@ -192,27 +192,9 @@ Someone who'd kissed someone and felt the universe align a little more correctly
 
 Later, alone in her room, Rachel touched her lips and smiled.
 
-Tomorrow would bring more complications. The Council summons. Vex's inevitable escalation. Political maneuvering she barely understood.
+Tomorrow would bring complications. The Council summons. Vex's inevitable escalation. Political maneuvering she barely understood.
 
 But tonight, she had this.
 
-The memory of Arathen's arms around her. The certainty that he cared about her—not her power, just her.
-
-The knowledge that whatever came next, she'd face it with found family and something that might become love.
-
-That was enough.
-
-More than enough.
-
-It was everything she'd been missing without knowing what she needed.
-
-And for the first time since arriving in this world, Rachel fell asleep smiling.
-
-Ready for whatever came next.
-
-Because she wasn't alone.
-
-She was loved.
-
-And that made all the difference.
+And she fell asleep still smiling.
 

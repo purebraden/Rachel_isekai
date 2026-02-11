@@ -16,7 +16,7 @@ Arathen leaned in the doorway, gaze fixed on nothing in particular, attention tu
 
 The silence pressed in from all sides, thick with unspoken thoughts.
 
-Rachel broke it. "The town we're heading toward," Rachel said, breaking the silence. "What should I expect?"
+Rachel broke it. "The town we're heading toward. What should I expect?"
 
 Maelin looked up, setting aside the jar she'd been examining. "Are you worried about it?"
 
@@ -134,13 +134,13 @@ He met her eyes across the dimming space, and Rachel realized he had noticed. Ha
 
 "We're afraid too," Edrin added. "Of what we've set in motion. Of whether we can help you the way you need. But we're less afraid when we're together."
 
-Arathen's voice carried weight despite its softness. "Found family is like that. You choose each other. And then you keep choosing."
+Arathen's voice carried weight despite its softness. "That's what this is. Choosing each other. And then keeping that choice."
 
 Rachel closed her eyes, letting the words settle. The light began to fade—not abruptly, but gradually, as if the space itself had decided day was finished. Around her, the others prepared for sleep. Small sounds of settling. Fabric shifting. Breath evening out.
 
-"Thank you," Rachel said into the dimming space. "For choosing me."
+They'd chosen her. All of them. When they could have walked away.
 
-"Right back at you," Ilyra replied, and something in her voice said she meant it.
+"Right back at you," Ilyra said quietly, as if reading Rachel's thoughts.
 
 Rachel lay there as the others' breathing deepened into sleep. She thought about Evan. Tried to picture his face with the clarity he deserved—the specific way his mouth pulled when he smiled, the gray T-shirt he wore on bad days.
 

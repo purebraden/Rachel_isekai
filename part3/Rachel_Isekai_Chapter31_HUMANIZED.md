@@ -1,6 +1,6 @@
 ## Chapter Thirty-One
 
-Sivara announced the gathering with characteristic bluntness. "You need to meet other demons. Controlled circumstances. My territory, my rules. They'll behave or answer to me."
+Two days after their arrival, Sivara announced the gathering with characteristic bluntness. "You need to meet other demons. Controlled circumstances. My territory, my rules. They'll behave or answer to me."
 
 Rachel's stomach tightened. "How many?"
 
@@ -22,15 +22,57 @@ Maelin noticed. She sat beside Rachel in the common room, not speaking, just pre
 
 Maelin's expression softened. "Then they hate you. And you survive it anyway. Same as you've survived everything else."
 
-The simplicity of it helped. Rachel squeezed Maelin's hand. "Thank you."
+The simplicity of it helped. Rachel squeezed Maelin's hand.
 
 "That's what family does," Maelin said.
 
-Evening arrived with its usual disregard for Rachel's readiness. She dressed in clothing Maelin had helped her acquire—local style, well-made, in dark colors that suggested competence without aggression. Arathen waited by the door, his presence steady and grounding.
+An hour before the gathering, Arathen found Rachel in their room, already dressed and visibly tense.
 
-"You don't have to come," Rachel said.
+"You don't have to do this tonight," he said without preamble.
 
-"I know," Arathen replied. "I'm coming anyway."
+Rachel looked up, surprised. "What?"
+
+"The gathering," Arathen said. "Sivara would understand if you postponed. You've only been here two days. You're still processing everything from the Council, from Vex's attack, from—" He gestured helplessly. "From all of it. No one would blame you for waiting until you're more settled."
+
+Rachel felt something cold settle in her stomach. "You think I'm not ready."
+
+"I think you're exhausted," Arathen said carefully. "I think you've been in crisis mode for months. And I think walking into a room full of powerful demons when you're running on fumes is asking for trouble."
+
+"You're trying to protect me," Rachel said.
+
+"Yes," Arathen said simply. "That's what I do."
+
+Rachel stood, facing him fully. "And what I do is decide what I can handle."
+
+Arathen went still. "Rachel—"
+
+"No," Rachel interrupted. Her voice was level but firm. "You're wrong. Not about me being exhausted—I am. But you're wrong about what I need. Postponing won't make me more ready. It'll just give me more time to spiral, more time to catastrophize, more time to convince myself I'm not capable." She stepped closer. "I need to do this. Tonight. While I'm still brave enough to walk through that door."
+
+"You could get hurt," Arathen said quietly. "Not physically. But if they reject you, if they—"
+
+"Then I'll survive it," Rachel said. "Same as I've survived everything else. But I won't survive spending my whole life letting other people decide when I'm ready." She paused. "Even you. Especially you, because I trust you enough that it would be so easy to just... let you keep me safe."
+
+Arathen's expression shifted—surprise, then understanding, then something that might have been pride. "I overstepped."
+
+"You were being protective," Rachel corrected. "But yes. You overstepped."
+
+"I'm sorry," Arathen said. "You're right. This is your choice, not mine." He drew a breath. "And for what it's worth—I think you're more ready than you realize. I was just..." He trailed off.
+
+"Scared for me?" Rachel offered.
+
+"Terrified," Arathen admitted. "But that's my problem to manage, not yours to accommodate."
+
+Rachel felt something loosen in her chest. He'd been wrong, but he owned it. That mattered more than she could articulate.
+
+"Come with me anyway?" she asked. "Not to protect me. Just to be there."
+
+"Always," Arathen said.
+
+Evening arrived with its usual disregard for Rachel's readiness. She'd already dressed in clothing Maelin had helped her acquire—local style, well-made, in dark colors that suggested competence without aggression. Arathen waited by the door, his presence steady but no longer protective. Just... present.
+
+She met his eyes. They'd just had their first real conflict. And survived it.
+
+He offered his arm. "Ready?"
 
 They walked to Sivara's residence together. The building had shifted again—now larger, with a central room designed for gathering. Through the windows, Rachel could see figures moving. Five of them, as promised. Six including Sivara.
 
@@ -180,13 +222,17 @@ They walked in silence for a while. Rachel found herself acutely aware of their 
 
 Arathen was quiet for a moment. "Because I wanted to see how they treated you. Because I wanted to be there if you needed support. Because—" He stopped walking and turned to face her. "Because I care how this goes for you. All of it. Your training, your integration, your happiness. I care about more than just your safety or your power. I care about you."
 
-Rachel's breath caught. The words hung between them, heavier than casual sentiment.
+Rachel's breath caught. The words hung between them, weighted with implications she wasn't sure she was ready to examine. Her hand was still on his arm, and she became acutely aware of the warmth of him, the way the moonlight caught the silver in his hair, the careful distance he maintained even now—close enough to matter, far enough to let her choose.
 
-She turned to face him fully. "I notice you. More than I used to. The way you watch, the way you listen. The way you've been there for every moment of this without asking for anything in return." She paused. "I don't know what that means yet. But I'm noticing."
+She turned to face him fully, their hands shifting, fingers brushing as her touch fell away. "I keep thinking," she said slowly, "about all the moments you didn't have to be there. The nighttime conversations. The training sessions. Tonight." She swallowed. "You make me feel like I'm not just a problem that needs solving. Like there's something about me—just me—worth paying attention to."
 
-Arathen's expression softened. "That's enough. For now."
+Arathen's expression shifted—surprise and something softer, more vulnerable. "Because there is," he said quietly. "Rachel, you're—" He stopped, seeming to reconsider his words. "You're not a project. You never were."
 
-They resumed walking, something shifted between them. Not resolved—Rachel wasn't ready for resolution. But acknowledged. Present. Real.
+"I'm starting to understand that," Rachel admitted. "And I'm starting to realize that when I think about the future, about where I'll go after training, about what comes next—" She paused, gathering courage. "You're in those thoughts. Not just as a friend or a guide. As something more. I don't know what that means yet. But it's there."
+
+Arathen's hand found hers in the dark—a deliberate touch, palm to palm. "That's enough," he said, voice rough with emotion. "For now, that's more than enough."
+
+They resumed walking, hands still linked, something fundamental shifted between them. Not resolved—Rachel wasn't ready for resolution, and Arathen wasn't pushing. But acknowledged. Named. Real.
 
 When they reached the inn, Maelin was waiting with questions. How did it go? Were they nice? Did anyone threaten you? Rachel answered them all, grateful for the distraction, for the normalcy of friend-curiosity instead of political assessment.
 

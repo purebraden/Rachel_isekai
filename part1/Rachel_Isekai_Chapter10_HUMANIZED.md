@@ -242,7 +242,7 @@ What did it say about her that some small, guilty part of her didn't want to go 
 
 "I don't know how to be this person," she said finally.
 
-Arathen stood too, but kept his distance. "You don't have to know yet."
+Arathen stood too, but kept his distance. "No one expects you to know yet."
 
 Rachel pressed both palms against her eyes, breathing too fast, too shallow. "I hate not understanding." What she really hated was understanding too well.
 
@@ -250,7 +250,7 @@ Rachel pressed both palms against her eyes, breathing too fast, too shallow. "I 
 
 Rachel's breath hitched. She hadn't cried yet—not through any of this—but she felt dangerously close now.
 
-Edrin's voice came soft and earnest. "We'll help you figure it out. You don't have to do this alone."
+Edrin's voice came soft and earnest. "We'll help you figure it out."
 
 Arathen's tone shifted, more formal. "I want you to meet someone. Someone who understands what it's like to exist between worlds. Someone who's built a life doing exactly that."
 

@@ -74,9 +74,13 @@ Rachel considered that. "I think I was waiting for permission. To be this. To ex
 
 "And have you?" Arathen asked. "Claimed it?"
 
-"Yes," Rachel said. Simple. Certain. "I'm demon. I'm powerful. I'm Theryn's daughter. I'm all the things I thought were wrong about me, and they're not wrong. They're just what I am."
+Rachel hesitated. "Most days, yes. Some moments—" She paused, choosing honesty. "Some moments I still wonder if I'm making a mistake. If I should be grieving my humanity more. If accepting this so easily makes me... I don't know. Wrong somehow."
 
-Arathen smiled. "Good."
+"And the rest of the time?" Arathen prompted gently.
+
+"The rest of the time I know I'm demon. Powerful. Theryn's daughter. All the things I thought were wrong about me." She met his eyes. "And they're not wrong. They're just what I am."
+
+Arathen smiled. "The doubt makes the certainty more real, not less."
 
 They sat in comfortable silence for a while. Then Rachel said, "I haven't thought about Earth in days."
 
@@ -84,13 +88,13 @@ The admission surprised her even as she spoke it.
 
 "Is that distressing?" Arathen asked carefully.
 
-"It should be," Rachel said. "But it's not. It's more like... relief. Like I finally stopped carrying something that was never mine to carry." She paused. "I tried to remember Evan's face yesterday. Really see it. And I couldn't. It's blurry. Like a photograph that's been exposed to too much light."
+"It should be," Rachel said. "But it's not. It's more like... relief. Like I finally stopped carrying something that was never mine to carry." She paused. "I can barely picture my apartment now. The specific layout, the color of the walls. My office, my commute—it's all fading. Like trying to remember a hotel room I stayed in years ago."
 
 "That's the world-integration," Arathen said. "Your consciousness is fully acclimating to this reality. Earth becomes memory, and memory fades if you don't actively maintain it."
 
-"Should I maintain it?" Rachel asked.
+"Do I want to maintain it?" Rachel asked quietly.
 
-"Do you want to?" Arathen countered.
+"Do you?" Arathen countered.
 
 Rachel thought about it honestly. "No. I don't think I do. That life—it was fine. But it was never right. I was performing constantly, trying to be human correctly, failing at it. Here—" She gestured to the room, to Thornhaven beyond the windows. "Here I'm just myself. That's enough."
 
@@ -128,7 +132,7 @@ She paused at the stairs. "Arathen?"
 
 "Yes?"
 
-"Thank you. For all of it. For seeing me. For staying."
+"You see me. Not the power, not the politics. Me."
 
 "Always," he said.
 
@@ -154,29 +158,25 @@ Tomorrow would bring more training. Edrin had promised to share new research fin
 
 Normal plans. Future-focused plans. The kind of plans people made when they expected to be somewhere long-term.
 
-Rachel smiled.
+Rachel tried to smile, but it felt hollow.
 
-She was staying. Not because she couldn't leave, but because she didn't want to.
+She was staying. Not because she couldn't leave, but because she didn't want to. This was home. These were her people.
 
-This was home.
+But a part of her—the part that had been human for twenty-six years—was dying. Had already died, maybe, without her noticing. Without her fighting for it.
 
-These were her people.
+She thought about trying to remember her apartment again. Concentrated hard, reaching for any detail. Found only that same fog. The absence where memory should be.
 
-And whatever came next—threats or politics or revelations about her mother—she'd face it with them beside her.
+It should have terrified her. Maybe it did.
 
-That was enough.
+But more than that, it felt inevitable. Like watching ice melt, knowing you can't stop it, can't preserve it, can only watch it become something else entirely.
 
-More than enough.
+Rachel Mercer—the human who'd lived in Seattle, who'd had an apartment and an office and a boyfriend named Evan—was fading.
 
-It was everything she'd been missing without knowing what she needed.
+Rachel of Theryn's line was taking her place.
 
-She climbed into bed and fell asleep quickly, dreams filled not with Earth but with Thornhaven, with boundaries and bioluminescence and the faces of people who'd become family.
+She climbed into bed, exhausted by more than just training. The dreams that came were strange, fragmented—half-remembered glimpses of a life she'd lived but could no longer quite grasp, mixed with the vivid reality of boundaries and bioluminescence and faces that felt more real than anything Earth had ever given her.
 
-And for the first time in her life, Rachel Mercer slept without that persistent feeling that something was wrong.
+When she woke in the morning, she couldn't remember which parts had been memory and which had been dream.
 
-Because nothing was wrong.
-
-Finally.
-
-Everything was exactly right.
+And that frightened her more than she could say.
 

@@ -68,7 +68,7 @@ Which meant she couldn't fight.
 
 "No," Maelin agreed. "But we're family. And family doesn't let you walk into a demon war alone."
 
-Rachel looked at them—her found family, ready to fight a battle they might not survive because she mattered to them.
+Rachel looked at them—her people, ready to fight a battle they might not survive because she mattered to them.
 
 "Sivara—" Rachel started.
 
@@ -212,27 +212,27 @@ They'd survived.
 
 But survival wasn't victory.
 
-Vex was still out there. Still determined to eliminate her.
+Vex was still out there. Still determined to eliminate her. And he'd seen exactly what she could do—seen her spatial freeze, seen her limits, seen how she nearly killed herself using it.
 
-And the Council summons was coming.
+He had information now. And he'd use it.
 
-Rachel had three weeks to figure out how to navigate demon politics without losing herself.
+"Rachel," Arathen said quietly. "That message Vex mentioned. About Theryn's baby. He said 'they'll' listen to him now. Who are 'they'?"
 
-Three weeks to decide what kind of demon she wanted to be.
+Rachel's exhaustion made thinking difficult, but the question cut through the fog. "I don't know."
 
-Three weeks to prepare for a confrontation that might determine the rest of her life.
+"Neither do I," Arathen said. "And that worries me more than Vex himself."
 
-For tonight, though, she just needed to not fall down.
+Rachel felt cold despite the afternoon warmth. Vex had allies. Had a network. Had been trying to reach someone who would care about Theryn's missing child.
 
-Arathen's arm around her was the only thing keeping her upright.
+And now he knew where Rachel was. What she could do. How to hurt her.
 
-That, and the knowledge that her found family had fought beside her.
+The Council summons was coming in three weeks.
 
-That they'd survived together.
+But Vex might not wait that long.
 
-That whatever came next, she wouldn't face it alone.
+For tonight, she just needed to not fall down. Arathen's arm around her was the only thing keeping her upright.
 
-That would have to be enough.
+Tomorrow, they'd have to figure out how to prepare for an enemy who now knew exactly how to kill her.
 
-For now.
+If they had a tomorrow.
 

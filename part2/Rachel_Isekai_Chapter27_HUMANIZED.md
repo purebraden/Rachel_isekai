@@ -66,9 +66,9 @@ Then they were gone—not vanishing like the shadow demon had, just turning and 
 
 "Well," Ilyra said. "This is it."
 
-"This is it," Arathen agreed. He looked at Rachel. "You don't have to do this alone. We can all come in, or just some of us, or—"
+"This is it," Arathen agreed. He looked at Rachel. "Do you want us to come in with you?"
 
-"You should come," Rachel interrupted. "All of you. I need..." She struggled for words. "I need witnesses. People who know me as human me and demon me. People who can help me understand whatever she tells me."
+"Yes," Rachel said immediately. "All of you. I need..." She struggled for words. "I need witnesses. People who know me as human me and demon me. People who can help me understand whatever she tells me."
 
 "Then we come," Maelin said firmly.
 
@@ -138,7 +138,7 @@ Sivara resumed pacing. "Boundary walkers are products of specific conditions. Th
 
 "Like what?" Rachel asked.
 
-"I don't know," Sivara admitted. "That's the problem. You're unprecedented. A boundary walker who emerged in a world that shouldn't create them." She looked at Rachel with an expression Rachel couldn't read. "You said you were adopted?"
+"I don't know," Sivara admitted. "That's the problem. You're unique—a boundary walker who emerged in a world that shouldn't create them." She looked at Rachel with an expression Rachel couldn't read. "You said you were adopted?"
 
 "Yes," Rachel confirmed.
 
@@ -166,7 +166,7 @@ The distinction mattered. Abandoned versus saved. Rejected versus protected.
 
 Rachel didn't know which hurt more.
 
-"I need to think," Sivara said. She looked at Rachel with those dimensional eyes. "This is unprecedented. I need to consult records, reach out to other walkers, try to find if there are any similar cases." She paused. "But Rachel—you are one of us. That's not in question. You're a boundary walker. However you came to be, whatever circumstances created you, you're absolutely, definitively what you seem to be."
+"I need to think," Sivara said. She looked at Rachel with those dimensional eyes. "I've never encountered anything like this. I need to consult records, reach out to other walkers, try to find if there are any similar cases." She paused. "But Rachel—you are one of us. That's not in question. You're a boundary walker. However you came to be, whatever circumstances created you, you're absolutely, definitively what you seem to be."
 
 "That's something," Rachel managed.
 
@@ -186,13 +186,43 @@ The explanation made terrible, perfect sense.
 
 "So what now?" Rachel asked. "Do I just... keep being what I am? Keep doing boundary work? Hope I don't accidentally destroy something?"
 
-"Now," Sivara said, "you learn. Properly. With instruction. I can teach you to use your abilities safely, to understand the theory behind the practice, to navigate demon society without making fatal mistakes." She paused. "If you want me to."
+Sivara's expression sharpened. "Before we discuss that—has anyone come looking for you? Other demons? Anyone showing unusual interest since the collapse?"
+
+Rachel exchanged a glance with Arathen. "Yes," she said. "Two demons visited us during our travel here. One was a shadow demon—told us we were two days from Thornhaven, warned us about pale folk. The other..." She struggled to remember specifics. "Taller, opalescent skin, white eyes. Called themselves a scholar. Said they felt the collapse repair from fifty miles away and followed the signature to find me."
+
+Sivara's composure cracked slightly. "And what did this scholar say?"
+
+"That word would spread," Rachel said. "That what I did was too large to hide. That others would come with questions—some friendly, some not." She hesitated. "They called me 'Rachel, daughter of Theryn.'"
+
+The room went absolutely silent.
+
+Sivara stood abruptly. "They used that specific phrasing? Daughter of Theryn?"
+
+"Yes," Rachel confirmed. "Why? Does that mean something?"
+
+"It means someone already knows your lineage," Sivara said, voice tight. "Theryn wasn't just any boundary walker. She held significant territory, had political power, enemies who would have been very interested in an heir." She began pacing, agitated in a way she hadn't been before. "If demons are already circulating that title for you—Rachel, this changes things. Significantly."
+
+"There's more," Arathen said quietly. "Two nights ago, Rachel was attacked in her sleep. Dream tracking. Someone tried to access her through boundaries while she was vulnerable."
+
+Sivara's head snapped toward Rachel. "Show me your boundaries."
+
+Rachel, uncertain what she meant, closed her eyes and reached for that sense of self she'd been learning to feel. The edges of her being, the definition between her and not-her.
+
+"You have residual damage," Sivara said, her voice sharp with concern. "Hairline fractures in your personal boundaries. Someone tried to force their way into your mind and you repelled them, but not without cost." Her eyes narrowed. "Who did this?"
+
+"We think it was Vex," Edrin said. "A demon who's been... interested in Rachel since before we left the March."
+
+"Vex," Sivara repeated, and there was recognition—and anger—in her voice. "Of course. He knew Theryn. Had disputes with her over territory. Tried to claim her holdings when she disappeared." She looked at Rachel with new urgency. "This isn't just curiosity, Rachel. This is active pursuit. If Vex is dream tracking you, if other demons are spreading your lineage—you're not safe out in the open. Not until you're trained enough to defend yourself properly."
+
+Rachel's chest tightened. "So what do I do?"
+
+"Now," Sivara said firmly, "you learn. Properly. With instruction. And you stay here, in Thornhaven, under my protection. The wards on this residence are strong enough to keep even Vex out." She paused. "I can teach you to use your abilities safely, to understand the theory behind the practice, to navigate demon society without making fatal mistakes. If you want me to."
 
 "I do," Rachel said immediately. "I want to understand. To be safe. To not hurt anyone."
 
 Sivara smiled—the first genuine smile Rachel had seen from her. "Then we'll begin. Not today—you need time to process this. But soon." She looked at the others. "You're welcome to stay in Thornhaven as long as you need. You'll be safe here. Protected."
 
-"Thank you," Arathen said.
+Arathen nodded acknowledgment.
 
 They stood to leave. Rachel's legs felt unsteady, her mind racing with revelations and implications and questions that only led to more questions.
 
@@ -202,7 +232,7 @@ At the door, Sivara caught Rachel's arm gently.
 
 Rachel nodded, throat too tight for words.
 
-They left Sivara's residence and walked back through Thornhaven's morning streets. No one spoke. What was there to say? Everything and nothing. Rachel was a demon. A boundary walker. Powerful. Unprecedented. Possibly not even from the world she'd been raised in.
+They left Sivara's residence and walked back through Thornhaven's morning streets. No one spoke. What was there to say? Everything and nothing. Rachel was a demon. A boundary walker. Powerful. Possibly not even from the world she'd been raised in.
 
 Everything she'd suspected confirmed.
 
@@ -222,11 +252,11 @@ Back at the inn, they gathered in one room and sat in shell-shocked silence unti
 
 "It can be both," Maelin said.
 
-Rachel looked at her friends. At the people who'd heard her story, heard Sivara's assessment, heard that Rachel was impossible and unprecedented and powerful in ways that concerned even experienced boundary walkers.
+Rachel looked at her friends. At the people who'd heard her story, heard Sivara's assessment, heard that Rachel was something no one had quite seen before—powerful in ways that concerned even experienced boundary walkers.
 
 And were still here. Still sitting with her. Still choosing her.
 
-"Thank you," Rachel said. "For staying. For not being afraid."
+"You're still here," Rachel said quietly.
 
 "We are afraid," Arathen said. "But we're staying anyway. There's a difference."
 
@@ -240,7 +270,7 @@ Rachel was a demon.
 
 A boundary walker who shouldn't exist.
 
-Powerful and unprecedented and absolutely, definitively no longer human.
+Powerful and singular and absolutely, definitively no longer human.
 
 It should have felt like an ending.
 
@@ -252,7 +282,7 @@ After twenty-six years of wrong.
 
 Finally, she knew what right looked like.
 
-And if "right" was impossible and unprecedented and concerning to experienced demons—
+And if "right" was impossible and unheard of and concerning to experienced demons—
 
 Well.
 

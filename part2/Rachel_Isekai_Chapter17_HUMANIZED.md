@@ -90,8 +90,6 @@ Edrin nodded slowly. "I understand that. The books. That's my version. When thin
 
 Ilyra poked the fire with a stick, sending sparks up into the dark. "Mine's sharpening blades. Even when they don't need it. Especially when they don't need it."
 
-The acknowledgments settled something in Rachel's chest. They'd each found their own way to manage the unmanageable. She wasn't alone in that need.
-
 Maelin shifted, drawing her knees up. "Tell us a story, Arathen. One of the old ones."
 
 "Which kind?" he asked, though something in his tone suggested he already knew.

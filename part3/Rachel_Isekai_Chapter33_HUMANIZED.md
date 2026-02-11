@@ -80,41 +80,77 @@ Rachel nodded, but she knew she wouldn't rest. Not yet.
 
 She walked back to the inn alone, mind churning through what she'd seen. Her mother crying. The infant who'd been herself, already aware, already powerful enough to be a threat. The promise to return that had never been fulfilled.
 
+It was too much. Too raw. Rachel couldn't—she couldn't process this with other people right now. Couldn't sit in a room full of concerned faces and explain what she'd just experienced. Couldn't let anyone see how completely this had shattered her.
+
 Arathen was in the common room when Rachel entered. He took one look at her face and stood immediately.
 
 "What happened?"
 
-"I need to talk to you," Rachel said. "Privately."
+"Training was intense," Rachel said, the lie coming easily. Too easily. "I'm exhausted. I need to lie down."
 
-He didn't ask questions, just led her upstairs to an empty room—one they sometimes used for private discussions when the common areas were too crowded. He closed the door and waited.
+She saw doubt flicker across his expression. He knew her well enough to read when something was wrong. But Rachel was already moving past him, heading for the stairs.
 
-Rachel told him everything. The boundary echo, the memory, Theryn's tears and promises. The unknown demon who'd helped. The certainty that her mother had died or been prevented from returning.
+"Rachel—"
 
-Arathen listened without interrupting. When Rachel finished, he was quiet for a long moment.
+"I'm fine," she said over her shoulder. "Just tired. I'll see you at dinner."
 
-"That's a lot," he said finally.
+She made it to her room before the tears came. Closed the door, locked it, and slid down to the floor with her back against the wood. The grief hit her in waves—for a mother she'd never known, for promises that had been broken by death or circumstance, for the infant she'd been who'd already been too aware of what she was losing.
 
-"I know."
+A knock on the door an hour later. Arathen's voice, careful. "Rachel? Can I come in?"
 
-"Are you alright?"
+"I need some space," Rachel said. "Please."
 
-Rachel considered. "I don't know. Part of me is devastated. Part of me is relieved to know she loved me, that sealing me was protection not rejection. Part of me is angry that she died before I could know her." She pressed her hands together. "I'm all of it at once and none of it makes sense."
+Silence. Then: "Alright. I'm here if you need me."
 
-Arathen moved closer. "That's grief. For something you didn't know you'd lost. It doesn't have to make sense to be real."
+She heard his footsteps retreat.
 
-Rachel found herself moving toward him. He opened his arms and she stepped into them, letting him hold her while she shook with delayed reaction. His heartbeat was steady against her ear. His arms were solid, anchoring her when everything else felt unstable.
+Good. This was better. She could process this alone. She didn't need to burden everyone else with her grief. They had their own concerns. She was fine. She'd always been fine on her own.
 
-"Why did I tell you first?" Rachel asked into his chest. "I should have told Sivara more. Or waited to tell everyone together."
+Except she wasn't.
 
-"Because you trust me," Arathen said simply. "And because you needed someone who would let you feel it before analyzing it."
+By evening, Rachel had spiraled into a place she recognized from her old life—that numb, disconnected state where she performed normalcy but felt nothing real. She went down to dinner, smiled at the right times, deflected questions about her day. Everyone could tell something was off, but Rachel kept them at arm's length with practiced ease.
+
+She was so good at this. Twenty-six years of practice.
+
+It was Maelin who finally called her on it.
+
+Three days later, after Rachel had successfully avoided every attempt at genuine conversation, Maelin cornered her in the courtyard.
+
+"Okay," Maelin said. "I've been patient. We've all been patient. But this stops now."
+
+Rachel looked up from the boundary patterns she'd been pretending to study. "I don't know what you mean."
+
+"You're doing that thing," Maelin said flatly. "That thing where you shut down and retreat inside yourself and perform being okay instead of actually being okay. And before you try to deflect—I've seen you do it. The first few weeks you were with us, before you learned to trust us. You're doing it again."
+
+Rachel felt her throat tighten. "I'm fine."
+
+"You're lying," Maelin said. "To us and to yourself. Something happened during training with Sivara. Something big enough that you've spent three days avoiding everyone who cares about you. And I know you're good at isolating yourself, but that's not who you are anymore. Or it doesn't have to be."
+
+"I can handle this alone," Rachel said.
+
+"But you don't have to," Maelin said. "That's the whole point. You spent twenty-six years handling everything alone because you had no choice. Now you have a choice. And you're choosing the old pattern. The survival pattern. The pattern that kept you safe but miserable."
+
+Rachel felt something crack in her chest. "I saw my mother."
+
+Maelin went still. "What?"
+
+"In a boundary echo. During training. I saw Theryn sealing me as an infant. I heard her voice. She loved me. She was crying. She promised to come back for me if she survived." Rachel's voice broke. "She never did. Which means she's dead. Or couldn't fulfill that promise. And I'll never know her. I'll never—" The words dissolved into tears she'd been holding back for three days.
+
+Maelin pulled her into a fierce hug. "Why didn't you tell us? Why did you try to carry this alone?"
+
+"Because I don't know how to not be alone with this stuff," Rachel admitted. "Because I'm so used to processing grief and fear by myself that it didn't even occur to me I had another option. Because I forgot, for three days, that I don't have to do this anymore."
+
+"You don't," Maelin said firmly. "Come on. We're going to find the others. And you're going to tell them what happened. And then we're going to sit with you while you feel it. Because that's what family does."
+
+Rachel let herself be led back inside, still crying, but no longer alone.
 
 That was true. Sivara would have questions—practical, necessary questions about the memory's details, about what it meant for Rachel's future. The others would have offered comfort, but also opinions, reactions, their own processing.
 
 Arathen just held her. Let her feel what she felt without requiring it to be organized or useful.
 
-"Thank you," she whispered.
+She pressed closer, needing the solid reality of him.
 
-His arms tightened briefly. "Always."
+His arms tightened. "Always."
 
 They stood like that for a while. Eventually Rachel's breathing evened out, the shaking subsided. She didn't pull away though. Didn't want to.
 
@@ -186,7 +222,7 @@ She touched the window glass, feeling the slight resistance of the boundary betw
 
 But Rachel had learned that every boundary held history. Every separation contained echoes.
 
-She would find her mother's story. Carefully. Safely. With her found family supporting her.
+She would find her mother's story. Carefully. Safely. With her people supporting her.
 
 But she would find it.
 

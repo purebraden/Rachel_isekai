@@ -94,7 +94,7 @@ He considered that. A small crease appeared between his brows. "Stay clear of th
 
 Rachel's jaw loosened slightly. The impulse to argue faded. He wasn't trying to control her. He was trying to keep her safe. The distinction mattered more than she'd expected.
 
-"All right," she said. "Thank you."
+"All right," she said.
 
 His expression softened just slightly. "Of course."
 

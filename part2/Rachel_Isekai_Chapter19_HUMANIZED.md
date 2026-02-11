@@ -206,47 +206,81 @@ Rachel sat down hard. Her legs had given out without her permission. "I don't wa
 
 "I know," Maelin said, moving close. "But you have it anyway."
 
-Then Rachel felt it again. The same presence she'd sensed days ago during practice—watching, observing through boundaries. But closer now. More immediate.
+They practiced for another hour before Arathen finally called a halt. Rachel's head ached from the concentration, but she'd managed to stop and restart two more living things—a beetle and another bird—without Arathen's help. Progress, even if it terrified her.
 
-She stood abruptly, power flaring instinctively.
+"I need a minute," Rachel said, standing. "Alone. Just to... process."
 
-"Someone's here," she said.
+Arathen looked like he wanted to protest, but Maelin touched his arm. "Give her space. We're in a clearing, in daylight. She's safe."
 
-Arathen reacted immediately, his own awareness extending. "Where?"
+Rachel walked to the edge of the clearing, beyond earshot but still visible. She could feel their presence behind her—protective but not smothering. It helped, knowing they were there. But she needed this moment to herself. To think about what she'd just done. What it meant.
 
-"There," Rachel pointed toward the tree line. "Not physically. Through boundary space. But closer than before. They're—"
+Then she felt it. The same presence she'd sensed days ago during practice—watching, observing through boundaries. But closer now. Much closer.
 
-A figure materialized at the clearing's edge.
+Rachel's power flared instinctively. She looked back toward the others, but they were talking among themselves, unaware. Should she call out? Alert them?
+
+Before she could decide, a figure materialized in front of her.
 
 Not fully present. Half-real, existing partially in boundary space, partially in their physical reality. A demon—tall, gaunt, with features that seemed to shift and blur as Rachel looked at them. A scout. An observer who'd perfected the art of remote presence.
 
 "Rachel, daughter of Theryn," the figure said. Their voice resonated strangely, like it was traveling through water. "You've become quite interesting."
 
-Ilyra had a knife out instantly. Arathen moved between Rachel and the scout.
+Rachel's throat went dry. She was alone. Completely alone. Her companions were fifty yards away, unaware, and this thing—this demon—was between her and them.
 
-"Who sent you?" Arathen demanded.
+Her first instinct was to scream. To run. To call for help.
 
-The figure smiled—or something that might have been a smile. "Information brokers don't reveal clients. But your little heir should know—she's not unknown anymore. Not unnoticed. The unprecedented collapse repair. The boundary predator defeat. The power that draws watchers like moths to flame." The scout's attention fixed on Rachel. "You're a beacon, little heir. And beacons attract attention."
+But something stopped her. Some stubborn part of her that had just spent an hour learning to stop living things mid-motion. Some part that was tired of running, tired of being protected, tired of being afraid.
 
-"Are you a threat?" Rachel asked, finding her voice.
+"Who are you?" Rachel asked, keeping her voice level despite the fear.
 
-"I'm an observer," the scout said. "Others will be threats. I'm just here to document." They tilted their head. "Though I'll give you one warning, free of charge: the demons who know about you now aren't all friendly. Some see opportunity. Others see threat. A few see both." The scout's form began fading. "Be careful, unprecedented one. The March remembers those who change it. Not always kindly."
+The figure smiled—or something that might have been a smile. "An information broker. An observer. Someone who documents... interesting developments. And you, little heir, are the most interesting development in decades."
+
+"The watcher," Rachel said, pieces clicking together. "You've been following us. Watching me."
+
+"Someone has to document the unprecedented," the scout said. "The boundary collapse repair. The predator defeat. The power that treats time like a suggestion rather than a law." They tilted their head, studying her. "You're a beacon, little heir. And beacons attract attention."
+
+Rachel felt her power humming beneath her skin, ready to be called. Could she stop this thing? It wasn't fully corporeal. Could her abilities even affect something existing partially in boundary space?
+
+"Are you a threat?" Rachel asked, meeting the scout's eyes directly.
+
+The scout's expression shifted to something like respect. "Asking the right questions. No. I'm an observer, not an actor. Others will be threats. But I'm just here to document." They paused. "Though I'll give you one warning, free of charge: the demons who know about you now aren't all friendly. Some see opportunity. Others see threat. A few see both."
+
+"Who sent you?" Rachel demanded.
+
+"Information brokers don't reveal clients," the scout said. "But you should know—you're not unknown anymore. Not unnoticed. Word has spread. And when I sell what I've learned about you..." They let the implication hang.
+
+Rachel's heart hammered, but she kept her voice steady. "If you're just an observer, observe this: I have powerful allies. I'm learning fast. And whoever buys your information should know I won't be an easy target."
+
+The scout's smile widened. "There's the spine. Good. You'll need it." Their form began fading. "Be careful, unprecedented one. The March remembers those who change it. Not always kindly."
 
 They vanished completely, presence withdrawing through boundaries Rachel could feel closing behind them.
 
-"What the hell was that?" Maelin asked.
+Rachel stood there for a long moment, shaking, before her legs finally carried her back to the others. They looked up as she approached, and whatever expression was on her face made Arathen stand immediately.
 
-"A scout demon," Arathen said grimly. "They spy, they document, they sell information to the highest bidder. If they're tracking Rachel..." He looked at her with worry. "Word has spread. About what you are. What you can do."
+"What happened?"
 
-"The watcher from before," Rachel said, realization dawning. "It was them. They've been following us. Documenting."
+Rachel told them everything. The scout demon, the warning, the confirmation that she was being watched and documented. That information was being sold.
+
+"Why didn't you call for us?" Arathen asked, something between worry and reproach in his voice.
+
+"Because I needed to know if I could handle it," Rachel said honestly. "If I could face something like that alone. And I did. I was terrified, but I handled it."
+
+Maelin looked between them. "What did it say exactly?"
+
+Rachel repeated the warning about demons knowing about her now, about how some would see opportunity or threat.
+
+"A scout demon," Arathen said grimly. "They spy, they document, they sell information to the highest bidder. If they've been tracking you, gathering evidence of what you can do..." He looked at her with worry. "Word has spread. About what you are. What you can do."
 
 "And now they have enough information to sell," Ilyra said. "Which means whoever's interested in Rachel will know exactly where she is, what she can do, and how vulnerable she is."
 
 "We need to reach Thornhaven faster," Arathen said. "Get somewhere with established protections. Before whoever buys that information decides to act on it."
 
-Rachel felt cold despite the afternoon warmth. She wasn't just being watched anymore.
+Rachel felt cold despite the afternoon warmth, but also something else. A strange, frightening certainty. She'd faced the scout demon alone. She'd held her ground. She'd made it clear she wasn't helpless.
 
-She was being hunted.
+Maybe it hadn't changed anything. But it had changed her.
+
+She wasn't just being watched anymore. She was being hunted.
+
+But she'd looked her watcher in the eye and hadn't backed down.
 
 And the hunters now had all the information they needed.
 

@@ -190,9 +190,7 @@ Rachel let that sink in. Being herself. Her actual self. Not the version she'd c
 
 "You have time," Arathen said. "We'll make sure of it."
 
-The promise in his voice made Rachel's chest tighten. Not just him—all of them. Her found family who'd seen her at her most impossible and hadn't run. Who'd watched her reweave reality and then covered her with blankets and let her sleep.
-
-"Thank you," she said. "For not being afraid of me."
+The promise in his voice made Rachel's chest tighten. Not just him—all of them. Her people who'd seen her at her most impossible and hadn't run. Who'd watched her reweave reality and then covered her with blankets and let her sleep.
 
 "We are afraid of you," Arathen said with a slight smile. "We're just more committed to you than we are afraid. There's a difference."
 

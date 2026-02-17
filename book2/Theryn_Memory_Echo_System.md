@@ -431,3 +431,4 @@ Rachel forgives Theryn for sealing her, understands sacrifice
 
 This system gives Rachel deep emotional connection to Theryn while maintaining mystery, provides character motivation, and sets up Book 3's family reunion quest.
 
+

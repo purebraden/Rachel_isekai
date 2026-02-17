@@ -605,3 +605,4 @@ Thornhaven feels like a backdrop rather than a living community with competing i
 
 This ensures Book 2 feels like a living world with Rachel as protagonist but not as the center of everyone's universe.
 
+

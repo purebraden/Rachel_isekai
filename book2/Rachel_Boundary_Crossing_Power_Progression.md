@@ -391,3 +391,4 @@ He followed.
 
 This power progression makes Rachel's final crossing EARNED and ACTIVE, not passive or accidental.
 
+

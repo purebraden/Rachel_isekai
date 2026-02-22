@@ -1,281 +1,179 @@
 # Chapter 33 — Faultline Sleep
 
-Rachel did not mean to fall asleep sitting up.
+Rachel did not plan to sleep in the chair.
 
-She had planned to review Edrin's notes, then walk the perimeter once
-before midnight, then maybe pretend rest counted if she closed one eye at
-a time.
+She meant to finish Edrin's notes, then walk the perimeter once before
+midnight, then decide if she could manage a few hours in bed without
+waking at every shift in wind. She made it as far as loosening one boot.
+The map slid from her lap. Darkness came down fast.
 
-Instead she woke into dream-space with her boots still on.
+When she opened her eyes again, she was standing in the square.
 
-The square stretched around her in perfect Thornhaven detail and perfect
-wrongness. Lanterns burned without flame movement. The fountain poured
-water that never reached the basin. Every house stood occupied by silence.
+Everything in it was exactly where it should have been and wrong in ways
+that made her skin crawl. Lanterns burned with steady light but no flame
+movement. Fountain water poured and never reached the basin. Houses held
+their shapes like stage props waiting for actors who had gone home.
 
-No footsteps.
+She turned slowly before he spoke, because she could already feel him.
 
-No voices.
+Vex stood by the chalk table from the demonstration, one hand resting on
+the edge as if he'd been waiting there a long time and was in no hurry to
+leave.
 
-No dogs.
+"You keep arriving when I'm tired," Rachel said.
 
-The stillness felt arranged.
+"You keep being tired," he replied.
 
-"You are getting predictable," Vex said from behind her.
+His voice was calm, almost conversational. It always was when he was most
+dangerous.
 
-She turned.
+"Your town is frightened tonight."
 
-He stood by the chalk table from the Council demonstration, one hand on
-its edge, expression almost amused. Dark coat, pale eyes, the same
-controlled posture from earlier intrusions, but tension sat underneath it
-now like a blade under cloth.
+"You don't speak for my town."
 
-"You arrive when I'm tired," Rachel said.
+The corner of his mouth moved, not a smile. "It speaks loudly enough."
 
-"You are almost always tired."
+Shadows at the edges of the square thickened into figures. Faces she knew
+resolved and blurred, as if the dream couldn't decide how much detail to
+spend. A mother drew a child behind her. Caelen stood pale with his arm
+bound. Rethan signed something unseen while looking at Rachel as if she
+were a problem to be solved and shelved.
 
-He stepped lightly over a chalk line that wasn't there a moment ago.
+Then Arathen stepped out of the dark.
 
-"Your town tastes of fear tonight."
+Rachel knew it wasn't him before the figure opened its mouth.
 
-Rachel kept her breathing even.
+"You keep saying you'll stay," false Arathen said. "What happens when the
+town breaks around you anyway?"
 
-"You don't get to speak for my town."
+Rachel held his gaze and felt her pulse settle instead of spike.
 
-Vex's smile thinned.
-
-"Your town speaks loudly enough."
-
-The square shifted.
-
-Shadows filled with figures.
-
-Not full people.
-
-Impressions of people she knew: townsfolk at threshold distance, faces
-half-lit, attention pointed at her with caution sharpened into blame.
-
-She saw Caelen's bound arm.
-
-Saw a mother pulling a child back.
-
-Saw Rethan signing decrees with her name turned into policy language.
-
-Then Arathen stepped out of shadow.
-
-Not Arathen.
-
-A perfect near-copy with the wrong eyes.
-
-"You keep saying you'll stay," false Arathen said. "But everything bends
-around you now. What happens when we break?"
-
-Rachel's stomach dropped and steadied.
-
-"He wouldn't ask it like that."
-
-The figure smiled with Arathen's mouth and Vex's patience.
+"He doesn't talk like that."
 
 "He will, eventually."
 
--------------------------------------------------------------------------
+The square changed around them. Tiny seams appeared in rows along the
+cobbles, opening and closing with shallow breaths, not enough to tear
+anything, enough to keep pressure in the air.
 
-The dream thickened.
+Vex moved through them with smooth, sideways steps.
 
-Boundary seams opened along the square's edges. Not one. Dozens. Tiny,
-controlled tears breathing in and out as if the town itself were a lung
-under stress.
+"You fear being singular," he said. "You fear being named and managed."
 
-Vex walked backward through them as though on flat ground.
+He wasn't guessing. He was pressing where bruises already were.
 
-"You fear being singular," he said. "Classified. Regulated. Isolated."
+"You came to see if I'd crack," Rachel said.
 
-Each word landed like a pin in old bruises.
+"I came to test load."
 
-"You fear becoming necessary."
+He flicked two fingers. The false crowd shifted. Sivara turned away from
+her. Maelin shut a door in her face. Ilyra lowered her spear while seams
+spread behind her.
 
-Rachel felt anger flare and forced it down.
+None of it landed cleanly. All of it still hurt.
 
-"You came to break my confidence."
+Rachel set her feet on dream-cobbles that felt soft under a hard skin and
+waited through one more sweep of his projections.
 
-"No," Vex said softly. "I came to test its load."
+"You keep running the same pattern," she said. "Fear first, pressure next,
+then invitation."
 
-He flicked two fingers.
+Vex's expression sharpened. "Invitation?"
 
-The false Arathen turned away.
+"That I should come where you're pulling."
 
-Sivara appeared in the crowd and called Rachel an unstable event index.
-Maelin closed a door without looking at her. Ilyra lowered her spear and
-stepped aside while fractures spread.
+"I don't pull."
 
-None of it was real.
+"You lie."
 
-All of it was targeted.
+A seam opened behind her with a sound like paper tearing underwater, and
+for a second she felt the connection between them in full geometry. It
+wasn't a cord, wasn't anything simple. It was an axis joint running
+through layered space, anchored in her and vanishing into him.
 
-Rachel planted her feet on dream-cobbles that flexed like skin over
-structural wire.
-
-"You keep trying the same strategy," she said. "Fear, then pressure, then
-offer."
-
-Vex tilted his head.
-
-"Offer?"
-
-"That I should come where you're pointing."
-
-His smile vanished.
-
-"I don't point."
-
-"Liar."
-
-The seams brightened.
-
-One opened directly behind her and she felt it then, clear as physical
-touch: the tether between them, a geometric line running not through
-space but through layered perception.
-
-She had sensed it once before, faint and uncertain.
-
-Now she saw it.
-
-Not a cord.
-
-A rotating axis joint, black-silver and sharp, anchored at her spine and
-vanishing into him.
+She had felt it before in fragments. Now she could see where it turned.
 
 Vex saw her see it.
 
-For the first time in any dream, he stepped back.
+He took a step back.
 
--------------------------------------------------------------------------
+"Don't," he said.
 
-"Do not," he said.
+Rachel reached anyway.
 
-Too late.
+Pain flared the moment her hand closed on the rotating structure. The
+tether vibrated with stacked memory, every previous intrusion riding
+inside it at a different angle. Vex moved to sever, fast and precise, but
+Rachel turned first.
 
-Rachel reached not for his projected illusions, not for the square, not
-for the seams.
+She didn't invert fully. She found one angle, forced it through, and held
+just long enough.
 
-She grabbed the axis.
+The square split.
 
-Pain flashed white behind her eyes. The tether vibrated with impossible
-depth, as if every prior intrusion existed in stacked layers she could
-rotate through.
+For a heartbeat she stood somewhere else.
 
-Vex moved fast, trying to sever.
-
-She turned faster.
-
-Not full inversion.
-
-A flicker.
-
-One angle.
-
-Enough.
-
-The dream split.
-
-For a heartbeat she stood in his space.
-
-Not Thornhaven.
-
-Not boundary.
-
-A domain of stepped black architecture suspended over moving void, lines
-of territory drawn like military maps made physical. Towers grown from
-mathematics. Gates sealed and resealed. Every structure optimized for
+Black architecture rose out of moving void in strict, intentional planes.
+Territory lines were built into the structures themselves. Gates sealed
+and resealed in repeating patterns. Every surface looked engineered for
 control.
 
-She saw his ambition as geometry:
-
-Catalog all hinges.
-
-Own all transitions.
-
-Become indispensable to every crossing.
-
-And under that ambition, sharp and private, fear:
-
-Someone new could surpass him.
-
-Someone unclassifiable.
+She understood him in that instant more clearly than she wanted to:
+the need to master every boundary, to own every crossing, and the fear
+underneath it that someone new could bypass all of it.
 
 Her.
 
-Vex struck the tether with both hands.
-
-The angle snapped out of her grip.
-
+Vex struck the tether with both hands. The angle broke out of her grip.
 The domain vanished.
 
-They were back in frozen Thornhaven dream.
+They were back in the square. The false crowd had gone still.
 
-Vex no longer looked amused.
+He looked at her without the old amusement.
 
-"What are you becoming?" he asked.
+"What are you becoming?"
 
-Rachel's voice shook once and then steadied.
+Rachel's hand shook once before she lowered it.
 
-"Less available for study."
+"Harder to study."
 
-He withdrew without flourish, dissolving into seam-light that collapsed
-behind him.
+Vex withdrew without flourish. Light folded over him and the seams
+collapsed shut. The fountain finished its suspended fall in one crashing
+rush.
 
-The false crowd vanished with him.
+Rachel woke on the floor beside the chair, breath ragged, palm stinging
+where she'd dug her own nails in too hard.
 
-The fountain crashed all at once, finishing a fall it had delayed for
-minutes.
+Arathen was already kneeling beside her. "Rachel. Stay with me."
 
--------------------------------------------------------------------------
+She nodded. Her ears rang. Near the doorway, three ward tiles had cracked
+and one was smoking at the edge.
 
-Rachel woke on the floor beside her chair.
-
-Arathen knelt next to her, one hand at her shoulder, the other pressing a
-cloth to her palm where crescent marks showed she'd dug her own nails too
-deep.
-
-"Rachel. Stay with me."
-
-She blinked hard. Her ears rang.
-
-The house wards were still intact but three sigil tiles near the doorway
-had hairline cracks running through them, faint smoke lifting from one.
-
-Sivara stood in the hall with Maelin and Ilyra, both already awake,
-already armed.
+Sivara appeared in the hall with Maelin and Ilyra behind her, all awake,
+all armed.
 
 "Dream intrusion?" Sivara asked.
 
-Rachel nodded.
-
-"Phase three," she whispered before she could stop the classification
-language.
-
-Sivara's eyes narrowed.
+"Yes."
 
 "Did he breach physically?"
 
 "No."
 
-Rachel pushed herself upright with Arathen's help.
+Rachel let Arathen help her sit upright.
 
-"But I reached back."
+"I reached back."
 
-No one spoke for a beat.
+That silenced the room in a way shouting wouldn't have.
 
-Then Ilyra, quiet for once:
+Ilyra spoke first, quieter than usual. "Can you do it again?"
 
-"Can you do that again?"
+Rachel looked at the cracked tile, then at her hand.
 
-Rachel looked at the cracked ward tile.
+"If I have to."
 
-"Yes," she said, and hated how true it felt.
-
-Outside, Thornhaven stayed dark and breathing.
-
-Inside, Rachel held the memory of Vex's territory like a shard under skin.
+Outside, Thornhaven stayed dark and uneasy. Inside, Rachel held the feel
+of Vex's territory like a splinter she couldn't pull out.
 
 She could find him now.
 

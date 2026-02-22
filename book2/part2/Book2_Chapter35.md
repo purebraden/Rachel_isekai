@@ -1,44 +1,32 @@
 # Chapter 35 — Inversion
 
-Rachel slept because her body overruled strategy.
+Rachel slept because her body finally stopped asking permission.
 
-She had made it as far as the chair by the hearth with boots unlaced and
-one hand still on Edrin's latest map overlay. Arathen had said something
-about food. Maelin had said something sharper about collapse not being an
-excuse to starve.
+She had meant to sit by the hearth for a few minutes, eat what Maelin put
+in front of her, and then go back out. She got as far as unlacing one
+boot. The map on her lap slipped sideways. The room dropped away.
 
-Then darkness took her cleanly.
+Dream came down hard and all at once.
 
-No drift.
+Thornhaven's square was there waiting for her, but it looked like someone
+had rebuilt it out of stress fractures. Houses folded at impossible
+angles. Marker stones leaned and sank. The ground split into stacked
+planes that slid against each other with a grinding sound she felt in her
+teeth.
 
-No warning.
+People shouted her name from different directions, then from nowhere she
+could place.
 
-Vex hit hard.
+Arathen stood at the center seam and reached for her. His hand passed
+through her shoulder like smoke.
 
--------------------------------------------------------------------------
+Sivara cast a ward and watched it dissolve.
 
-Dream-Thornhaven burned.
+Maelin knelt over a child she couldn't lift no matter how she braced.
 
-Not with flame.
+Ilyra fought creatures that multiplied every time she drove them back.
 
-With structural failure.
-
-Houses folded at impossible angles. Marker stones tilted and sank. The
-square split into stacked layers that slid against each other with
-grinding sound. People shouted her name from every direction, then from
-no direction, voices stretched and broken.
-
-Arathen stood at the center seam and reached for her.
-
-His hand passed through empty air.
-
-Behind him, Sivara drew a ward and it dissolved.
-
-Maelin knelt over a child she could not lift.
-
-Ilyra fought creatures that multiplied every time she struck.
-
-Rethan read an order over all of it:
+Over all of it, calm and procedural, Rethan read out an order.
 
 Integration enacted.
 
@@ -46,114 +34,68 @@ Necessary.
 
 Merciful.
 
-Rachel's pulse spiked.
+Vex stepped out of a widening fracture and watched Rachel watch the scene.
 
-Vex stepped out of the fracture like he owned gravity.
+"This is what your belonging costs," he said.
 
-"See?" he said softly. "This is what your belonging costs."
+The dream looped. A house changed each pass. A different person fell. A
+different expression crossed Arathen's face when he turned and found
+nothing he could hold.
 
-The dream forced her to watch the square fail in loops.
+Vex walked beside her through each loop, voice almost gentle.
 
-Each loop changed one detail: a different house gone, a different person
-falling, a different expression on Arathen's face when he turned toward
-her and found nothing to hold.
+"You can stop this. Come where structure is understood. Come where you
+are not treated as accident."
 
-Vex walked beside her through the loops.
+He wasn't shouting. He wasn't threatening. He was persuading, which was
+worse.
 
-"You could stop this," he murmured. "Come where structure is understood.
-Come where you are not treated as accident."
+Rachel stood still and let one more loop wash over her without reacting.
+Then she looked past the images and found the deeper geometry under them:
+the tether axis she had touched during the previous intrusion.
 
-He was not shouting.
+It wasn't a single line now. In dream-space it was a rotating assembly,
+layered and jointed, anchored in both of them.
 
-He was convincing.
+Vex followed her gaze and his composure thinned for the first time.
 
-That made him more dangerous.
+"Don't."
 
--------------------------------------------------------------------------
+She didn't.
 
-Rachel stopped moving.
+She set her hand on the nearest hinge, mapped counter-angle by feel, and
+turned the linkage through itself.
 
-The loop continued around her.
+Pain ripped through her spine like lightning.
 
-She let it.
+The square shattered.
 
-She looked past the images, past the collapsing square, past Vex's voice
-and the fabricated grief, until she found the axis she had touched during
-the previous intrusion.
+She crossed cleanly into his domain.
 
-The tether.
+It opened around her in black, hard-edged architecture suspended over
+luminous void. Bridges hung between towers grown from moving equations.
+Territory boundaries were built into vertical seam walls that pulsed with
+captured pressure signatures. Every surface suggested leverage. Every
+angle suggested control.
 
-Not a line now.
+Vex stood ten paces away on a platform with no visible support, and for
+one bare second he looked genuinely surprised.
 
-A full rotating assembly threaded through layered dream geometry, anchored
-in both of them.
+"You cannot be here."
 
-Vex saw where her attention went and his expression changed.
+Rachel's knees shook. She held herself upright anyway.
 
-"No."
+"You tested me," she said. "Now I'm here."
 
-This time she did not grab and pull.
+The words came back at her with his acoustics under them, thinner and
+sharper.
 
-She inverted.
+Vex recovered quickly and swept one arm out. The domain shifted to throw
+her out. Walls rose. Angles inverted. Seam-gates opened overhead like
+watching eyes.
 
-She set one hand on the nearest hinge of the tether construct, mapped the
-counter-angle by feel, then rotated the whole linkage one impossible
-quarter-turn through its own frame.
-
-Pain tore through her spine like lightning.
-
-The dream shattered.
-
--------------------------------------------------------------------------
-
-She crossed.
-
-Not a flicker.
-
-Not a glimpse.
-
-Full entry.
-
-Vex's domain opened around her in hard-edged black architecture suspended
-over luminous void, bridges between towers built from moving equations,
-territory boundaries marked by vertical seams that pulsed with captured
-pressure signatures.
-
-Everywhere she looked, structures were optimized for leverage.
-
-No softness.
-
-No waste.
-
-No room for anyone who did not understand hierarchy.
-
-Vex stood ten paces away on a narrow platform with no visible support.
-For the first time, surprise stripped control from his face.
-
-"You cannot be here," he said.
-
-Rachel's knees shook.
-
-She held herself upright anyway.
-
-"You tested me," she said, voice rough and steady at once. "Now I'm here."
-
-The words rang across the platform and returned altered by his own
-acoustics.
-
-Vex recovered quickly.
-
-"Do you think arrival is victory?"
-
-He swept an arm and the domain shifted.
-
-Walls rose.
-
-Angles reversed.
-
-A dozen seam-gates opened overhead like eyes.
-
-Rachel felt the architecture try to classify her.
+Rachel felt the architecture try to classify her, the same way the
+Council did with cleaner ink and better lighting.
 
 Asset.
 
@@ -161,125 +103,77 @@ Threat.
 
 Intrusion.
 
-Unmapped.
-
-She also felt what Vex had hidden inside all this control.
-
-Fear of being surpassed.
-
-Fear of becoming obsolete in a system that rewarded utility above all.
-
-Fear that someone born outside his structure could do what he had spent
-centuries perfecting.
-
-And beneath fear, ambition sharpened into obsession:
+She felt, too, what Vex kept buried beneath control: the fear of becoming
+obsolete, of being surpassed by something outside his structure, and the
+obsession that sat on top of that fear like armor.
 
 Master every boundary.
 
 Own every crossing.
 
-Never again be dependent on forces he could not name.
+Never depend on what he couldn't name.
 
-Rachel did not attack him.
+Rachel didn't attack him. She planted herself in the middle of his
+constructed certainty and refused to move.
 
-She did not need to.
-
-She stood in the center of his constructed certainty and remained
-unmoved.
-
-That was enough.
-
--------------------------------------------------------------------------
-
-Vex struck first.
-
-Not physically.
-
-He tried to eject her by collapsing local dream topology, folding
-platforms, narrowing air, forcing her to choose between retreat and
-fracture.
-
-Rachel felt the pressure and rotated with it, using the same realignment
-instinct she used on seams. Not elegant. Not efficient. Effective.
+Vex changed tactics and tried to collapse the local topology around her,
+folding platforms, narrowing air, forcing a choice between retreat and
+fracture. Rachel matched the pressure the same way she handled seams:
+listen, turn, re-seat.
 
 One platform failed to collapse.
 
 Then another.
 
-Vex's control slipped one degree.
+Vex saw the slip in his own control and stepped back.
 
-He saw it happen.
+Rachel took one step forward, no weapon in her hands, no threat posture
+at all.
 
-He stepped back.
+That was enough.
 
-Rachel advanced one pace.
+The nearest gate imploded into light and the domain drew inward around
+him in defensive contraction. He was withdrawing from his own space.
 
-No threat posture.
-
-No weapon.
-
-Just presence.
-
-Vex's jaw tightened.
-
-The nearest gate imploded into light and dragged the rest of the domain
-into defensive contraction.
-
-He was withdrawing.
-
-From his own space.
-
-Before he vanished into seam-dark, he looked at her with no performance
-left.
+Before he vanished into seam-dark, he looked at her without performance
+for the first time and asked the same question the creatures kept asking.
 
 "What are you?"
-
-The question echoed the creatures.
 
 Rachel did not answer.
 
 He left first.
 
--------------------------------------------------------------------------
+She woke with a cry and both palms braced against floorboards that had
+charred in a narrow ring under her hands.
 
-She woke with a cry torn out of her throat and both hands braced against
-floorboards charred in a narrow ring beneath her palms.
-
-Arathen was beside her instantly, hauling her upright.
-
-Maelin stood in the doorway white-faced and furious at fear itself.
-Ilyra had already drawn steel. Sivara entered two beats later, took one
-look at the floor, and exhaled through her teeth.
+Arathen was beside her instantly, hauling her up before she could tip
+forward. Maelin stood in the doorway white-faced and furious at whatever
+had done this. Ilyra had steel in hand already. Sivara entered two beats
+later, took in the burned floor and cracked ward tiles, and exhaled once
+through her teeth.
 
 "Ward breach?" Sivara asked.
 
-"No breach," Rachel said, breath ragged. "Crossing."
+Rachel shook her head, breath still ragged. "No breach. Crossing."
 
-The room went still.
+That quieted everyone.
 
 "How far?" Sivara asked.
 
-Rachel met her gaze.
+Rachel met her eyes. "All the way."
 
-"All the way."
+Arathen's hand stayed at the back of Rachel's neck, steady and warm, a
+line back to timber and breath and the smell of hearth smoke.
 
-Arathen's hand tightened at the back of her neck, grounding her to timber
-and breath and hearth-smoke.
+She leaned into him because standing felt optional and then, slowly,
+because the shaking in her legs eased.
 
-She leaned into him, exhausted down to bone, and under the exhaustion she
-felt something new:
+Exhaustion settled in first. Under it came something else she couldn't
+name cleanly yet, a hard, steady awareness that she had stood in Vex's
+territory and come back with herself intact.
 
-Not triumph.
+Outside, Thornhaven slept in broken stretches between bells.
 
-Capacity.
-
-Vex had seen her in his own territory.
-
-He had asked the same question the boundary creatures asked.
-
-Outside, Thornhaven slept in broken fragments between alarms.
-
-Inside, Rachel closed her eyes and held one clear fact through the
-shaking:
-
-She was no longer only defending.
+Inside, while the tremor was still leaving her hands, Rachel lifted her
+head from Arathen's shoulder and asked where her boots were.

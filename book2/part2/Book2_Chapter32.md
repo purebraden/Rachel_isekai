@@ -1,243 +1,160 @@
 # Chapter 32 — Interpretations
 
-Thornhaven slept badly after the triple-seam assault.
+Thornhaven woke early the next day and pretended it hadn't.
 
-No one said it that way, but it showed in small things: shutters opened
-before dawn and never fully closed, breakfast fires lit too early, voices
-kept low as if sound itself might attract another seam. Even the dogs
-stayed close to doorways.
+Shutters were already open before dawn. Breakfast fires were going while
+the sky was still iron-gray. People moved with that careful quiet that
+follows a night where too many alarms almost happened. Even the dogs
+stayed near doorways.
 
-Rachel sat at Edrin's table with a map weighted by mugs, stones, and one
-stubborn loaf Maelin refused to remove because "it belongs to the
-household and therefore to strategy."
+Rachel sat at Edrin's table with a map pinned under two mugs, a river
+stone, and a half loaf Maelin refused to move because, in her words, "if
+it's on the table, it belongs to strategy."
 
-No one argued with Maelin when she was feeding fear into practicality.
+Sivara stood by the window. Ilyra paced from hearth to shelf and back
+again. Arathen leaned over the map with both palms flat on wood. Halvare
+sat at the edge of the room with his ledger open, recording when asked
+and, for once, mostly listening.
 
-Sivara stood by the window. Ilyra paced. Arathen leaned over the map with
-both palms braced on wood. Halvare occupied a chair at the edge of the
-room, recording without interrupting unless asked.
+Edrin tapped the three seam sites from last night.
 
-Edrin tapped the three collapse sites from last night.
+"The triangle shifted when Rachel shifted," he said. "Load transfer
+changed in real time."
 
-"The triangle wasn't static," he said. "The vectors shifted when Rachel
-moved."
+Ilyra snorted. "Everything changes when Rachel moves lately."
 
-"Of course they did," Ilyra said. "Everything shifts when Rachel moves."
+"I mean mathematically." Edrin glanced up, annoyed and tired. "They
+weren't attacking points. They were tracking center."
 
-It was not a joke.
+Arathen's jaw tightened. "And speaking to center."
 
-"No," Edrin replied. "I mean mathematically. They changed load transfer as
-if tracking an expected center. They were testing positional response."
+Rachel kept her eyes on the map. "First needed. Then called."
 
-Arathen's jaw set.
+Sivara turned from the window. "Words chosen across encounters are never
+accidental."
 
-"And then they called to her."
+Halvare looked over the edge of his ledger. "You read that as
+communication rather than mimicry."
 
-Rachel stared at the map.
+"Mimicry is noisy," Sivara said. "This was precise."
 
-"They said 'needed' first. Then 'called.'"
+Ilyra planted both hands on the table. "Precise can still be a trap."
 
-Sivara turned from the window.
+That opened the room into argument.
 
-"Words are deliberate. Especially when entities choose them."
+Edrin made his case first, careful and a little frantic.
 
-Halvare looked up from his ledger.
+"If older structural systems linked boundary behavior across realms, they
+may be reading Rachel as keyed interface. That's why phrasing changed.
+Observation to summons."
 
-"You believe that was communication, not mimicry."
+Ilyra gave him a flat look. "Anything that says come closer while trying
+to peel your town open is not an interface."
 
-"I believe mimicry would be noisier," Sivara said. "This was targeted
-phrase progression."
+"It can be both," Arathen said quietly, not taking his eyes off the map.
+"An invitation and a lure."
 
-Ilyra planted both hands on the table.
-
-"Messenger behavior," she said flatly. "Not predators. Not raiders.
-Messengers or lures."
-
--------------------------------------------------------------------------
-
-They spent the next hour arguing theory.
-
-Edrin's was academic and dangerous in equal measure.
-
-"If pre-demon architecture included cross-realm control structures, then
-these entities may be reading Rachel as a keyed responder," he said.
-"Not prey. Not enemy. Authorized interface."
-
-Ilyra made a face.
-
-"People who call you 'needed' while trying to get you to step closer are
-not interfaces. They're traps with grammar."
-
-Arathen did not laugh.
-
-"Or summons," he said quietly.
-
-The room stilled.
-
-"Summons," Halvare repeated.
-
-"Something wants her to come to a specific location," Arathen said.
-"Repeated directional pull. Increased coordination. Language shifting from
-observation to invitation."
-
-Edrin nodded reluctantly.
-
-"That is consistent."
-
-Rachel listened to all of them and felt the thread beneath her sternum
-tighten when they said the word location.
+Rachel listened while they worked through language that was too neat for
+what she felt in her ribs. Every time someone said summons, the thin
+thread under her sternum tightened toward the same direction.
 
 West.
 
 Always west.
 
-She hated that part of her wanted to turn and follow it immediately just
-to force an answer out of whatever waited there.
+She hated how much she wanted to walk out of town and follow it just to
+end the uncertainty.
 
-Sivara saw the thought cross her face.
+Sivara saw the thought before Rachel spoke it. "No."
 
-"No," she said before Rachel spoke.
+Rachel looked up. "I didn't say anything."
 
-"I didn't say anything."
+"You said enough with your shoulders."
 
-"You did with your shoulders."
+By afternoon they were at the western marker line for controlled
+assessment, with Ilyra on perimeter, Arathen one step behind Rachel,
+Sivara to her left, and Halvare just outside the arc pretending that not
+crossing it made this less personal.
 
--------------------------------------------------------------------------
+There was no visible seam, only old stone posts and ward ribbons lifting
+and settling in the wind.
 
-By afternoon they moved to the western marker line for controlled
-assessment.
+"Confirm only," Sivara said. "Do not open anything."
 
-No active seam.
-
-No visible fracture.
-
-Just old stone posts and ward ribbons moving in light wind.
-
-Ilyra kept the perimeter clear. Arathen remained one step behind Rachel.
-Sivara stood at her left. Halvare observed from outside the marker arc.
-
-"Do not open anything," Sivara said.
-
-"I'm not trying to."
-
-"Good. Confirm only."
+"I'm not trying to open anything."
 
 Rachel closed her eyes and reached with perception instead of force.
 
-At first, nothing but ordinary ward hum.
+At first she heard the ordinary ward hum she had known since Thornhaven
+became home. Under it, slowly, another tone gathered. It sat deeper than
+boundary strain and carried a breadth she could not place, like listening
+to a distant bridge through the soles of her feet.
 
-Then a second tone emerged under it.
+"There," she said before she meant to.
 
-Deeper.
+Halvare scanned empty air where she pointed. "Where?"
 
-Older.
+"Beyond the markers. It's not a seam. It feels like a line of resonance,
+like something very old answering from far away."
 
-Not boundary static.
+Ilyra frowned. "Answering what?"
 
-Structure.
+Rachel opened her eyes. "I don't know. Maybe me. Maybe whatever keeps
+recognizing me."
 
-Her breath caught.
+Sivara stepped closer, voice low. "Can you follow it?"
 
-"There," she whispered.
+Rachel didn't give herself time to soften the truth. "Yes."
 
-"Where?" Halvare asked.
+The word landed heavily between all of them.
 
-Rachel lifted her hand toward empty air beyond the western posts.
+Arathen touched her wrist, grounding rather than restraining. "Can you
+refuse it?"
 
-"Not a seam. A resonance line. Like... like something vast answering from
-far away."
+Rachel swallowed and nodded. "Yes."
 
-Ilyra frowned.
+They walked back to town at sunset without new fractures and without
+relief. Halvare's written report was as neutral as he could make it:
+no manifested seam, directional resonance reported by Rachel, unverified
+by other observers.
 
-"Answering what?"
+Rethan would hate that sentence. Halvare wrote it anyway.
 
-Rachel opened her eyes.
+That evening Rachel and Arathen stood on the roofline walkway above the
+training hall while lanterns came on across Thornhaven one house at a
+time.
 
-"I don't know. Me, maybe. Or whatever in me they keep recognizing."
+"I keep hearing that word," Rachel said.
 
-Sivara stepped closer, voice low.
+"Summons?"
 
-"Can you follow it?"
+She nodded.
 
-The honest answer rose before caution.
+Arathen leaned his forearms on the stone rail and looked out toward the
+dark fields. "I don't like that I think it's right."
 
-"Yes."
-
-That answer frightened everyone, including Rachel.
-
-Arathen's hand found her wrist, grounding, not restraining.
-
-"Can you refuse it?"
-
-Rachel swallowed.
-
-"Also yes."
-
--------------------------------------------------------------------------
-
-They returned to town at sunset with no new collapse and no relief.
-
-Halvare filed a neutral report: "No manifested seam. Subject reports
-directional resonance beyond perimeter. Unverified by non-Subject
-observers."
-
-Rethan would hate that phrasing.
-
-Halvare did not appear troubled by that.
-
-In the evening, Rachel stood on the roofline walkway with Arathen and
-watched lanterns come on across Thornhaven one house at a time.
-
-"I keep thinking about what you said this morning," she told him.
-
-"Which part?"
-
-"Summons."
-
-He nodded once.
-
-"I don't like being right about that."
-
-She laughed softly, without humor.
-
+Rachel let out a breath that almost turned into a laugh and didn't.
 "Part of me wants to answer it."
-
-Arathen did not pretend surprise.
 
 "I know."
 
 "That should worry you."
 
-"It does."
+"It does." He turned toward her. "Wanting to understand what keeps naming
+you isn't weakness. Walking into it without a line back would be."
 
-He leaned his forearms on the stone rail beside her.
+She rested her hands on the cold stone and watched chimney smoke flatten
+in the wind.
 
-"Wanting to understand the thing trying to define you is not weakness. It's
-also how people walk into traps. Both can be true."
-
-Rachel watched smoke drift above chimneys and tried to imagine a world in
-which her life was not split between belonging and structural gravity.
-
-"If this keeps escalating, they're going to try to move me."
+"If this keeps escalating, they'll try to move me."
 
 "Maybe."
 
 "Would you let them?"
 
-He turned to look at her fully.
+He answered too quickly to sound diplomatic. "No."
 
-"No."
+Rachel looked west, where the fields vanished into dark, and listened to
+the thread in her chest hum like distant wire.
 
-The answer came too quickly to be political.
-
-Rachel breathed out and let the thread under her ribs hum quietly.
-
-West.
-
-Called.
-
-Soon.
-
-She did not move.
-
-Not yet.
+She stayed where she was.

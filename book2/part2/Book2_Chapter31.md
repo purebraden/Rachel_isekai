@@ -1,285 +1,164 @@
 # Chapter 31 — Called
 
-The first collapse struck at dusk.
+The first alarm rang at dusk while people were still carrying baskets
+home. Before that bell stopped echoing, a runner shouted from the west
+spillway that another seam had opened. Rachel had just turned toward that
+voice when she felt a third pressure line tighten near the orchard wall.
 
-The second struck before anyone finished shouting about the first.
+"South edge," she said, already moving.
 
-The third appeared while Thornhaven was still turning toward the second.
-
-Three seams.
-
-Three distances.
-
-One pattern.
-
-Ilyra was already moving when the alarm bell began. "North marker!"
-she shouted, then changed direction mid-stride as Edrin yelled from the
-archive steps.
-
-"Not north only. West spillway too."
-
-Rachel felt the third before either of them named it, a tight pressure
-just beyond the orchard wall, precise as a blade pressed against old
-mortar.
-
-"South edge," she said.
-
-Arathen met her eyes once, understood, and started assigning runners.
-
-"Evacuate lanes two and three. Keep civilians off the orchard road. Move
+Arathen changed direction with her and started issuing orders in the same
+breath. "Clear lanes two and three. Keep civilians off orchard road. Move
 now."
 
-Sivara took command of the walkers with clipped, exact instructions.
+Sivara took the walkers as they arrived in uneven pairs, assigning them
+without raising her voice. "Do not force closure if the hinge resists.
+Hold. Report angle. Wait for correction."
 
-"Pairs only. Do not force closure if hinge resists. Hold line, report
-angle, wait for correction."
+Council aides who had spent the week pretending they were only observing
+suddenly had to pick sides of the square and run messages like everyone
+else. Halvare stood at center marker with his ledger tucked under one arm
+and no time to write in it.
 
-The Council aides still stationed in Thornhaven froze for half a breath,
-then scattered toward their assigned posts. Halvare stood near the center
-marker with his ledger closed and unwritten.
+Edrin unfolded a map against his forearm, rotated it once, then went pale.
+"It's a triangle," he said.
 
-"Three at once?" he asked.
+He was right. The three seams weren't opening as separate accidents; they
+were talking to each other.
 
-"They're coordinated," Edrin answered without looking up from the map he
-was already unfolding against his forearm.
+At the north marker, pressure came in pulses that felt measured, almost
+curious, and then creatures started crossing. They moved with an economy
+that made Rachel's skin crawl: long limbs, narrow frames plated in dark
+armor that shifted over pale joint lines when they changed direction. One
+of them ignored the nearest walker entirely and turned its head toward
+Rachel from across the square as if distance wasn't a barrier worth
+respecting.
 
-He rotated it once and went pale.
+"Ilyra," Arathen called.
 
-"Triangle."
+"Already here."
 
--------------------------------------------------------------------------
-
-The north seam opened first.
-
-Not wide.
-
-Deliberate.
-
-Pressure spilled through in pulses rather than surges, as if something on
-the other side were testing how quickly Thornhaven responded to different
-frequencies of stress.
-
-Then creatures came through.
-
-Not like the first boundary beasts Rachel had fought.
-
-These moved with unnerving economy, long-limbed and narrow, black armor
-plates shifting over pale joint-lines that lit briefly when they changed
-direction. Their heads turned too far without losing balance. Their eyes
-did not fix on walkers first.
-
-They fixed on Rachel.
-
-"Ilyra!" Arathen called.
-
-"I see them."
-
-Ilyra drove her spear through the first creature before it reached the
-inner ward line. It folded around the strike, adapted in motion, and
-slammed into her shoulder hard enough to force one step back.
+Ilyra drove her spear into the first one and nearly took it clean through,
+but the creature folded around the strike and slammed her shoulder hard
+enough to make her slide a step over wet cobbles.
 
 "They're reading us," she snapped.
 
-Sivara threw a lattice reinforcement across the seam mouth. The second
-creature did not try to break through.
+At the seam mouth Sivara threw a lattice closure. The second creature did
+not break it. It touched the weave, paused, then slipped through at the
+single angle where strain was weakest.
 
-It touched the lattice.
+Sivara's mouth tightened. "Vary sequence every cast. Don't repeat
+patterns."
 
-Waited.
+By then two more had emerged at spillway in mirrored motion, and at the
+orchard seam one of them stayed half through, lower body still in
+distortion, like an anchor point watching all three fronts.
 
-Shifted.
+Rachel could feel the pattern changing when she moved. If she turned north,
+west pressure climbed. If she pivoted west, south thinned and then
+sharpened toward civilian routes.
 
-And moved through at the one angle where the weave carried least tension.
+Edrin said it out loud, voice shaking as he ran fingers over his map.
+"They're triangulating on her position."
 
-Sivara swore under her breath.
+Halvare heard him and looked at Rachel. "Can you close one without
+breaking the others?"
 
-"Do not repeat patterns," she barked. "Vary sequence every cast."
+"Not by pushing them."
 
--------------------------------------------------------------------------
+"Then what?"
 
-At the spillway seam, two more emerged in mirrored motion.
+She gave him a tired half-smile that disappeared quickly. "By listening."
 
-At the orchard seam, one surfaced halfway and stayed there, torso through
-boundary, lower limbs still in distortion, as if acting as anchor while
-watching everything at once.
+She stepped into the middle where all three vectors crossed under the
+stone and reached for the north hinge first. Warmth traveled from her
+palms up through shoulders and settled in her sternum in that old, wrong,
+familiar way. She turned the angle by degrees, light touch, no force. The
+west seam answered instantly, which should have been impossible and wasn't.
 
-They were not raiding.
+While Ilyra and Arathen held the inner line, Rachel matched two hinges
+together, adjusting one with each hand from across open space. The
+anchored creature at orchard lifted its head.
 
-They were probing.
+Its mouth never moved.
 
-Rachel felt the geometry in real time: each seam pressure changed when
-she moved. When she turned toward north, west pressure increased. When
-she pivoted west, south thinned and then sharpened near civilian routes.
-
-"They're triangulating on her position," Edrin said, voice shaking.
-
-Halvare heard and did not argue.
-
-"Can you close one without collapsing the others?" he asked Rachel.
-
-"Not by force."
-
-"Then by what?"
-
-She almost laughed.
-
-"By listening."
-
--------------------------------------------------------------------------
-
-She stepped into the center of the triangle, where three stress vectors
-overlapped beneath the stone like crossing beams.
-
-Warmth spread from her palms to her shoulders, then along her sternum in
-a line that felt less like heat and more like resonance.
-
-She reached toward north seam first and turned the hinge half a degree.
-
-West seam reacted.
-
-Not random.
-
-Responsive.
-
-As if the system expected cross-coupling.
-
-She adjusted both together, one with each hand, no contact, tracing the
-angles in air while Ilyra and Arathen held creatures off the inner line.
-
-The creature half-through at orchard lifted its head.
-
-Its mouth did not open.
-
-The words arrived anyway, layered and dry:
+The words came anyway, dry as paper dragged over stone.
 
 You are needed.
 
-Rachel froze for a fraction too long.
+Rachel froze for half a heartbeat and hated that she had.
 
-Arathen's voice cut through noise.
+"Rachel," Arathen said, sharp enough to cut through the noise. "Stay with
+us."
 
-"Rachel. Stay with us."
+She breathed, turned the north hinge cleanly, and pressure dropped there.
+West followed, then south surged so hard the cobbles underfoot jumped.
+From that surge the anchored creature stepped fully into Thornhaven.
 
-She breathed.
-
-Turned.
-
-North hinge settled.
-
-West hinge dropped in pressure.
-
-South seam surged once, violent and bright, and from it the anchored
-creature finally stepped fully into Thornhaven.
-
-It landed lightly.
-
-Looked straight at Rachel.
+It landed lightly, looked straight at her, and the second phrase arrived.
 
 You are called.
 
-Ilyra lunged. The creature did not meet her strike. It moved backward
-through two vectors at once, impossible momentum folding around blade and
-ward flare, then reappeared near the seam mouth with its attention never
-leaving Rachel.
+Ilyra lunged. The creature did not meet her strike. It folded backward
+through two vectors at once and reappeared near the seam mouth with its
+attention still fixed on Rachel. Sivara cast binding arcs at its legs;
+they missed by the narrow margin that meant prediction, not luck.
 
-Sivara cast binding arcs across its legs.
+By then Rachel understood the shape of what was happening. They weren't
+trying to take ground. They were measuring responses.
 
-The arcs failed to catch.
+How quickly can she adapt.
 
-Not because it broke them.
+How far can she sense.
 
-Because it predicted them.
+Will she follow.
 
--------------------------------------------------------------------------
+Her jaw set. She dropped deeper into alignment and let the rest of the
+square blur at the edges. Time did not stop, but it thinned enough for
+choice to widen. She rotated north and south together, then slid west
+into match. All three seams resisted, fought, then clicked into harmonic
+relation under her correction.
 
-"They're not here to take ground," Halvare said, almost to himself.
-
-"They're here to map responses," Edrin replied.
-
-Rachel felt it too.
-
-Each feint, each shift, each pressure pulse was a question.
-
-How fast does she adapt?
-
-How far can she sense?
-
-Will she follow if called?
-
-No.
-
-She set her feet, ignored the pull hidden inside that last word, and
-dropped fully into alignment mode.
-
-Time did not freeze.
-
-It thinned.
-
-Enough for choice to widen.
-
-She rotated north and south simultaneously, then slid west into match.
-Three hinges resisted, then snapped into harmonic relation under her
-correction.
-
-The seams narrowed.
-
-Creatures recoiled as if line tension itself had changed polarity.
-
-The anchored one watched one heartbeat longer.
+The creatures recoiled as line tension reversed. They did not panic. They
+withdrew in clean sequence, each one stepping backward through narrowing
+distortion. The last to leave was the one that had spoken.
 
 Soon, it said.
 
-Then all of them withdrew at once.
+Then it was gone and the seam sealed behind it with surgical precision.
 
-No pursuit.
+Silence hit in jagged pieces. Someone cried near the bakery steps.
+Somebody laughed once and clapped a hand over their own mouth. Walkers
+checked each other for injuries with quick, shaking hands.
 
-No final strike.
+Ilyra spat blood into the gutter and wiped her mouth with her sleeve.
+"Next time I bring a longer spear."
 
-Just synchronized retreat through narrowing seams that closed behind them
-with unnatural precision.
+Arathen reached Rachel first. "You heard them."
 
--------------------------------------------------------------------------
-
-Silence hit Thornhaven in broken pieces.
-
-Someone sobbed once and stopped. A child cried near the bakery steps.
-Walkers checked each other for injuries with shaking hands.
-
-Ilyra spat blood onto stone and wiped her mouth with the back of her hand.
-
-"Next time," she said, "I'm bringing a bigger spear and a worse temper."
-
-Arathen reached Rachel first.
-
-"You heard them."
-
-It wasn't a question.
-
-"Yes."
+She nodded.
 
 "What did they say?"
 
-Rachel looked at Sivara, then at Halvare, then at the seams now gone.
+Rachel looked at Sivara, then Halvare, then the three places where seams
+had been.
 
 "They said I was called."
 
-Halvare's pen hovered over his ledger and did not move.
+Halvare opened his ledger and stopped, pen hovering over blank paper.
+Edrin folded his map with care that looked like fear.
 
-Edrin folded the map with careful fingers.
+"They moved from studied to needed," he said. "That's a shift."
 
-"They changed phrasing from studied to needed," he said quietly. "That's
-not escalation in force."
+"In intent," Sivara replied. "Not only language."
 
-"It's escalation in intent," Sivara answered.
+Nobody argued with her.
 
-No one contradicted her.
+As the teams reset markers and people were moved back indoors, Rachel
+stood in the center of that old triangle and felt the same pull she'd
+been feeling for days, only clearer now.
 
-Rachel stood in the center of the old triangle and felt, faint but
-unmistakable, the same directional pull she had sensed in earlier
-chapters.
+It was not toward any closed seam in Thornhaven.
 
-Not toward any of the closed seams.
-
-Beyond them.
-
-West.
+It leaned west.

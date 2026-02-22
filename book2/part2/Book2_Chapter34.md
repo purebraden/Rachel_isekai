@@ -1,234 +1,149 @@
 # Chapter 34 — Acceleration
 
-By dawn, Thornhaven had answered four collapses.
+By dawn, Thornhaven had already answered four collapses.
 
-By noon, nine.
+By noon, Edrin stopped writing totals on the map margin because the
+numbers kept changing while the ink was still wet. Runners started
+counting something simpler: who had gone out, who had made it back, who
+needed bandages before the next bell rang.
 
-By nightfall, no one could agree on the number because response teams
-stopped counting between alarms and started counting only whether everyone
-returned.
+The seams were not larger than usual. That was almost the worst part.
+Each one on its own looked manageable, shallow enough for routine teams.
+They came in overlapping waves, though, one at north line while west was
+still closing, one in the orchard while the spillway crew was halfway
+across town, and by the time anyone thought they'd found a rhythm another
+pair opened at opposite edges.
 
-The pattern was unmistakable.
+Ilyra's voice went rough from shouting lane clearances.
 
-Simultaneous pressure spikes at opposite ends of town.
+Maelin turned the meeting hall into a feeding station and evacuation desk
+without waiting for permission from anyone wearing Council colors.
 
-False quiet between events.
+Sivara rewrote shifts in charcoal directly on the wall as teams changed.
 
-Then another pair.
+Arathen used side streets and old storage paths to move responders around
+crowds.
 
-Then three.
+Halvare observed and wrote, then put the ledger away when writing slowed
+people down.
 
-None individually catastrophic.
+Rethan objected to methods and asked for stricter containment every hour.
 
-All together exhausting.
+Meredin watched with that unnerving stillness that made people feel
+judged even when he hadn't spoken.
 
--------------------------------------------------------------------------
+Rachel went wherever pressure peaked.
 
-Ilyra ran combat rotation until her voice went raw.
+By midafternoon she had corrected one hinge from a full street away while
+running, adjusted a second seam after it changed angle under her hands,
+and taken a hit of copper taste so strong she had to turn her head and
+spit before anyone noticed.
 
-Maelin managed food lines and civilian movement with military precision
-and maternal ferocity.
+People noticed anyway.
 
-Edrin stayed in the archive annex with maps pinned to every available
-surface, tracking event vectors while scribes copied his overlays for
-field runners.
+When she crossed the square between calls, pieces of conversation followed
+her whether she wanted them or not.
 
-Sivara coordinated walkers in staggered teams and overrode doctrine every
-time doctrine cost speed.
+"If she wasn't here, would they still cluster like this?"
 
-Arathen commanded perimeter redeployments, cutting routes through side
-streets so responders could move without crossing panicked crowds.
+"If she wasn't here, who closes half of them?"
 
-Halvare observed and reported.
+"My daughter couldn't breathe that day in the square."
 
-Rethan criticized and recommended stronger containment.
+"My son is alive because she stood there."
 
-Meredin watched all of it and said very little.
+Nobody said those things to Rachel directly. They said them to each
+other, which somehow made them harder to answer.
 
-Rachel moved where pressure peaked.
+At spillway line, a seam split into two branches before anyone cast.
+Ilyra muttered something Rachel chose not to hear. Rachel took the left
+branch; the right widened under Sivara's hold. They pivoted together,
+Sivara bracing pressure long enough for Rachel to turn secondary axis and
+close both.
 
-Again.
+Two houses downhill had already been cleared. One support beam cracked in
+the first house and two in the second. A boy tripped on the threshold and
+broke his wrist while running.
 
-Again.
+Everyone else got out.
 
-Again.
+As dusk came down, Council called emergency review in Thornhaven's
+logistics room. Nobody changed clothes first. Mud and chalk and dried
+blood stayed where they were.
 
-Warmth lived in her now from wrists to chest, flaring with each
-intervention, receding just enough to let her stand before the next call
-dragged it back.
+Rethan began without greeting. "Event frequency is accelerating. Civilian
+risk now requires relocation of the central variable."
 
-At the seventh collapse she corrected from forty paces while running.
+He looked at Rachel when he said central variable.
 
-At the eighth she turned two hinges mid-cast after the seam changed angle
-under her.
+Sivara answered before Rachel did. "You are not moving my walker mid-crisis
+while seams are triangulating on her intervention points."
 
-At the ninth she tasted copper and kept going.
+"That is precisely why relocation is required," Rethan said. "Remove the
+attractor, reduce clustering."
 
--------------------------------------------------------------------------
+Edrin pushed an annotated map toward him with an unsteady hand.
 
-By late afternoon the town sounded different.
+"That conclusion isn't supported. Long-range vectors predate this week's
+cluster. Move Rachel and the pattern may follow while leaving Thornhaven
+under-defended."
 
-Not loud.
+Halvare spoke from the side of the table, voice quiet enough to force
+everyone else to listen.
 
-Frayed.
+"Field notes support Edrin's assessment."
 
-"If she's not here, the seams don't cluster."
+Rethan's expression hardened. "Observation is not strategy."
 
-"If she's not here, who closes them?"
+"It is when strategy keeps ignoring data," Ilyra said.
 
-"This started when she changed methods."
+The room went tight. Meredin let it hold for a beat, then lifted one
+hand.
 
-"This started before she was born."
+"No relocation order tonight," he said.
 
-"My daughter couldn't breathe in the square that day."
+Rethan started to answer. Meredin didn't raise his voice, only repeated
+himself. "No relocation order tonight. We reevaluate at first light."
 
-"My son is alive because she stopped the pillar."
+It satisfied no one. It stood anyway.
 
-The arguments repeated with different speakers and the same bones.
+After dark the bells slowed, and the slower pace made everyone more
+nervous, not less. Teams reset ward ribbons by lanternlight and replaced
+cracked marker stones with borrowed anchors. In the pauses between calls,
+people leaned against walls and closed their eyes for ten breaths, then
+opened them again when a runner passed.
 
-Rachel heard pieces of them while crossing from north ward to spillway
-line.
+Rachel ended up at the western marker line with Arathen while workers
+finished tying fresh ribbons to old posts.
 
-She did not stop.
+The sky was clear. The town was quiet enough to hear buckets set down in
+nearby courtyards.
 
-At the spillway, a seam opened beneath marker stone and split into two
-branches before anyone cast.
+Rachel closed her eyes and reached beneath local strain.
 
-"That's new," Ilyra said, too calm.
-
-Rachel corrected left branch.
-
-Right branch widened anyway.
-
-Sivara slammed reinforcement into the right and held it long enough for
-Rachel to pivot and rotate secondary axis.
-
-The seam closed.
-
-Two houses downhill evacuated just in time.
-
-No fatalities.
-
-One broken wrist.
-
-Three cracked support beams.
-
-Another notch on Edrin's map.
-
--------------------------------------------------------------------------
-
-Council called emergency review at dusk.
-
-Not full chamber session. Too many events still active.
-
-A standing conference around the war table in Thornhaven's logistics
-room, everyone still in field gear.
-
-Rethan opened with no preamble.
-
-"Frequency curve is no longer linear. If this continues, civilian safety
-requires relocation of the central variable."
-
-He looked directly at Rachel when he said central variable.
-
-Sivara answered before Rachel could.
-
-"You are not relocating my walker mid-escalation while hinges are
-targeting her position."
-
-"Precisely why relocation is required," Rethan snapped. "Remove attractor,
-reduce clustering."
-
-Edrin pushed a map forward.
-
-"That assumption is unsupported."
-
-Rethan glared.
-
-Edrin did not flinch.
-
-"Event distribution is adjusting around intervention sites, yes, but
-long-range vectors predate this week's cluster. If you move Rachel now,
-pattern may follow and leave Thornhaven under-defended."
-
-Halvare added, quiet and exact:
-
-"Field observation supports that risk."
-
-Rethan's jaw tightened.
-
-"Observation is not strategy."
-
-"Neither is panic wearing procedure," Ilyra said.
-
-Meredin finally spoke.
-
-"No relocation order tonight."
-
-Rethan started to object.
-
-Meredin lifted one hand.
-
-"No relocation order tonight," he repeated. "We reevaluate at first light."
-
-The compromise pleased no one.
-
-It held anyway.
-
--------------------------------------------------------------------------
-
-After dark, alarms came slower.
-
-That should have felt like relief.
-
-It didn't.
-
-Rachel stood at the western marker line with Arathen while teams reset
-ward ribbons and replaced cracked anchor stones by lanternlight.
-
-The sky was clear and mercilessly calm.
-
-She closed her eyes and felt beneath the local noise.
-
-There it was again.
-
-Not one seam.
-
-A broad structural resonance rising in deep intervals, like massive
-supports aligning somewhere beyond visible boundary.
+She felt it at once: a broad resonance moving in deep intervals somewhere
+beyond visible boundary, like heavy supports settling into alignment.
 
 "It's building," she said.
 
-Arathen's hand rested lightly at the small of her back.
-
+Arathen rested a hand at the small of her back, warm through damp cloth.
 "Here?"
 
-"Everywhere and west."
+"Here, and past here. It keeps leaning west."
 
-He did not ask her to explain that contradiction.
+He didn't ask her to make that make sense in ordinary words. He had seen
+too much over the last few days to demand ordinary.
 
-He had watched too much this week to demand ordinary language from
-extraordinary pressure.
+From town center, voices carried faintly in the dark.
 
-From town center, distant voices carried:
+"Another bell?"  
+"False one."  
+"Keep your boots by the door anyway."
 
-"Another one?"  
-"No, false bell."  
-"Keep your boots by the door."
+Rachel opened her eyes. The western fields looked unchanged.
 
-Thornhaven was learning to sleep in fragments.
+The pull under them did not.
 
-Rachel opened her eyes.
-
-The western dark looked unchanged.
-
-The pull beneath it said otherwise.
-
-Something was assembling.
-
-Not random.
-
-Not local.
-
-And soon, very soon, whatever had been testing thresholds was going to
-stop testing and start trying to open something.
+Whatever had been testing Thornhaven was gathering itself for something
+larger, and everybody in town seemed to feel it even if they didn't have
+her language for it.

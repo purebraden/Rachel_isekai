@@ -2765,6 +2765,7 @@ No announcement. No debate. Just placement.
 Rachel stepped back from the well, aware that the distance between her hands and everyone watching them had shortened overnight. Arathen fell into step beside her, not touching, not shielding, but solid in a way that kept the thinness in the air from turning into fracture. Behind them, Mirrel’s gaze remained fixed on the square rather than on his son, and Caelen did not look away from Rachel this time.
 
 A cart rattled past, someone calling after it about loose iron bands, and the sound carried farther than it should have. Rachel did not turn to see whether Vaelis was writing again. She already knew the square would feel different tomorrow, whether anyone said so or not.
+By dawn, everyone in Thornhaven would know where to stand to watch.
 
 
 ---
@@ -4597,6 +4598,7 @@ She barely recognizes it.
 But Arathen does.
 
 And for now, that's enough.
+By morning, enough would not buy her any peace at all.
 
 
 ---
@@ -5618,6 +5620,7 @@ space between herself and the people around her, and for the first time
 understood that saving them had not closed the distance.
 
 It had defined it.
+And distance was exactly where the next fracture would look for her.
 
 
 ---
@@ -6611,6 +6614,7 @@ It felt like being cataloged.
 Maelin touched her elbow. "Come home."
 
 Rachel nodded, took one last look at the square, and went with them.
+Behind her, the square kept its new geometry, as if waiting for her to step back into it.
 
 
 ---
@@ -9138,6 +9142,7 @@ solidify into despair.
 
 Her voice carried across the square, and people moved because moving was
 how you stayed alive.
+As Rachel turned, the recessed line gave one faint answering pulse.
 
 
 ---

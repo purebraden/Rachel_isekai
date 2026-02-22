@@ -8895,6 +8895,9 @@ pressure did not feel like attack.
 
 It felt like invitation with terms.
 
+For one disorienting heartbeat she wondered whether Theryn had stood at a
+line like this years ago, hearing the same low note in her bones.
+
 Sivara came to stand at her shoulder.
 
 "If you step through, we do not know return conditions."
@@ -8967,6 +8970,9 @@ She could keep Thornhaven in sight and pretend that unanswered questions
 would stay patient forever.
 
 The resonance under her ribs said otherwise.
+
+Somewhere inside that pull was the thought she had been avoiding: if
+Theryn had crossed and been recognized, recognition might run both ways.
 
 It had said otherwise for a long time.
 

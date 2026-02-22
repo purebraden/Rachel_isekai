@@ -8,6 +8,8 @@
 
 Rachel Mercer’s life was fine.
 
+By nightfall, that word would stop fitting.
+
 That was the word she used when people asked. Fine. A useful word. A word that nodded and smiled and closed the conversation before it could wander into uncomfortable territory. Fine meant a job that didn’t make her cry in the bathroom anymore—not often, anyway—and friends who sent her memes at midnight like proof of continued existence. Fine meant a boyfriend who showed up with fries even when she said she wasn’t hungry, which was a lie she told often enough that he’d learned to translate it.
 
 Fine meant rent paid on time, groceries in the fridge, a car that usually started on the first try.
@@ -317,6 +319,9 @@ Rachel's chest tightened. "No what?"
 
 "You're not on Earth," Maelin said gently. "I'm sorry. This isn't your world."
 
+Somewhere deep in the stone around them, a carved line hummed once and
+went still, as if the building had heard her name and filed it.
+
 The room tilted. Not like before, not like magic—just the normal way the world tilted when it stopped making sense.
 
 "That's not possible," Rachel said.
@@ -519,6 +524,9 @@ Rachel drew her hand back and stared at it. Her palm tingled, warm in a way that
 Like finding a word in a language she'd never been taught but somehow still understood.
 
 The rightness of it made her stomach turn.
+
+It also gave her one hard, dangerous fact to hold: whatever this place
+was, some part of her could affect it.
 
 Maelin stood frozen, her hand still outstretched where the cup had been. Her eyes were wide.
 
@@ -1045,6 +1053,10 @@ She looked at each of them in turn. Maelin, determined. Edrin, guilty and earnes
 Three strangers who'd accidentally kidnapped her and were now promising to help fix the unfixable.
 
 "Okay," Rachel said finally. "Then we work fast. Together. And we figure this out before I run out of time."
+
+"And quietly," Ilyra added. "If the March wardens hear about uncontrolled
+boundary effects before you can stabilize, this stops being our problem
+and starts being jurisdiction."
 
 Edrin nodded.
 

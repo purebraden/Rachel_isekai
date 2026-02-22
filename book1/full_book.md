@@ -405,6 +405,7 @@ Breathing stayed slow. Expression stayed neutral. Thoughts stayed private.
 Underneath the fear, something else stirred—warm, present, unmistakably hers.
 
 She pressed her hand against her chest and felt it pulse there, waiting.
+In the corridor beyond, someone said her name in a voice gone tight with urgency.
 
 
 ---
@@ -621,6 +622,7 @@ She didn't press.
 The room carried on around her—someone picking up a plate, the pot lid settling back into place, a chair leg scraping before being corrected. Careful movements. Ordinary ones.
 
 Rachel stayed where she was, counting time by the small motions people made when they weren't sure how to proceed.
+Edrin finally stood, and the way he reached for his notes told her waiting was over.
 
 
 ---
@@ -1086,6 +1088,7 @@ Rachel looked at each of them in turn. They'd stayed. Through the disaster, thro
 "We don't run," Ilyra said with a slight smile, reading Rachel's expression. "Not our style."
 
 Rachel found herself almost smiling back.
+Outside, somewhere past the walls, the Near March shifted again.
 
 
 ---
@@ -2223,6 +2226,7 @@ Rachel's attention drifted back to the space where the bead had hung suspended. 
 Maelin's hand rested briefly on her shoulder. "Come sit down. I'll make tea."
 
 Rachel nodded, suddenly aware of how much she wanted exactly that—to sit, to have someone care for her in small ways, to not be alone with what she'd just discovered she could do.
+No one said it out loud, but delay was beginning to look like its own kind of danger.
 
 
 ---
@@ -2724,6 +2728,7 @@ Maelin paused in her own packing and looked over. "You all right?"
 "No," Rachel said. "But I will be."
 
 Maelin nodded, accepting that.
+A low horn sounded from the eastern watch and cut off mid-note.
 
 
 ---
@@ -3086,6 +3091,7 @@ Rachel looked around the impossible space—walls that shouldn't exist, light fr
 Rachel nodded and lay back, staring at the curved ceiling.
 
 Outside, the road waited. Inside, her eyes stayed open.
+Just before sleep almost took her, the eastern marker line pulsed under her ribs like a second heartbeat.
 
 
 ---

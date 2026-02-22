@@ -1,240 +1,282 @@
-# Chapter 33 — Necessary and Merciful
+# Chapter 33 — Faultline Sleep
 
-Edrin didn’t leave after he set the folios down.
+Rachel did not mean to fall asleep sitting up.
 
-He tried, at first. He made the motions of it—fingers gathering loose
-pages into a tighter stack, the cloth wrap folded and refolded as if
-neatness could make the words less sharp—but every time his gaze dropped
-to the ink his body betrayed him, tension tightening his shoulders in
-that quiet, academic way that meant he’d found something he could not
-unfind.
+She had planned to review Edrin's notes, then walk the perimeter once
+before midnight, then maybe pretend rest counted if she closed one eye at
+a time.
 
-Sivara stayed at the table with her hands folded, posture composed, eyes
-moving across the margins as if she could see the shape of the missing
-pages through the binding. Maelin poured tea no one drank. Ilyra hovered
-like a storm in a hallway, pretending she wasn’t listening while
-catching every word. Arathen remained behind Rachel’s chair, steady in
-the way he was steadying her now, not with grip or command, but with
-presence.
+Instead she woke into dream-space with her boots still on.
 
-Rachel sat with her hands resting on her knees, the pressure beneath her
-awareness still stretched wide beyond Thornhaven, quiet enough that she
-could almost pretend it was imagination, persistent enough that
-pretending felt like a lie.
+The square stretched around her in perfect Thornhaven detail and perfect
+wrongness. Lanterns burned without flame movement. The fountain poured
+water that never reached the basin. Every house stood occupied by silence.
 
-Edrin cleared his throat.
+No footsteps.
 
-“I went back,” he said. “Not to the main shelves. To the ledger room. To
-the catalog lists that reference documents that are no longer there.”
+No voices.
 
-Sivara’s gaze flicked to him. “The removal records.”
+No dogs.
 
-Edrin nodded once. “The ones that aren’t supposed to exist.”
+The stillness felt arranged.
 
-He pulled a smaller packet from the bottom of his stack, thin pages
-stitched together with thread so old it looked brittle. The handwriting
-was sharper here, more formal, like a record meant to survive disputes.
-He laid it open and turned it so the table could share it.
+"You are getting predictable," Vex said from behind her.
 
-“This isn’t a person,” he said quietly. “It’s an event index.”
+She turned.
 
-Rachel leaned forward before she realized she had moved.
+He stood by the chalk table from the Council demonstration, one hand on
+its edge, expression almost amused. Dark coat, pale eyes, the same
+controlled posture from earlier intrusions, but tension sat underneath it
+now like a blade under cloth.
 
-The page was full of dates and labels, lines of ink that looked ordinary
-at first glance until her eye caught the repeated structural
-language—reconfiguration, realignment, redistribution.
+"You arrive when I'm tired," Rachel said.
 
-Edrin traced a finger down the entries. “Look.”
+"You are almost always tired."
 
-Designations appeared beside the dates.
+He stepped lightly over a chalk line that wasn't there a moment ago.
 
-Axisborne.
+"Your town tastes of fear tonight."
 
-Again.
+Rachel kept her breathing even.
 
-And again.
+"You don't get to speak for my town."
 
-And again.
+Vex's smile thinned.
 
-The word sat there like it belonged, like it had always belonged, like
-it had never been meant to feel rare at all.
+"Your town speaks loudly enough."
 
-Rachel’s mouth went dry.
+The square shifted.
 
-“How many?” Arathen asked.
+Shadows filled with figures.
 
-“At least nine entries that survived,” Edrin said. “There may have been
-more. There are gaps where the binding shows replacement stitching.”
+Not full people.
 
-Sivara’s gaze narrowed as she scanned the list. “These dates… some
-correspond with doctrine revisions.”
+Impressions of people she knew: townsfolk at threshold distance, faces
+half-lit, attention pointed at her with caution sharpened into blame.
 
-“Yes,” Edrin said. “After the Third Realignment, reinforcement protocols
-changed. After the Westward Rebinding, travel restrictions shifted.
-After this one—” He tapped a line. “The classification system itself was
-reorganized.”
+She saw Caelen's bound arm.
 
-Ilyra exhaled slowly. “So the Council’s rules are built on what happens
-after these events.”
+Saw a mother pulling a child back.
 
-Sivara did not argue.
+Saw Rethan signing decrees with her name turned into policy language.
 
-Edrin turned the page.
+Then Arathen stepped out of shadow.
 
-The report was written in formal Council dialect, ink steady and
-restrained.
+Not Arathen.
 
-He read aloud.
+A perfect near-copy with the wrong eyes.
 
-“ ‘Subject exhibited increased perceptual divergence during
-redistribution phase.’ ”
+"You keep saying you'll stay," false Arathen said. "But everything bends
+around you now. What happens when we break?"
 
-Rachel’s stomach tightened.
+Rachel's stomach dropped and steadied.
 
-Perceptual divergence.
+"He wouldn't ask it like that."
 
-Edrin continued.
+The figure smiled with Arathen's mouth and Vex's patience.
 
-“ ‘Cognitive strain noted in late-stage hinge sensitivity.’ ”
+"He will, eventually."
 
-Sivara spoke evenly. “Advanced hinge perception can distort orientation.
-Time perception shifts. Sound carries irregularly. Sleep becomes
-unstable.”
+-------------------------------------------------------------------------
 
-Maelin’s gaze sharpened. “You’re saying it like it’s routine.”
+The dream thickened.
 
-“I’m saying it like it’s documented,” Sivara replied.
+Boundary seams opened along the square's edges. Not one. Dozens. Tiny,
+controlled tears breathing in and out as if the town itself were a lung
+under stress.
 
-Edrin read further.
+Vex walked backward through them as though on flat ground.
 
-“ ‘Progressive fragmentation risk increased with continued
-individuation.’ ”
+"You fear being singular," he said. "Classified. Regulated. Isolated."
 
-The word lingered.
+Each word landed like a pin in old bruises.
 
-Fragmentation.
+"You fear becoming necessary."
 
-He swallowed and continued.
+Rachel felt anger flare and forced it down.
 
-“ ‘Resolution enacted to prevent prolonged cognitive degradation.’ ”
+"You came to break my confidence."
 
-Arathen’s hand tightened slightly on Rachel’s chair.
+"No," Vex said softly. "I came to test its load."
 
-Edrin’s voice lowered.
+He flicked two fingers.
 
-“ ‘Integration proceeded without extended distress. Outcome deemed
-necessary and merciful.’ ”
+The false Arathen turned away.
 
-Necessary and merciful.
+Sivara appeared in the crowd and called Rachel an unstable event index.
+Maelin closed a door without looking at her. Ilyra lowered her spear and
+stepped aside while fractures spread.
 
-The phrase fell softly.
+None of it was real.
 
-Ilyra’s jaw tightened. “Merciful for who?”
+All of it was targeted.
 
-Sivara did not answer immediately.
+Rachel planted her feet on dream-cobbles that flexed like skin over
+structural wire.
 
-Her gaze drifted from the page to the table’s worn grain.
+"You keep trying the same strategy," she said. "Fear, then pressure, then
+offer."
 
-“I trained with a walker named Hethren,” she said at last. “His hinge
-sensitivity was acute. He could anticipate strain before any of us. He
-said it felt like standing inside a structure and sensing every beam
-shift.”
+Vex tilted his head.
 
-Rachel’s pulse ticked higher.
+"Offer?"
 
-“At first it made him invaluable,” Sivara continued. “Then he stopped
-sleeping. He insisted the strain was constant. He began responding to
-pressures no one else could detect. We adjusted assignments. It did not
-change the divergence.”
+"That I should come where you're pointing."
 
-A quiet breath.
+His smile vanished.
 
-“During redistribution in the western hills, he stepped forward before
-reinforcement stabilized. He said the hinge was calling for alignment.”
+"I don't point."
 
-Silence tightened.
+"Liar."
 
-“He walked into the strain,” Sivara said.
+The seams brightened.
 
-“We did not recover him.”
+One opened directly behind her and she felt it then, clear as physical
+touch: the tether between them, a geometric line running not through
+space but through layered perception.
 
-Ilyra’s voice cut through the room. “That isn’t integration.”
+She had sensed it once before, faint and uncertain.
 
-“No,” Sivara agreed. “It was fragmentation.”
+Now she saw it.
 
-“And the second?” Edrin asked quietly.
+Not a cord.
 
-Sivara’s fingers pressed lightly to the table.
+A rotating axis joint, black-silver and sharp, anchored at her spine and
+vanishing into him.
 
-“Maris,” she said. “She refused doctrine adjustments. She believed
-divergence was insight rather than deterioration. She continued active
-hinge work.”
+Vex saw her see it.
 
-A pause.
+For the first time in any dream, he stepped back.
 
-“She began losing time. Hours unaccounted for. She would stand in one
-place and speak as if responding to someone none of us perceived.”
+-------------------------------------------------------------------------
 
-Rachel did not move.
+"Do not," he said.
 
-“During a redistribution phase much like this one, she vanished from
-assigned watch.”
+Too late.
 
-Maelin’s hand hovered near Rachel’s without touching.
+Rachel reached not for his projected illusions, not for the square, not
+for the seams.
 
-“There was no rupture. No body. Only absence.”
+She grabbed the axis.
 
-The room absorbed that.
+Pain flashed white behind her eyes. The tether vibrated with impossible
+depth, as if every prior intrusion existed in stacked layers she could
+rotate through.
 
-“The Council concluded prolonged individuation under that degree of
-divergence is unstable,” Sivara said quietly. “Integration prevents that
-spiral.”
+Vex moved fast, trying to sever.
 
-Necessary.
+She turned faster.
 
-Merciful.
+Not full inversion.
 
-Rachel kept her face composed.
+A flicker.
 
-Inside, something settled.
+One angle.
 
-Hethren walked into strain.
+Enough.
 
-Maris vanished during redistribution.
+The dream split.
 
-The Council called integration relief.
+For a heartbeat she stood in his space.
 
-Rachel understood the logic.
+Not Thornhaven.
 
-She rejected the ending.
+Not boundary.
 
-Arathen looked down at her then, reading the stillness in her posture.
+A domain of stepped black architecture suspended over moving void, lines
+of territory drawn like military maps made physical. Towers grown from
+mathematics. Gates sealed and resealed. Every structure optimized for
+control.
 
-“Rachel,” he said softly.
+She saw his ambition as geometry:
 
-She met his eyes.
+Catalog all hinges.
 
-I’m here.
+Own all transitions.
 
-Edrin gathered the papers again, slower now.
+Become indispensable to every crossing.
 
-“We don’t know how close we are,” he said. “The redistribution phase…
-the historical pattern…”
+And under that ambition, sharp and private, fear:
 
-Sivara’s gaze shifted to the window.
+Someone new could surpass him.
 
-“We are in it,” she said quietly.
+Someone unclassifiable.
 
-Rachel felt the pressure beyond Thornhaven again, wide and patient.
+Her.
 
-Necessary and merciful.
+Vex struck the tether with both hands.
 
-She held the words and felt her answer settle beneath them.
+The angle snapped out of her grip.
 
-No.
+The domain vanished.
 
-She did not speak it.
+They were back in frozen Thornhaven dream.
 
-She did not need to.
+Vex no longer looked amused.
 
-It was already there.
+"What are you becoming?" he asked.
+
+Rachel's voice shook once and then steadied.
+
+"Less available for study."
+
+He withdrew without flourish, dissolving into seam-light that collapsed
+behind him.
+
+The false crowd vanished with him.
+
+The fountain crashed all at once, finishing a fall it had delayed for
+minutes.
+
+-------------------------------------------------------------------------
+
+Rachel woke on the floor beside her chair.
+
+Arathen knelt next to her, one hand at her shoulder, the other pressing a
+cloth to her palm where crescent marks showed she'd dug her own nails too
+deep.
+
+"Rachel. Stay with me."
+
+She blinked hard. Her ears rang.
+
+The house wards were still intact but three sigil tiles near the doorway
+had hairline cracks running through them, faint smoke lifting from one.
+
+Sivara stood in the hall with Maelin and Ilyra, both already awake,
+already armed.
+
+"Dream intrusion?" Sivara asked.
+
+Rachel nodded.
+
+"Phase three," she whispered before she could stop the classification
+language.
+
+Sivara's eyes narrowed.
+
+"Did he breach physically?"
+
+"No."
+
+Rachel pushed herself upright with Arathen's help.
+
+"But I reached back."
+
+No one spoke for a beat.
+
+Then Ilyra, quiet for once:
+
+"Can you do that again?"
+
+Rachel looked at the cracked ward tile.
+
+"Yes," she said, and hated how true it felt.
+
+Outside, Thornhaven stayed dark and breathing.
+
+Inside, Rachel held the memory of Vex's territory like a shard under skin.
+
+She could find him now.
+
+And he knew it.

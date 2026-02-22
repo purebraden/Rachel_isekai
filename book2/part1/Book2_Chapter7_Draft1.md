@@ -1,4 +1,4 @@
-# Chapter 7
+# Chapter 7 — What Are You
 
 The pressure deepened as Rachel stepped into the basin, shifting from
 distant tension into something immediate and weight-bearing, as though

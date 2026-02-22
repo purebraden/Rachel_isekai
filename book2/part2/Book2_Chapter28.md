@@ -1,214 +1,157 @@
-# Chapter 28 — The Staying
+# Chapter 28 — Deliberation
 
-The square did not empty when the seam closed.
+The square stayed tense long after the demonstration ended. People
+drifted in and out of small knots, speaking low and then falling quiet
+whenever Rachel crossed their line of sight. Chalk still marked the
+cobbles. A reinforcement table sat where the Council had placed it,
+unused now, but nobody seemed willing to move it.
 
-If anything, it held people tighter, as though the air had not quite
-decided it was finished pressing against their lungs. The chalk lines
-remained bright against the stone. The reinforcement table stood where
-Meredin had last touched it, dust faintly marking the place his palm had
-pressed. The bucket that had tipped earlier lay on its side, a thin
-crescent of water spreading in an uneven arc that no one stepped into.
+By afternoon, a clerk came looking for Sivara and Vaelis, and half an
+hour later a second clerk came with the same set jaw and the same polite
+voice to tell Rachel she was not required for the first session, as if
+that phrase could sound neutral if you said it carefully enough.
 
-People did not know where to look.
+Arathen heard it and gave the clerk a flat look that would have cut less
+if it had been louder.
 
-At the stone. At the chalk. At Rachel. At one another.
+They waited in the corridor outside the chamber while aides carried
+ledgers in both arms and copied maps under one elbow. Edrin crouched with
+parchment over his knees and pretended to compare notations, though every
+few breaths his eyes lifted to the door. Ilyra leaned against the wall
+with her arms folded, boot heel scraping once, twice, then going still
+when she caught herself doing it.
 
-Rethan spoke first.
+Maelin stood at Rachel's shoulder and pressed a wrapped heel of bread
+into her hand without comment. Rachel held it and forgot to eat it.
 
-“That effect extended beyond the seam,” he said, voice controlled but
-edged. “Town-wide compression.”
+"You can walk if you need to," Maelin said quietly.
 
-A murmur stirred — not loud, not unified — just a low grinding sound of
-people remembering the weight in their ribs.
+Rachel shook her head. "If I start pacing, everyone starts pacing."
 
-Halvare did not immediately answer. His attention lingered on the
-repaired stone, on the faint seam-line that only trained eyes could
-still detect.
+That earned the smallest curve at Maelin's mouth. It vanished before it
+quite became a smile.
 
-“It extended,” he said at last, “because the phenomenon had an
-audience.”
+Inside, voices rose and lowered in careful rhythms. Rethan's clipped tone
+carried through once, then Sivara's sharper answer, then a stretch of
+silence that felt worse than either. By the time the clerk opened the
+door again and called Rachel forward, the bread in her palm had warmed
+and gone soft.
 
-Rethan’s jaw tightened. “It extended because the phenomenon is not
-local.”
+She handed it back to Maelin and stepped inside alone.
 
-Meredin lifted his gaze toward the town.
+The chamber had been rearranged while she waited. The long table was on
+the raised platform; Meredin sat at center, Rethan to his right with
+three open records, Halvare to his left with fewer pages but dense notes
+in the margins. Vaelis stood behind them near the map board, looking more
+tired than he had that morning. Sivara was on the floor level, upright,
+hands at her back.
 
-“Thornhaven,” he said, and the simple address pulled the murmuring down
-into something focused. “You have experienced an escalation. Whatever
-this convergence is, it has moved beyond isolated engagement.”
+Rachel stopped at the petition mark in the stone and waited for someone
+to speak first.
 
-“You couldn’t breathe,” someone said from the back.
+Meredin did.
 
-“We all felt it,” another voice added, closer.
+"The Council has reached a provisional ruling."
 
-Meredin inclined his head once.
+Rethan took over with procedural precision, as if precision itself could
+prevent argument.
 
-“The Council will retain a presence here.”
+"Your methods diverge from established walker practice. Civilian exposure
+was significant in today's demonstration. Apprentice replication has
+already caused injury. Regulation is necessary."
 
-This time the words did not settle quietly.
+Halvare's fingers tapped once on the table and went still. "And she is
+the reason the square remained standing after conventional closure failed.
+That must be in the same sentence."
 
-“You can’t just stay,” a man near the fountain said, louder than he
-intended.
+Rethan did not look at him. "It is in the record."
 
-Rethan turned toward him with precise stillness.
+Meredin lifted a hand before the exchange could harden. The clerk
+unrolled a short decree and read in formal cadence.
 
-“We can.”
+Thornhaven retained internal governance under Mentor Sivara.
 
-The reply landed harder than the announcement.
+Rachel was not prohibited from active response work.
 
-A ripple moved through the crowd — friction, recognition that something
-had shifted shape around them.
+Rachel would remain under formal observation protocol during the current
+escalation.
 
-Sivara stepped forward before that ripple could gather momentum.
+Instructional transmission of her method was suspended; no teaching
+demonstrations until replicability review concluded.
 
-“This is Thornhaven,” she said, voice sharpening. “Your presence will
-not become occupation.”
+Weekly intervention records would be copied to Council archive.
 
-Meredin met her gaze. “We are not here to seize governance.”
+Observer assignment: Councilor Halvare.
 
-Rethan’s eyes remained hard. “We are here to prevent escalation.”
+By the third clause Rachel could feel the old pressure in her chest, the
+one that had nothing to do with seams.
 
-Halvare spoke without looking away from Rachel. “Escalation already
-occurred.”
+"You turned my life into filing language," she said before she had time
+to smooth the edges off the words.
 
-“She saved us,” someone near the bakery said.
+Vaelis flinched, barely.
 
-“And she caused it,” another voice cut in. “It wasn’t like this before.”
+Rethan answered without heat. "We turned unprecedented risk into
+accountable process."
 
-The two statements collided.
+Sivara stepped forward one pace, voice steady and dangerous in the way
+that came from restraint.
 
-“That seam would’ve torn the square in half—”
+"Process is what you call it when your classification system cannot hold a
+person."
 
-“You don’t know that—”
+Meredin watched both women for a beat, then looked back to Rachel. "Your
+mentor's dissent is recorded."
 
-“I couldn’t breathe—”
+"It should be," Sivara said.
 
-“Because she held it—”
+Signatures followed in practiced order. Meredin. Rethan. Halvare last,
+careful, not hurried. Vaelis did not sign. He remained where he was,
+hands clasped behind him, gaze on Rachel as if he wanted to say something
+that had no useful shape in that room.
 
-“Or because she pulled it—”
+When the chamber doors reopened, evening had gone blue along the roof
+edges and the square had already done what towns do: it translated formal
+decree into three lines of practical gossip.
 
-Voices overlapped, fractured into smaller arguments. The split became
-visible, running through the town like another fault line.
+They are staying.
 
-Rachel stood inside it.
+She can still work.
 
-Rethan lifted a hand and the volume dipped without vanishing.
+She can't teach.
 
-“This is precisely why the Council remains,” he said. “The phenomenon
-affected civilians.”
+Faces turned as Rachel crossed the cobbles. Some of them looked relieved.
+Some looked wary and guilty about it. Most looked tired.
 
-“We are boundary walkers,” Sivara replied sharply. “We accept risk.”
+Halvare caught up to her near the fountain, keeping an even distance
+instead of stepping into her path.
 
-“You are citizens,” Rethan countered. “And your citizens were
-compromised.”
+"I will report what occurs," he said. "Not what anyone hopes occurs."
 
-Halvare’s gaze flicked to Rachel. “Compromise implies failure. I
-observed adaptation.”
+Rachel looked at him. "You report on me."
 
-“Adaptation that impacted an entire square,” Rethan shot back.
+"I report on events around you. In practice, there is overlap."
 
-“Enough,” Meredin said quietly.
+It was not comforting, but it was honest.
 
-The overlapping arguments thinned.
+Arathen joined them, with Maelin and Ilyra close enough to hear if they
+chose. Arathen asked what everyone had been thinking.
 
-“We will remain,” Meredin continued. “A limited delegation. Records
-reviewed. Reinforcement arrays expanded. No authority over town
-governance. Oversight of the phenomenon only.”
+"The no-teaching clause stands?"
 
-“Over her,” the accusing voice said.
+"For now," Halvare said. "Until Council says otherwise."
 
-Meredin’s gaze found the speaker.
+Ilyra gave a short laugh that had no humor in it. "So forever."
 
-“Over the phenomenon,” he corrected.
+Halvare did not argue.
 
-“And what do you call her, then?”
+Workers had begun scrubbing chalk from stone with wet cloth and stiff
+brushes. The lines faded, reappeared in damp patches, then faded again.
+Rachel watched them work and felt, with some surprise, that regulation
+hadn't felt like a cage in that room.
 
-A woman stepped forward — flour dusting her sleeves.
+It felt like being cataloged.
 
-“We call her the one who kept the square standing.”
+Maelin touched her elbow. "Come home."
 
-“And we call her the reason the air turned to stone,” the older man
-replied.
-
-The split deepened.
-
-Sivara moved to Rachel’s side.
-
-“She is my apprentice,” Sivara said. “She will not be spoken about as an
-object under examination.”
-
-Rethan did not hesitate. “She is under examination.”
-
-A sharper intake of breath moved through the square.
-
-Arathen shifted subtly closer to Rachel.
-
-Vaelis spoke then, strain in his voice.
-
-“Thornhaven will cooperate,” he said. “But we will not fracture
-ourselves in the process.”
-
-Meredin’s expression tightened.
-
-“For now,” he said, “the Council’s presence stands.”
-
-No one agreed aloud.
-
-The Council withdrew toward assigned quarters. Rethan spoke sharply to
-an attendant. Halvare paused at the chalk lines. Vaelis followed last.
-
-Clusters formed instead of dispersal.
-
-“She held it—”
-
-“My son was right there—”
-
-“I felt it in my bones—”
-
-“You don’t know what she did—”
-
-A woman approached Rachel halfway, then stopped.
-
-“My boy was near the line,” she said.
-
-“I didn’t mean—” Rachel began.
-
-“I know,” the woman said quickly. She did not step closer.
-
-The baker’s sister gave Rachel a firm nod. The older man avoided her
-gaze entirely.
-
-Ilyra murmured, “They’ll build around you. If they decide you’re
-central, they’ll design the whole town like you’re load-bearing.”
-
-Sivara’s hand closed around Rachel’s forearm.
-
-“Come.”
-
-They moved toward the edge. The crowd made room cautiously.
-
-Arathen remained steady at her other side.
-
-“They are staying,” Sivara said low once they reached quieter ground.
-
-Rachel nodded.
-
-“They do not get to turn this town into a case file,” Sivara added. “And
-they do not get to turn you into one.”
-
-Rachel looked back toward the chalk lines, the arguing clusters, the
-Council’s retreating forms.
-
-The air felt ordinary again.
-
-That felt worse.
-
-“What if it forms again?” she asked.
-
-Sivara followed her gaze to the center of the square.
-
-“Then they will see it,” Sivara replied.
-
-Her grip tightened once before releasing.
-
-“And so will we.”
+Rachel nodded, took one last look at the square, and went with them.

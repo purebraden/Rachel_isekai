@@ -1,4 +1,4 @@
-# Chapter 5
+# Chapter 5 — Eastward Tremor
 
 The ward hum followed Rachel into the hall and refused to smooth itself
 back into its usual quiet.

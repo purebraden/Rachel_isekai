@@ -1,4 +1,4 @@
-# Chapter 1
+# Chapter 1 — Morning in Thornhaven
 
 Morning came softly to Thornhaven, not in a rush but in slow widening
 bands of light that crept across stone and linen and the curve of a

@@ -6490,6 +6490,9 @@ Rachel was not prohibited from active response work.
 Rachel would remain under formal observation protocol during the current
 escalation.
 
+Her pending territorial claim hearing remained suspended under emergency
+variance until boundary conditions stabilized.
+
 Instructional transmission of her method was suspended; no teaching
 demonstrations until replicability review concluded.
 

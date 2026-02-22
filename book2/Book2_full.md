@@ -2389,6 +2389,13 @@ everything to do with needing a name for what was happening inside her.
 
 Instead, Sivara said, "Again."
 
+Rachel let out a short, unguarded breath that was half laugh, half
+irritation.
+
+"You could just say you don't trust what you're seeing."
+
+"Trust is not the question," Sivara replied. "Repeatability is."
+
 Rachel obeyed.
 
 The third correction came more easily still, not because she exerted
@@ -2474,6 +2481,10 @@ wondered---not with fear, but with growing awareness---whether what she
 was becoming had ever belonged to hinge doctrine at all.
 
 The seam answered only with its steady hum.
+
+That night she slept lightly and woke once with her name caught at the
+edge of hearing, as if someone had said it just outside the dream and
+then stepped back before she could find them.
 
 
 ---
@@ -2605,6 +2616,11 @@ he said.
 
 Vaelis inclined their head. "As it should."
 
+Mirrel spoke before the room could settle again, voice still even but no
+longer deferential. "If her variance is central to this pattern, I want a
+clear answer now. Are we being asked to protect Rachel from the boundary,
+or the boundary from Rachel?"
+
 "The walker is present," Vaelis said.
 
 Rachel felt the warmth gather faintly in her palms. "I am."
@@ -2667,6 +2683,9 @@ The shimmer wavered when she crouched, subtle and undecided. The old motion — 
 Vaelis began writing.
 
 The sound of the pen against paper scraped louder than it should have, and she felt it along her spine in a way the seam itself hadn’t managed. Senna, who had never learned how not to observe aloud, murmured that Rachel hadn’t touched it, and Vaelis answered with a quiet confirmation that carried farther than either of them intended. Mirrel exhaled through his nose — not anger, not yet, but something braced — and when Rachel rose she caught Caelen staring openly at her hands, awe written across his face before embarrassment chased it away.
+
+For one ugly second she wanted to turn and tell Vaelis to stop writing
+her like weather.
 
 Edrin hovered near the edge of the square, a stack of loose pages tucked beneath his arm as if he had meant to bring them somewhere and forgotten why. When Vaelis’s pen moved again, Edrin shifted, cleared his throat, and said too quickly, “There are precedents. Earlier hinge alignments. They weren’t bracing-first in every record.”
 
@@ -4382,7 +4401,11 @@ The alternative interpretations split the room.
 
 "But they're converging on her simultaneously," Edrin points out. "That can't be coincidence."
 
-"It's not," Sivara says. "Her divergence is becoming visible across multiple structural layers. Dream-space, physical boundaries, whatever architecture exists beyond the seal—she's resonating through all of it. Of course multiple forces are noticing."
+"It's not," Sivara says. "They're not allied, but they are reacting to
+the same signal. Her divergence is becoming visible across multiple
+structural layers. Dream-space, physical boundaries, whatever
+architecture exists beyond the seal—she's resonating through all of it.
+Of course multiple forces are noticing."
 
 Rachel's chest tightens. "I can't stop what I'm doing. The corrections happen whether I intend them or not now. The boundary adjusts to my proximity. I can't—" She stops, frustration cracking her voice. "I can't be smaller."
 

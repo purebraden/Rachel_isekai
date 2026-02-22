@@ -257,6 +257,10 @@ response."
 
 Standard.
 
+Standard meant catching it before bakeries shut their ovens and terrace
+families were told to clear out for the day. Standard was the difference
+between a warning bell and an evacuation bell.
+
 Rachel stepped toward the courtyard beside him, sunlight spilling across
 the threshold as the door opened. Morning air carried the metallic tang
 of stressed wards.
@@ -2323,6 +2327,8 @@ passed, replaced by stillness that was not calm so much as
 recalculation. The Council did not move quickly without reason. If they
 had chosen shadow passage rather than formal delegation, it meant the
 matter was not procedural.
+It also meant there would be little room for negotiation once they
+arrived.
 
 She closed the volume and rested her palm briefly against the cover, as
 if feeling for residual warmth, before stepping into the yard where
@@ -2746,6 +2752,9 @@ Mirrel’s fingers tightened briefly on his son’s shoulder before easing, as t
 “And if observation becomes expectation?” Mirrel asked, the word expectation carrying more weight than volume.
 
 Arathen’s voice entered then, low and steady. “Expectation always becomes demand.”
+
+“And demand becomes policy,” Vaelis said. “Policy can become custody very
+quickly when people are frightened.”
 
 Vaelis met his gaze, not confrontational, not retreating. The square held that tension just long enough for someone to laugh too brightly near the terraces, for a cart to rattle past and pull the moment back into motion. Nothing resolved. Nothing escalated. It simply settled into a different shape.
 
@@ -3505,6 +3514,8 @@ The silence that follows feels like falling.
 Rachel's throat tightens. "And if they decide hazard?"
 
 "Then the Council gets involved." Sivara's expression doesn't soften. "More than they already have."
+"If they classify you as a hazard under active convergence, they can
+issue protective mandate and remove local discretion."
 
 Arathen's hand finds Rachel's wrist under the table, thumb pressing gently against her pulse.
 
@@ -4424,6 +4435,8 @@ Rachel's chest tightens. "I can't stop what I'm doing. The corrections happen wh
 The kitchen falls quiet again.
 
 "The delegation is reporting to the Council tonight," Sivara says finally. "They'll recommend increased observation. Possibly restrictions on your activities. Possibly relocation to the Council seat for closer study."
+"If Rethan frames it as immediate civic risk," Vaelis said, "they can file
+an emergency transfer writ before week's end."
 
 "Like a specimen," Rachel says bitterly.
 
@@ -6149,6 +6162,9 @@ Halvare inclined his head.
 “Publicly,” Meredin added, and the word drew immediate reaction — a
 flinch, a muttered objection, someone beginning to protest before
 Ilyra’s sharp look quieted it.
+
+“Until review concludes,” Rethan added. “No unsupervised field
+interventions.”
 
 Vaelis did not speak at once.
 

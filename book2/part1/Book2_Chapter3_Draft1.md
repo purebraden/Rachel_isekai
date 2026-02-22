@@ -1,4 +1,4 @@
-# Chapter 3
+# Chapter 3 — The Architects
 
 The training circle held heat in its carvings long after the sun had
 shifted away, the stone remembering where energy had passed over it

@@ -1,4 +1,4 @@
-# Chapter 6
+# Chapter 6 — Eastward Road
 
 The east gate settled shut behind them, and with it the steady
 reinforcement of Thornhaven's lattice receded into something distant ---

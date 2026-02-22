@@ -1,4 +1,4 @@
-# Chapter 4
+# Chapter 4 — Dream Intrusion
 
 The embers had burned low by the time they climbed the stairs.
 

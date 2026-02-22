@@ -9,6 +9,8 @@
 Rachel Mercer’s life was fine.
 
 By nightfall, that word would stop fitting.
+By the next sunrise, three strangers in another world would be deciding
+whether she was a disaster or a solution.
 
 That was the word she used when people asked. Fine. A useful word. A word that nodded and smiled and closed the conversation before it could wander into uncomfortable territory. Fine meant a job that didn’t make her cry in the bathroom anymore—not often, anyway—and friends who sent her memes at midnight like proof of continued existence. Fine meant a boyfriend who showed up with fries even when she said she wasn’t hungry, which was a lie she told often enough that he’d learned to translate it.
 
@@ -1057,6 +1059,9 @@ Three strangers who'd accidentally kidnapped her and were now promising to help 
 "And quietly," Ilyra added. "If the March wardens hear about uncontrolled
 boundary effects before you can stabilize, this stops being our problem
 and starts being jurisdiction."
+
+"And jurisdiction means they decide what you are," Ilyra continued.
+"Asset. Threat. Tool. None of those come with a vote."
 
 Edrin nodded.
 
@@ -2314,6 +2319,9 @@ Ilyra's expression stayed flat. "That's where it gets complicated."
 
 Edrin rubbed at his temple, fingers pressing hard enough to leave marks. "The March has been expanding. Slowly, but measurably. Areas that were stable five years ago are fragmenting now. Trade routes collapse. Settlements evacuate. People disappear into boundary fractures."
 
+"Three caravan routes failed this season alone," he added. "Not delayed.
+Gone."
+
 "We've been trying to understand why," Maelin added. "To find a way to stabilize it. But the March doesn't follow normal rules. It's not just unstable—it's actively destabilizing everything around it."
 
 "Like a wound that won't heal," Ilyra said flatly. "Gets worse if you don't treat it."
@@ -2815,6 +2823,9 @@ Ilyra studied the terrain in both directions. "The left looks rougher. More over
 The others followed, and the pressure eased almost immediately, like stepping out of a room where the air had grown too close.
 
 Edrin stared at the map, then looked up, then back down. "It changed," he said quietly, something like awe in his voice. "The route just updated to match what Rachel sensed."
+
+He swallowed. "The marked bend just collapsed into a shear pocket.
+If we'd stayed on it, we would be in the break right now."
 
 "The map knows when someone who can actually read it is present," Arathen said, a hint of a smile in his voice. "It's showing her the truth instead of the approximation."
 
@@ -4382,9 +4393,16 @@ Rachel felt her power humming beneath her skin, ready to be called. Could she st
 
 The scout's expression shifted to something like respect. "Asking the right questions. No. I'm an observer, not an actor. Others will be threats. But I'm just here to document." They paused. "Though I'll give you one warning, free of charge: the demons who know about you now aren't all friendly. Some see opportunity. Others see threat. A few see both."
 
+"And some buyers don't want you dead," they added. "They want you
+contained. Studied. Owned."
+
 "Who sent you?" Rachel demanded.
 
-"Information brokers don't reveal clients," the scout said. "But you should know—you're not unknown anymore. Not unnoticed. Word has spread. And when I sell what I've learned about you..." They let the implication hang.
+"Information brokers don't reveal clients," the scout said. "But you
+should know—you're not unknown anymore. Not unnoticed. Word has spread.
+By tomorrow, your name will be in every exchangehouse between here and
+Thornhaven. And when I sell what I've learned about you..." They let the
+implication hang.
 
 Rachel's heart hammered, but she kept her voice steady. "If you're just an observer, observe this: I have powerful allies. I'm learning fast. And whoever buys your information should know I won't be an easy target."
 
@@ -4411,6 +4429,8 @@ Rachel repeated the warning about demons knowing about her now, about how some w
 "And now they have enough information to sell," Ilyra said. "Which means whoever's interested in Rachel will know exactly where she is, what she can do, and how vulnerable she is."
 
 "We need to reach Thornhaven faster," Arathen said. "Get somewhere with established protections. Before whoever buys that information decides to act on it."
+"We push through dusk," he added. "No long halt until the gates are in
+view."
 
 Rachel felt cold despite the afternoon warmth, but also something else. A strange, frightening certainty. She'd faced the scout demon alone. She'd held her ground. She'd made it clear she wasn't helpless.
 

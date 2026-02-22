@@ -4,7 +4,7 @@
 
 ---
 
-## Chapter One
+## Chapter One — Fine Until Not
 
 Rachel Mercer’s life was fine.
 
@@ -189,7 +189,7 @@ Behind her, the doorway stayed open. Waiting too.
 
 ---
 
-## Chapter Two
+## Chapter Two — Not Earth
 
 Rachel stayed on the floor longer than she needed to.
 
@@ -411,7 +411,7 @@ She pressed her hand against her chest and felt it pulse there, waiting.
 
 ---
 
-## Chapter Three
+## Chapter Three — The First Stop
 
 Hunger woke Rachel fully.
 
@@ -627,7 +627,7 @@ Rachel stayed where she was, counting time by the small motions people made when
 
 ---
 
-## Chapter Four
+## Chapter Four — The Tilt
 
 Rachel couldn't stop replaying it.
 
@@ -828,7 +828,7 @@ Rachel walked back toward the doorway. Back toward whatever came next.
 
 ---
 
-## Chapter Five
+## Chapter Five — Threshold
 
 Rachel paused at the threshold.
 
@@ -1089,7 +1089,7 @@ Rachel found herself almost smiling back.
 
 ---
 
-## Chapter Six
+## Chapter Six — The Near March
 
 Rachel woke to movement.
 
@@ -1549,7 +1549,7 @@ As she moved toward the door, that persistent thought returned: Every hour here 
 
 ---
 
-## Chapter Seven
+## Chapter Seven — Choosing to Stay
 
 Rachel was still outside when she heard the door.
 
@@ -1712,7 +1712,7 @@ Rachel shook her head. "Not yet."
 
 ---
 
-## Chapter Eight
+## Chapter Eight — Naming the Heat
 
 Rachel woke already tired.
 
@@ -1935,7 +1935,7 @@ The building hummed beneath her palm. Rachel closed her eyes and let it.
 
 ---
 
-## Chapter Nine
+## Chapter Nine — Not a Test
 
 Arathen didn't call it a test.
 
@@ -2226,7 +2226,7 @@ Rachel nodded, suddenly aware of how much she wanted exactly that—to sit, to h
 
 ---
 
-## Chapter Ten
+## Chapter Ten — The Delay
 
 They didn't leave right away.
 
@@ -2541,7 +2541,7 @@ Maelin smiled at that. "That's usually how it works."
 
 ---
 
-## Chapter Eleven
+## Chapter Eleven — Departure
 
 Packing was not a simple matter.
 
@@ -2724,7 +2724,7 @@ Maelin nodded, accepting that.
 
 ---
 
-## Chapter Twelve
+## Chapter Twelve — Eastbound
 
 They left later than planned.
 
@@ -3083,7 +3083,7 @@ Outside, the road waited. Inside, her eyes stayed open.
 
 ---
 
-## Chapter Thirteen
+## Chapter Thirteen — Thin Walls
 
 The tent didn't settle around Rachel the way shelter should.
 
@@ -3262,7 +3262,7 @@ Outside, the road went on without them.
 
 ---
 
-## Chapter Fourteen
+## Chapter Fourteen — Merridan's Cross
 
 The tent came down easier than it had gone up.
 
@@ -3476,7 +3476,7 @@ And for the first time since the summoning, Rachel fell asleep without dreaming 
 
 ---
 
-## Chapter Sixteen
+## Chapter Sixteen — Thornhaven in Sight
 
 The town arrived gradually—not with walls or gates, but with evidence of habitation seeping into the landscape like water finding its level. First came the cleared spaces where trees had been persuaded to grow elsewhere. Then stumps worn smooth by years of use as sitting places, resting places, places to set down what you carried. A path that had been walked often enough to become permanent.
 
@@ -3722,7 +3722,7 @@ Outside, the town breathed around them. Ordinary people living ordinary lives, u
 
 ---
 
-## Chapter Seventeen
+## Chapter Seventeen — Before Sunrise
 
 They left Merridan's Cross before the town fully woke, when morning existed as intention rather than fact. The larger moon had set but the smaller blue one still hung near the horizon, casting its peculiar light across rooftops and making shadows pool in strange directions. Rachel's new boots felt stiff against her feet, leather that hadn't yet learned the shape of her stride—leather from some animal she couldn't name, dyed with something that left faint metallic undertones against the brown.
 
@@ -3888,7 +3888,7 @@ About how she was starting to.
 
 ---
 
-## Chapter Eighteen
+## Chapter Eighteen — Wrongness
 
 The wrongness announced itself gradually, the way a headache builds from possibility into certainty. Rachel felt it first as pressure behind her eyes, then as a quality in the air that didn't translate to any sense she could name. The forest hadn't changed visibly—trees still grew with their spiral bark and scale-ridge patterns, light still filtered through blue-green leaves—but something fundamental had shifted.
 
@@ -4136,7 +4136,7 @@ The wrong species.
 
 ---
 
-## Chapter Nineteen
+## Chapter Nineteen — Deliberate Silence
 
 Morning arrived with mist and silence, the forest wrapped in quiet so complete it felt deliberate. The mist itself looked wrong—too thick, almost tangible, with a faint iridescence where it caught the early light. Rachel woke to dampness and discomfort, her body complaining about the ground, the cold, the relentless reality of travel. The bell-flowers nearby had closed for the night—or what passed for night—and sat quiet against their stems, dark pods waiting for warmth to bloom again.
 
@@ -4476,7 +4476,7 @@ But that they felt right.
 
 ---
 
-## Chapter Twenty
+## Chapter Twenty — Night Watch
 
 Sleep wouldn't come.
 
@@ -4774,7 +4774,7 @@ Just the uncertainty. And someone willing to sit in it with her.
 
 ---
 
-## Chapter Twenty-One
+## Chapter Twenty-One — Before Dawn
 
 The wrongness started before dawn.
 
@@ -5106,7 +5106,7 @@ She closed her eyes and let sleep take her.
 
 ---
 
-## Chapter Twenty-Two
+## Chapter Twenty-Two — Fourteen Hours
 
 Rachel slept for fourteen hours.
 
@@ -5328,7 +5328,7 @@ And for the first time since the summoning, she felt something like peace.
 
 ---
 
-## Chapter Twenty-Three
+## Chapter Twenty-Three — Birchline
 
 They left at dawn, moving through forest that had changed again. The trees here had bark that looked almost like birch—white with dark markings—but the pattern wasn't random. Up close, Rachel could see deliberate designs, almost like writing, carved into the surface by something other than human hands. The leaves were a pale silver-green, catching morning light and reflecting it back in ways that made the whole forest shimmer.
 
@@ -5592,7 +5592,7 @@ Rachel closed her eyes and tried to believe it would be enough.
 
 ---
 
-## Chapter Twenty-Four
+## Chapter Twenty-Four — Apartment Dream
 
 Rachel dreamed of her old apartment.
 
@@ -5856,7 +5856,7 @@ And that, at least, felt safe.
 
 ---
 
-## Chapter Twenty-Five
+## Chapter Twenty-Five — Birds and Wards
 
 Morning came with birdsong that was almost right—four-winged creatures calling to each other in patterns that were starting to sound like music instead of noise. Rachel woke feeling lighter than she had in days, which was strange considering she'd spent half the night realizing she was letting go of her former life without regret.
 
@@ -6132,7 +6132,7 @@ Tomorrow would bring answers.
 
 ---
 
-## Chapter Twenty-Six
+## Chapter Twenty-Six — Arrival Protocol
 
 Thornhaven announced itself differently than Merridan's Cross had.
 
@@ -6326,7 +6326,7 @@ Or as ready as she'd ever be.
 
 ---
 
-## Chapter Twenty-Seven
+## Chapter Twenty-Seven — Layered Light
 
 Dawn in Thornhaven came with layered light—the sun rising through atmosphere that bent it wrong, creating colors that shifted moment to moment. Rachel watched from her window as the town woke, people emerging for morning routines, shop fronts opening, the magical infrastructure brightening as if responding to collective consciousness.
 
@@ -6624,7 +6624,7 @@ Rachel had never been good at being normal anyway.
 
 ---
 
-## Chapter Twenty-Eight
+## Chapter Twenty-Eight — Processing
 
 The afternoon passed in a haze of processing. Rachel sat in her room at the inn, staring out the window at Thornhaven's impossible architecture, mind churning through revelations that felt both definitive and incomplete.
 
@@ -6820,7 +6820,7 @@ Finally.
 
 ---
 
-## Chapter Twenty-Nine
+## Chapter Twenty-Nine — Rearranged
 
 Sivara's residence rearranged itself overnight.
 
@@ -7024,7 +7024,7 @@ But tonight, she was exactly where she belonged.
 
 ---
 
-## Chapter Thirty
+## Chapter Thirty — Terms
 
 Sivara's residence rearranged itself overnight.
 
@@ -7232,7 +7232,7 @@ But tonight, she was exactly where she belonged.
 
 ---
 
-## Chapter Thirty-One
+## Chapter Thirty-One — The Gathering
 
 Two days after their arrival, Sivara announced the gathering with characteristic bluntness. "You need to meet other demons. Controlled circumstances. My territory, my rules. They'll behave or answer to me."
 
@@ -7532,7 +7532,7 @@ And that, for now, was a beginning.
 
 ---
 
-## Chapter Thirty-Two
+## Chapter Thirty-Two — Intensification
 
 Training intensified.
 
@@ -7776,7 +7776,7 @@ And prepared for what she was becoming.
 
 ---
 
-## Chapter Thirty-Three
+## Chapter Thirty-Three — The Memory
 
 The memory came without warning.
 
@@ -8038,7 +8038,7 @@ That would have to be enough.
 
 ---
 
-## Chapter Thirty-Four
+## Chapter Thirty-Four — Almost Normal
 
 Three days passed in something that felt almost like normal.
 
@@ -8228,7 +8228,7 @@ And that frightened her more than she could say.
 
 ---
 
-## Chapter Thirty-Five
+## Chapter Thirty-Five — Noon Disturbance
 
 The visitor arrived at noon, announced by a disturbance in Thornhaven's boundaries that Rachel felt from three blocks away.
 
@@ -8422,7 +8422,7 @@ And what they planned to do about it.
 
 ---
 
-## Chapter Thirty-Six
+## Chapter Thirty-Six — Midnight Attack
 
 The attack came at midnight, when Thornhaven's boundaries were thinnest.
 
@@ -8636,7 +8636,7 @@ Whether any of them would be.
 
 ---
 
-## Chapter Thirty-Seven
+## Chapter Thirty-Seven — Dawn Briefing
 
 Sivara summoned them to her residence at dawn. Rachel moved slowly, every step requiring conscious effort. Her boundaries were still damaged from the spatial freeze she'd used against Vex's assassins—visible if you knew how to look, fraying at the edges like fabric coming apart at the seams. Freezing space itself, holding three demons at once while fighting—she'd overextended badly, and her personal boundaries had paid the price.
 
@@ -8872,7 +8872,7 @@ Ready to fight.
 
 ---
 
-## Chapter Thirty-Eight
+## Chapter Thirty-Eight — Vex
 
 Vex was older than Rachel had imagined. Not in appearance—he looked perhaps fifty, with silver-threaded dark hair and features that suggested mixed ancestry from multiple worlds—but in presence. Power so old and deep it felt geological. Like arguing with a mountain.
 
@@ -9118,7 +9118,7 @@ If they had a tomorrow.
 
 ---
 
-## Chapter Thirty-Nine
+## Chapter Thirty-Nine — Recovery
 
 Rachel woke to afternoon light and the knowledge that she'd slept through most of the day. Her body ached—deep, bone-level exhaustion from pushing her power past reasonable limits. Again.
 
@@ -9326,7 +9326,7 @@ And she fell asleep still smiling.
 
 ---
 
-## Chapter Forty
+## Chapter Forty — Summons
 
 The Council summons arrived three days later, delivered by a messenger whose boundary presence made Rachel's instincts scream warnings.
 
@@ -9566,7 +9566,7 @@ She had no other choice.
 
 ---
 
-## Chapter Forty-One
+## Chapter Forty-One — The Chamber
 
 The Council chamber existed in all realities simultaneously.
 
@@ -9802,7 +9802,7 @@ It was just beginning.
 
 ---
 
-## Chapter Forty-Two
+## Chapter Forty-Two — Contract Terms
 
 The contract was real.
 
@@ -10044,7 +10044,7 @@ For now.
 
 ---
 
-## Chapter Forty-Three
+## Chapter Forty-Three — Thirty Days
 
 Six months later, Rachel completed her formal training with Sivara. Not because there was nothing left to learn, but because she'd reached the point where continued growth came from experience rather than instruction.
 

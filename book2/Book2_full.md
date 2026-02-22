@@ -22,6 +22,17 @@ before finishing the thought.
 
 She let herself stay inside the stillness.
 
+Six months had passed since the Council chamber, since Mordath fell and
+the follow-up territorial hearing should have dragged her back into formal
+combat. The hearing never happened. Boundary failures along the eastern
+lines had postponed the claim proceedings twice, leaving Theryn's holdings
+in legal suspension and Rachel in the strange position of being both heir
+and not yet owner.
+
+She and Arathen had kept the promise they made on the balcony—no formal
+merge until she had room to figure herself out on her own terms. The
+promise had changed the shape of their choices, not the fact of them.
+
 Light slid across the far wall, catching in the faint etchings carved
 into the stone --- reinforcement lines woven so carefully into
 Thornhaven's bones that most people forgot they were there. Rachel never
@@ -53,6 +64,11 @@ turning to meet it.
 She let her eyes close again, listening past sound. There --- a faint
 pressure along the outer weave. Not sharp. Not urgent. Just present,
 like a thread drawn slightly too tight.
+
+The fragment-strike that had ended her fight with Mordath still lived in
+memory like a live wire. She could probably reach for that kind of force
+again if panic drove her there. She had decided she wouldn't unless every
+other option had failed.
 
 "It's holding," she said.
 

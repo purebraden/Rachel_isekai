@@ -467,7 +467,217 @@ The forest beyond looked unchanged.
 But she could feel the memory of that rotation lingering beneath the
 surface --- not as instability, but as something newly settled.
 
-They began walking back toward Thornhaven.
+The memory lasted all of three breaths before the line proved it was not
+done with them.
+
+At the base of the marker arc, where two stones sat half-buried beside
+the old sheep path, the air bent again in a narrow, ugly crease.
+
+"Downline," Arathen said.
+
+Rachel was already moving.
+
+The crease looked small, but small had stopped meaning safe weeks ago.
+Where the distortion touched the packed earth, gravel lifted a fraction
+and held there, trembling.
+
+Three villagers who had lingered near the path backed away in a rush. One
+of them was the baker from earlier, flour still on his forearms. Beside
+him stood his daughter, Lysa, no more than ten, clutching a basket too
+large for her narrow wrists.
+
+"Back from the stones," Arathen called, voice carrying cleanly over the
+path.
+
+Lysa obeyed. The basket did not.
+
+When she shifted, one handle slipped from her hand and the basket dropped
+toward the crease. It never touched ground. The woven bottom caught in
+the bent air and hovered at knee height, jerking against no visible grip.
+
+The girl made a startled sound and reached for it on instinct.
+
+Rachel got there first, taking Lysa by the shoulder and guiding her back
+without looking away from the seam.
+
+"You all right?" she asked.
+
+Lysa nodded too quickly.
+
+"Stay by your father."
+
+The baker moved in and pulled the girl against his side, jaw tight with
+the effort not to panic in front of her.
+
+Sivara had turned back at the first shift and now stood at the edge of
+the path, eyes tracking the narrow distortion as it gathered.
+
+"Angle?" she asked.
+
+Rachel crouched and extended her awareness. The seam was not opening from
+deep load like the morning line. This one felt shallow and spiteful, a
+local hitch where two reinforcement rhythms had missed each other and
+started feeding the mismatch.
+
+"Cross-current," Rachel said. "Old sheep-path marker tied to terrace
+line. They're out of phase."
+
+Sivara's gaze flicked once toward the buried stones. "Can you realign
+without a full reset?"
+
+Rachel reached for the seam and felt it answer before she touched it.
+Warmth rose from her palms up her forearms with familiar speed.
+
+"Yes. Keep everyone clear."
+
+Arathen had already moved the villagers farther up the path. He did it
+without force, one hand indicating, one sentence at a time, the way he
+could make urgency feel like structure instead of fear.
+
+"Give her room. Stay behind the oak line. Nobody crosses until I call."
+
+The basket still hung at the edge of distortion, twitching like something
+caught in a snare.
+
+Rachel did not grab it. She turned her wrist and let the hinge beneath
+the crease rotate by degrees.
+
+The seam resisted in tiny increments, then gave.
+
+The basket dropped the last few inches, spilled two onions and a wrapped
+loaf, and settled in the dirt with a soft thud.
+
+The crease did not vanish.
+
+It narrowed, then flared once in a second pulse that rippled out along the
+line toward the village arch.
+
+"Rachel," Sivara said.
+
+"I know."
+
+She widened her awareness and found the secondary hitch before it reached
+the arch runes. There, a thinner thread of strain pulled at a carved
+anchor half a lane away.
+
+She adjusted both at once.
+
+For one unsteady heartbeat she held two mismatched rhythms in her palms,
+one rough and one smooth, one local and one linked. She angled them
+together until the seam tone dropped and the hitch unhooked from the line
+beneath the arch.
+
+The air straightened.
+
+Gravel settled.
+
+The hum under the stones returned to its lower, ordinary register.
+
+Nobody spoke for several seconds.
+
+Then the baker exhaled hard enough to shake and crossed to retrieve the
+spilled basket with his daughter close behind him.
+
+He stopped two paces from Rachel, eyes moving from the marker stones to
+her face.
+
+"You did that from here," he said.
+
+Rachel brushed dirt from her palms. "It was a small mismatch."
+
+"It would've split my threshold by sundown if you'd left it," he said.
+There was no accusation in his tone. Only plain accounting. "Small isn't
+small when it's your house."
+
+He glanced at Lysa, then back to Rachel.
+
+"Thank you."
+
+The words landed heavier than they should have.
+
+Rachel nodded once, unsure where to put her hands.
+
+Sivara stepped in before the moment could thicken.
+
+"Get your daughter inside and check your doorway sigil for drift," she
+said. "If the right side glows unevenly, send for Edrin."
+
+The baker gave a short bow, the kind that belonged to old habit rather
+than ceremony, and moved up the path.
+
+When they were out of earshot, Sivara turned to Rachel.
+
+"You tracked the secondary before manifestation."
+
+"Barely."
+
+"Barely is enough when it works."
+
+Sivara did not smile. She rarely did in field correction. But something in
+her shoulders eased by a fraction.
+
+"Observation only, for now," she said. "No demonstrations. No crowd work.
+No giving anyone the impression this can be reproduced by speed."
+
+Rachel glanced down the path where two young walkers were pretending not
+to watch her.
+
+"Too late for that."
+
+"Not entirely." Sivara's voice stayed even. "You choose what they think
+they saw."
+
+It sounded like instruction.
+
+It sounded like warning.
+
+It sounded, Rachel realized, like care wearing its strictest face.
+
+Sivara left first, heading back toward the compound with her cloak moving
+in a clean line behind her.
+
+Arathen lingered while Rachel gathered the dropped onions and handed them
+to Lysa when the girl doubled back shyly for the last one she had missed.
+Only after the child ran to catch her father did he speak.
+
+"You shook on that second turn."
+
+Rachel flexed her fingers. "I held it."
+
+"You did."
+
+He waited until she met his eyes.
+
+"You don't have to prove that every time."
+
+She gave him a dry look. "Tell the seams that."
+
+He almost smiled, then lost it as quickly.
+
+"I'm serious."
+
+"I know." She looked back at the marker line, now steady as if nothing had
+happened. "I'm not trying to perform."
+
+"You're visible anyway."
+
+The words sat between them while wind moved through the trees and brought
+the smell of hot bread from lower in the village.
+
+Rachel watched Lysa disappear around a bend, basket balanced against her
+hip with both hands.
+
+"If this keeps escalating," she said quietly, "the hearing won't matter.
+Territory claim, title transfer, all of it."
+
+Arathen rested his palm briefly between her shoulder blades, a grounding
+touch more than comfort.
+
+"It matters," he said. "Just not more than this."
+
+She let the answer settle.
+
+Then, finally, they began walking back toward Thornhaven.
 
 As they crossed beneath the outer arch again, the carved lintel hummed
 faintly in greeting, ward lines recognizing their passage.
@@ -2056,6 +2266,202 @@ The lattice sounded the same.
 But she could not hear it without wondering what else was listening
 back.
 
+She did not go to her room.
+
+Instead she crossed to the back court where training dummies stood in
+silent rows and the old practice bell hung from a beam polished by years
+of hands.
+
+Arathen was already there, sleeves rolled, resetting a cracked brace
+plate that had split during the previous week's drills. He looked up once
+when she entered, read her face, and set the plate down without asking if
+she wanted to talk.
+
+That restraint, more than any question, made her chest tighten.
+
+"You skipped dinner," he said.
+
+"I wasn't hungry."
+
+"That won't hold."
+
+She gave him a look that might have become a smile in another week.
+"Since when do you sound like Maelin?"
+
+"Since Maelin was right more often than we liked."
+
+He crossed to the water barrel, filled two cups, and handed her one.
+Rachel took it because refusing would have turned this into an argument
+neither of them had energy for.
+
+The water was cool and faintly mineral from the stone cistern. She drank
+half, then leaned back against the training post and watched the evening
+light flatten across the yard.
+
+"It called me wrong," she said again, quieter this time.
+
+Arathen didn't flinch.
+
+"Wrong by whose standard?"
+
+"Exactly."
+
+He rested his forearms on the rail opposite her.
+
+"You're waiting for me to tell you it doesn't matter."
+
+She let out a short breath. "Can you?"
+
+"No."
+
+The honesty hit harder than reassurance would have.
+
+"It matters," he went on. "Because if something is naming you, it has a
+model in mind. Models are plans with authority attached."
+
+Rachel stared into the water left in her cup.
+
+"Sivara said we misunderstood the boundary."
+
+"Maybe we did."
+
+"And if we did, what does that make all the doctrine?"
+
+Arathen's mouth tightened by a fraction. "Useful until it isn't."
+
+They stood in silence while sounds from the kitchen drifted through the
+open corridor: Maelin directing someone to stop stealing hot bread before
+the tray reached the table, Edrin dropping something and swearing softly,
+Ilyra laughing once, brief and surprised.
+
+Normal sounds.
+
+Tonight they felt borrowed.
+
+Footsteps approached across the stones. Ilyra appeared in the archway
+with two wooden practice blades under one arm and a bruise darkening along
+her jaw.
+
+"There you are," she said to Rachel. "Maelin sent me to drag you in by
+threat if needed."
+
+"By threat."
+
+"By practical persuasion, then."
+
+Rachel huffed a faint laugh she hadn't expected.
+
+Ilyra set one practice blade on the rail and kept the other.
+
+"Before you come in, humor me."
+
+"Ilyra—"
+
+"Three passes. No heroics. I want to see your feet."
+
+Rachel hesitated, then took the blade.
+
+They moved to the center of the court. Arathen stepped back, arms folded,
+watching with the still attention of someone ready to break in if either
+of them overreached.
+
+Ilyra came in light on her toes, first strike shallow and easy, a test of
+distance rather than speed. Rachel met it, turned, reset.
+
+Second pass, Ilyra changed rhythm without warning and cut from the side.
+Rachel blocked a beat late.
+
+"You're listening outside your body," Ilyra said.
+
+"I know."
+
+"Stop."
+
+Third pass. Ilyra feinted high, dropped low, and drove the flat of the
+blade toward Rachel's ribs. Rachel caught it this time, pivoted, and
+ended with Ilyra's shoulder under her forearm and the wooden edge set
+against Ilyra's collarbone.
+
+Both of them froze.
+
+The move had been clean.
+
+Too clean.
+
+Rachel had responded before she consciously saw the feint.
+
+Ilyra eased out of the hold and lowered her blade.
+
+"You felt me before I moved," she said.
+
+Rachel swallowed. "Maybe."
+
+"Not maybe."
+
+Ilyra's expression was unreadable for a second, then settled into
+something rougher than approval and gentler than fear.
+
+"Good for survival," she said. "Bad for sleep."
+
+Arathen gave a dry sound that might have been agreement.
+
+Ilyra pointed her blade at both of them.
+
+"Eat. Then sleep in shifts if you must. Tomorrow everyone in town will
+pretend this is manageable. I would like at least three people in this
+house to know when we're lying."
+
+She left before either of them answered.
+
+Rachel set the practice blade down and leaned against the rail again.
+
+"She's worried," she said.
+
+"Yes."
+
+"You're worried."
+
+"Yes."
+
+She looked at him then, fully.
+
+"Are you afraid of me?"
+
+The question hung long enough that she almost wished she could take it
+back.
+
+Arathen stepped forward and took the cup from her hand so it wouldn't
+spill when he answered.
+
+"I'm afraid for you," he said. "I'm afraid of what this will ask from
+you. I'm afraid of what people will ask when they realize they can't make
+it happen without you."
+
+His voice stayed steady.
+
+"I'm not afraid of you."
+
+The knot in her chest loosened a fraction.
+
+The practice bell above them shifted in a light wind and gave one soft,
+hollow note.
+
+From the kitchen door, Maelin's voice cut through the yard.
+
+"If you're both done philosophizing with splinters, dinner is cooling."
+
+Arathen glanced toward the door and then back to Rachel.
+
+"Come on."
+
+She nodded, but before they crossed the threshold she looked once more at
+the training court, at the still line of dummies, at the bell, at the
+open square of sky above the wall.
+
+The lattice sounded unchanged.
+
+She no longer believed unchanged meant harmless.
+
 
 ---
 
@@ -2643,6 +3049,291 @@ They looked at her directly.
 "Rachel."
 
 "When did this begin."
+
+The room held very still around the question.
+
+Rachel could hear cloth shifting against stone near the doorway, could
+hear Teral exhale once through his nose, could hear Edrin's fingers
+tighten on the map tube hard enough to crumple the edge.
+
+"I don't know an exact day," she said. "I noticed it after the Council
+chamber. Small repairs stopped fighting me."
+
+Vaelis did not look away.
+
+"Stopped fighting."
+
+"I had to push less. Then I stopped needing to push at all."
+
+Sivara stepped half a pace toward the table.
+
+"This is not interrogation."
+
+Vaelis inclined their head in acknowledgment and still did not soften.
+"No. It is calibration."
+
+Mirrel made a small sound that might have become an objection. Senna
+cut him a look that said not yet.
+
+Vaelis turned to Sivara.
+
+"I want one controlled line stress. Here. Now."
+
+Sivara's jaw set.
+
+"You do not induce instability inside my workroom."
+
+"In the courtyard, then. Marker edge only. Minimal load."
+
+Arathen's voice entered low and flat.
+
+"We're not using her as demonstration material."
+
+Vaelis met his gaze without flinching.
+
+"If this is what I suspect, demonstration has already happened. The only
+question is whether we measure it under control or wait for uncontrolled
+manifestation to answer for us."
+
+Rachel closed her eyes for a breath.
+
+He was right, and she hated that he was right.
+
+"Do it outside," she said.
+
+Arathen turned toward her. "Rachel."
+
+"Better now than with civilians in range."
+
+Silence stretched, then Sivara nodded once.
+
+"Outer courtyard. Only those already present. Teral, close the side
+arches."
+
+They moved.
+
+The courtyard stones still held late-morning warmth. Sivara placed people
+without raising her voice: Mirrel and Senna at the north edge, Maelin and
+Ilyra near the inner steps, Edrin beside the rain cistern where he could
+see both marker points and Rachel's stance.
+
+Caelen appeared halfway through setup, having plainly run from somewhere
+else and arrived out of breath with his notebook in hand. Mirrel looked
+ready to send him away. Sivara made a quick decision and shook her head.
+
+"He stays at the wall. He writes. He does not move."
+
+Caelen nodded and pressed himself against the stone.
+
+Vaelis crouched beside an old marker seam where two reinforcement lines
+crossed under the paving and placed three narrow metal pins at measured
+intervals.
+
+"Minimal stimulus," they said. "No breach conditions."
+
+Sivara watched each placement and gave curt assent.
+
+"You touch first," Vaelis said to Rachel.
+
+Rachel stepped to the seam and felt the quiet under it, then the slight
+roughness where Vaelis had introduced strain.
+
+"It's shallow."
+
+"It should be."
+
+She rotated it half a degree and let it settle.
+
+Vaelis withdrew one pin and set it one handspan farther along the line.
+The seam tone shifted.
+
+Rachel felt the shift before the pin left Vaelis's fingers.
+
+She corrected the line from where she stood.
+
+No hand contact.
+
+No cast.
+
+No visible effort.
+
+The seam flattened.
+
+Edrin made a noise like someone had struck him.
+
+Caelen's pen scratched frantically.
+
+Mirrel muttered, "By all old stones," under his breath and then looked
+irritated at himself for saying it aloud.
+
+Vaelis moved the second pin. This time they set it farther away near the
+outer step.
+
+The line tried to hitch.
+
+Rachel turned her wrist before it could.
+
+The hitch dissolved.
+
+She could feel everyone in the courtyard register the order of events.
+
+Stimulus.
+
+Recognition.
+
+Correction.
+
+The sequence no longer needed contact.
+
+Vaelis removed the final pin and did not replace it.
+
+"Again tomorrow," they said.
+
+Arathen barked a short laugh with no amusement in it.
+
+"You don't schedule her like a piece of equipment."
+
+Vaelis straightened.
+
+"I schedule risk."
+
+"You schedule people by asking."
+
+Sivara stepped between them before tone could become fracture.
+
+"Enough. We are done for today."
+
+She looked at Vaelis, then at Arathen.
+
+"Both of you are correct and both of you are dangerously close to being
+useless."
+
+Ilyra made a sound that might have been a choke on a laugh and covered it
+with a cough.
+
+Maelin crossed to Rachel and took her wrist, thumb pressing once over her
+pulse.
+
+"Dizzy?"
+
+"No."
+
+"Any spike in heat?"
+
+"Steady."
+
+Maelin released her and glanced at Sivara. "Steady used to mean safe."
+
+"It means different now," Sivara said.
+
+Caelen pushed away from the wall as if he had forgotten he was allowed to
+move.
+
+"I wrote the sequence," he blurted. "I think I got it. The order you
+shifted. The angle of your hand."
+
+Mirrel grabbed his sleeve.
+
+"Not now."
+
+Caelen flushed and shut his mouth, but his eyes stayed on Rachel with the
+same fierce, hungry concentration.
+
+Rachel saw it and felt the pull of two conflicting instincts: to tell him
+to stop trying; to hand him the notebook and explain everything she could.
+
+She did neither.
+
+Vaelis closed their small book with deliberate care.
+
+"I am not here to contain Thornhaven," they said to the courtyard at
+large. "I am here to prevent the same mistake that has broken other
+settlements."
+
+Mirrel's expression hardened.
+
+"Which mistake."
+
+"Treating anomaly as personal instead of structural."
+
+That answer landed harder than anyone expected.
+
+Sivara's eyes narrowed.
+
+"Choose your words carefully, Vaelis."
+
+"I am."
+
+Vaelis looked at Rachel, and for the first time there was something like
+respect in the attention.
+
+"If this continues, it will draw pressure from farther than your border
+line. You need records, controlled observation, and chain-of-command
+clarity before that happens."
+
+Arathen stepped to Rachel's side, close enough that she could feel the
+heat of him at her shoulder.
+
+"Then speak plainly. What are you advising."
+
+Vaelis answered without pause.
+
+"Daily observation. Restricted training windows. Public correction only
+with perimeter control. No unsupervised teaching. No mimic trials."
+
+Caelen looked like someone had slapped him.
+
+Mirrel held his sleeve tighter.
+
+Sivara considered, then gave one short nod.
+
+"Agreed provisionally. I retain local authority over implementation."
+
+Vaelis inclined their head.
+
+"As expected."
+
+The formal tension in the yard eased by increments. People began to move
+again: Edrin collecting the pins with reverent care, Senna speaking low
+to Kethren, Maelin directing Teral to bring water before anyone argued
+about whether they needed it.
+
+Rachel stayed where she was until most of them had dispersed.
+
+Arathen waited with her.
+
+"You okay?" he asked.
+
+She watched sunlight catch the seam Vaelis had stressed. It lay flat now,
+innocent.
+
+"No."
+
+He accepted that answer without trying to improve it.
+
+"I don't know what I just became in that room," she said.
+
+"You didn't become anything new today." His voice was quiet and certain.
+"You became visible to people who were pretending not to see."
+
+The words should have felt reassuring.
+
+Instead they felt exact.
+
+She let out a breath and nodded once.
+
+From the far arch, Sivara called her name.
+
+"This is not over," Sivara said when Rachel turned.
+
+"I know."
+
+"Good."
+
+Sivara's gaze softened by the smallest fraction.
+
+"Eat. Then come back. We start writing everything down while we still
+remember what certainty felt like."
 
 
 ---
@@ -4691,6 +5382,275 @@ That stopped her.
 The answer stayed with all of them, unresolved, until it had nowhere left
 to hide.
 
+Sivara did not allow it to hide long.
+
+"Tomorrow," she said, "first bell. Inner yard. Controlled conditions."
+
+Caelen straightened. "You mean—"
+
+"I mean you will observe a supervised correction sequence and perform no
+independent cast unless I give explicit instruction."
+
+His jaw tightened. "That's not training."
+
+"It is discipline," Sivara said.
+
+Mirrel's hand closed around his son's shoulder with a pressure that was
+firm and brief.
+
+"You asked to understand," he said. "Start there."
+
+Caelen's eyes stayed on Rachel.
+
+"Will you come?"
+
+Rachel hesitated, then nodded once.
+
+"I'll come."
+
+The next morning dawned hard and clear, the kind of sky that made stone
+look sharper than it was. Sivara marked out a training grid in pale chalk
+across the inner yard: one central seam line, two secondary anchors, four
+safe positions, one observer line no one was to cross.
+
+Edrin arrived with three boards of notes and a fresh stick of charcoal.
+Ilyra arrived with crossed arms and a look that said she'd rather be
+hitting something than discussing it. Maelin brought tea for everyone and
+set Caelen's cup down last.
+
+"Drink before you prove anything," she said.
+
+Caelen drank.
+
+Sivara began without ceremony.
+
+"We are not reproducing Rachel's method. We are establishing failure
+boundaries."
+
+Caelen frowned. "Failure boundaries."
+
+"How far you can push before correction becomes harm. Most apprentices
+never learn that line clearly enough because most of them never need to."
+
+She drew three marks in the chalk with the toe of her boot.
+
+"Today you will."
+
+The first exercise was ordinary: local reinforcement cast, standard brace,
+controlled release. Caelen executed cleanly, shoulders tight but motion
+precise. Sivara nodded once.
+
+"Again."
+
+He did it again, faster.
+
+"Again."
+
+Third pass, he over-accelerated and introduced micro-shear at the edge.
+Sivara tapped the flaw with her boot.
+
+"There. You chased speed and lost structure."
+
+Caelen inhaled sharply through his nose, reset, and corrected.
+
+Rachel watched from the observer line with her hands tucked into her
+sleeves to keep from mirroring his motions.
+
+The second exercise shifted.
+
+Sivara introduced a deliberately angled instability in the center seam and
+stepped back.
+
+"Contain this without flattening it."
+
+Caelen moved in confidently, set a brace, and pressed.
+
+The seam pushed back.
+
+Not violently. Wrongly.
+
+Rachel felt the angle at once and said, "Stop."
+
+Caelen kept pressing a heartbeat too long, jaw locked.
+
+The chalk nearest his left foot split.
+
+Sivara snapped, "Withdraw."
+
+He withdrew. The seam held in a warped half-state, louder than before.
+
+Sivara looked at him with a controlled, unreadable expression.
+
+"What did you feel."
+
+Caelen swallowed.
+
+"Resistance."
+
+"What kind."
+
+"I don't know."
+
+Sivara nodded toward Rachel.
+
+"And she did."
+
+The words struck harder than reprimand.
+
+Caelen looked at Rachel as if he wanted her to deny it.
+
+She didn't.
+
+"It wasn't resisting you," Rachel said. "It was slipping under your
+pressure. You were reinforcing the wrong layer."
+
+"How can you tell that from ten paces."
+
+"I don't know."
+
+He gave a frustrated, helpless laugh. "You keep saying that."
+
+"Because it's true."
+
+Sivara stepped back into the circle.
+
+"Truth isn't required to be convenient."
+
+She adjusted the seam herself, rotating it into a neutral state with
+familiar economy.
+
+"Third exercise. Assisted response."
+
+Caelen looked from Sivara to Rachel and then, reluctantly, to the seam.
+
+On Sivara's cue, he set his hands above the line and waited. Rachel stood
+at the observer line and let her awareness brush the seam without touching
+it.
+
+Sivara induced a light pulse.
+
+Caelen reacted first, applying brace.
+
+Rachel spoke before he committed pressure.
+
+"Left. Two degrees."
+
+He corrected left. The line steadied.
+
+Second pulse.
+
+"Lower. Don't push."
+
+He lowered, held, and the seam settled.
+
+Third pulse came sharper.
+
+Caelen flinched toward reinforcement. Rachel said, "Hold."
+
+He held.
+
+The pulse passed and collapsed harmlessly.
+
+For the first time that morning, his shoulders dropped.
+
+Sivara watched him for a long beat and then said, "What changed."
+
+Caelen answered without looking up.
+
+"I stopped trying to win the seam."
+
+"Good."
+
+Sivara ended the session there.
+
+Edrin immediately started sketching sequence notes while muttering angle
+descriptors under his breath. Ilyra collected chalk fragments and dropped
+them into a bucket with unnecessary force. Maelin poured a second round of
+tea and forced Caelen to sit before his knees could give him away.
+
+Mirrel came in through the side gate just as the session broke.
+
+He took in the yard in one sweep: the split chalk, the damp patches where
+cast pressure had condensed, the look on his son's face.
+
+"How bad?" he asked.
+
+Caelen opened his mouth to answer and stopped.
+
+Rachel did it for him.
+
+"He learns fast. Faster than most."
+
+Mirrel's gaze stayed on Caelen. "And."
+
+Rachel chose her words carefully.
+
+"And he almost forced a line that would've hurt people if this weren't
+controlled."
+
+Caelen flinched as if struck. Mirrel didn't raise his voice.
+
+"Thank you for saying it plainly."
+
+He turned to his son.
+
+"Curiosity is not permission."
+
+"I know."
+
+"Do you."
+
+The question hung.
+
+Caelen looked at the chalk at his boots.
+
+"I thought if I got close enough once, I'd understand it."
+
+Mirrel exhaled slowly, old fear moving under restraint.
+
+"Close enough to what."
+
+Caelen's answer was quiet.
+
+"To being useful."
+
+Something in Mirrel's face softened and broke at the same time.
+
+"You are useful when you come home alive."
+
+He rested his hand on Caelen's head for one awkward second, then stepped
+back like he regretted the tenderness and not the sentiment.
+
+Sivara gave everyone their assignments and sent the yard back to ordinary
+work. As Rachel turned to go, Caelen caught up beside her, notebook held
+against his chest.
+
+"I was wrong yesterday," he said.
+
+Rachel glanced at him.
+
+"About what."
+
+"Thinking this was a trick you weren't sharing."
+
+He stared straight ahead while he spoke.
+
+"It's not a trick. It's a cost."
+
+Rachel felt the words settle in her ribs.
+
+"Yes," she said. "It is."
+
+They walked in silence to the gate.
+
+By evening, the yard looked unchanged: chalk scrubbed off, tools put away,
+routine restored. Only the hairline crack in one paving stone remained,
+thin as thread, where Caelen had pressed too hard.
+
+No one repaired it immediately.
+
+Sivara left it there on purpose.
+
 Three days later, the southern walkway fractured midmorning while half
 the town was moving through it.
 
@@ -5011,6 +5971,187 @@ No one laughed.
 No one cheered.
 
 They just kept looking.
+
+Sivara cut through the stunned silence with command voice.
+
+"Clear this square. Now."
+
+People moved because she gave them movement to hide inside.
+
+Maelin took charge of the immediate triage, sending two apprentices for
+clean water and three more for stretcher boards while she checked Caelen's
+pupils with blood-wet fingers.
+
+"Stay with me," she told him.
+
+Caelen blinked hard.
+
+"I'm here."
+
+Mirrel arrived at a half-run and stopped short when he saw his son on the
+stones.
+
+For one breath he looked like every father in every story where the ground
+gives way.
+
+Then discipline snapped back into place and he knelt opposite Rachel.
+
+"Report."
+
+Maelin did not look up.
+
+"Concussion likely. Temple laceration. No skull depression on first touch.
+He moves on command. He does not stand."
+
+Mirrel nodded once, jaw locked.
+
+"Understood."
+
+Caelen turned his head toward him.
+
+"I lost the angle."
+
+Mirrel's hand hovered over his son's shoulder and then settled there.
+
+"You lost judgment first."
+
+The words were hard.
+
+The hand was careful.
+
+Arathen called for lane clear around them and got it by sheer force of
+tone.
+
+"Space. Give them space and get to assigned posts."
+
+At the edge of the square, a woman Rachel barely knew started crying
+quietly into both hands. Another put an arm around her and kept watching
+Rachel over the top of her shoulder.
+
+Fear had a face now.
+
+Several faces.
+
+Edrin arrived with a folded blanket, dropped it beside Maelin, and then
+froze when he saw the blood on Caelen's hair.
+
+"I can help."
+
+"Then hold this," Maelin snapped, handing him the cloth with pressure
+already on it. "And don't faint on my patient."
+
+He held.
+
+Vaelis finally stepped closer, expression unreadable.
+
+"Everyone felt the suspension."
+
+Sivara, still directing dispersal at the platform steps, answered without
+turning.
+
+"Yes."
+
+"Including civilians with no seam training."
+
+"Yes."
+
+Vaelis looked at Rachel.
+
+"That scale is new."
+
+Rachel wiped her palms on her trousers and found she could not stop
+shaking.
+
+"I wasn't trying to do that."
+
+"I know," Vaelis said.
+
+That made it worse.
+
+Mirrel and Arathen lifted Caelen together onto the stretcher board once
+Maelin gave permission. The movement drew a hiss through Caelen's teeth,
+but he stayed conscious.
+
+As they carried him toward the infirmary lane, he reached blindly once and
+caught Rachel's sleeve.
+
+"I wasn't trying to show off," he said, voice thinned by pain.
+
+Rachel bent close enough for only him to hear.
+
+"Then don't die proving it."
+
+His grip loosened.
+
+They moved on.
+
+The square emptied by layers: first the onlookers, then the merchants,
+then the apprentices sent to perimeter checks so they would do something
+useful with their fear. By the time sunlight shifted toward late afternoon,
+only responders and cleanup teams remained.
+
+Ilyra supervised the cracked pillar shoring with ruthless efficiency and
+no patience for commentary.
+
+"You don't speculate while carrying load," she told one rattled apprentice.
+"You count to three and lift when I say."
+
+Rachel stood near the fountain with Arathen while timber braces went in.
+
+"You okay," he asked.
+
+She watched the support beams settle into the old stone.
+
+"No."
+
+"Good. Means you still know what happened."
+
+She gave him a tired, incredulous look.
+
+"That's your comforting voice."
+
+"My comforting voice has never worked."
+
+Despite everything, she laughed once.
+
+Halvare approached at dusk, ledger closed for once.
+
+"I need your statement for the record when you're ready."
+
+Rachel nodded.
+
+"Not yet."
+
+"Understood."
+
+He hesitated, then added quietly:
+
+"The crowd's reaction shifted after you stabilized him."
+
+"Caelen."
+
+"Yes. They were afraid of what they witnessed. They were also watching what
+you did with the person who failed."
+
+Rachel looked toward the infirmary lane where lanterns were being lit one
+by one.
+
+"I didn't do anything special."
+
+Halvare's gaze was steady.
+
+"You knelt first."
+
+He left her with that.
+
+By the time night settled, the square had resumed motion and none of it
+felt ordinary.
+
+The seam had closed.
+
+The fracture had been braced.
+
+The question had not.
 
 
 ---
@@ -6596,6 +7737,205 @@ Maelin touched her elbow. "Come home."
 
 Rachel nodded, took one last look at the square, and went with them.
 
+They made it halfway to the house before a runner caught up with them.
+
+The boy couldn't have been more than sixteen and looked mortified to be
+interrupting a group this tense.
+
+"Mentor Sivara asks for all senior line leads in the back hall," he said
+to Arathen, then glanced at Rachel and corrected himself. "And Walker
+Rachel, if she is willing."
+
+Arathen's brow tightened. "Now."
+
+"Now."
+
+Maelin muttered something impolite under her breath and changed course.
+
+The back hall had once been a grain ledger room. Now it held three maps,
+two lanterns, one cracked table, and more stress than furniture could
+carry. Sivara stood at the far end with Halvare and Vaelis on either
+side, while Mirrel, Ilyra, and two district captains filled the near
+corners.
+
+Rethan was there as well, coat still immaculate despite the day.
+
+"Good," Sivara said when Rachel entered. "Close the door."
+
+Arathen closed it.
+
+Sivara tapped the central map.
+
+"No-teaching clause stands. We follow it. We also have seven apprentices
+who watched today's correction and have already begun imitating hand
+positions in side yards."
+
+Ilyra barked a humorless laugh.
+
+"Make that nine. I pulled two off the north wall before supper."
+
+Mirrel rubbed a hand across his face.
+
+"Caelen among them."
+
+Rachel met his eyes. He didn't look away.
+
+"He says he's only observing," Mirrel added. "He's lying by omission."
+
+Rethan cleared his throat.
+
+"Then restrict apprentice yard access until further notice."
+
+Sivara's voice went flat.
+
+"This is not a prison camp."
+
+"It is an active risk site."
+
+Halvare spoke before Sivara could answer.
+
+"Restriction without explanation creates underground behavior. We know
+this."
+
+Vaelis nodded once.
+
+"Supervised channels are safer than forbidden channels."
+
+Rethan looked around the room and realized he was losing numbers again.
+
+"Your supervised channels still involve an unclassified method."
+
+Rachel had been silent long enough.
+
+"Then classify the boundary conditions, not me."
+
+The room turned toward her.
+
+"Define what they may attempt," she continued. "Define what they may never
+attempt. Give them hard stops. If you ban everything, they'll test in
+secret."
+
+Mirrel exhaled slowly.
+
+"She's right."
+
+Sivara studied Rachel, then gave one short nod.
+
+"We draft limits tonight."
+
+The next two hours were less dramatic than seam fighting and almost as
+exhausting.
+
+They argued line by line over what constituted imitation versus standard
+practice, over how to teach caution without teaching method, over who had
+authority to halt a trial the instant ego outran judgment.
+
+By the time they finished, the lantern oil was low and everyone's voice
+had gone rough.
+
+Sivara read the final list aloud:
+
+No unsupervised seam contact by apprentices.
+
+No dual-hand hinge attempts outside formal drill.
+
+No distance corrections by anyone except designated responders.
+
+Any heat spread above wrist level must be reported immediately.
+
+Any observed pre-manifestation sensing must be logged and reviewed by
+Mentor command within one shift.
+
+Violations suspended from line duty pending review.
+
+Rethan wanted it signed as Council order.
+
+Sivara refused.
+
+"Local operational doctrine under emergency variance. You may countersign.
+You do not own it."
+
+He set his jaw and signed anyway.
+
+Mirrel signed next, harder than necessary, as if forcing the ink into
+agreement. Ilyra signed with a quick slash. Arathen signed in careful,
+blocky script that looked nothing like his fieldwork and everything like
+intent.
+
+When the page reached Rachel, she hesitated.
+
+Halvare watched her over folded hands.
+
+"You can decline."
+
+"I know."
+
+She took the pen and signed.
+
+Not because she liked the terms.
+
+Because refusing them tonight would make tomorrow harder on everyone else.
+
+Afterward, people dispersed in twos and threes. The hall emptied down to
+Sivara, Rachel, and Vaelis.
+
+Vaelis waited until the door latched behind the last captain before
+speaking.
+
+"You gave up leverage in there."
+
+Rachel leaned on the table edge, suddenly tired enough to feel it in her
+teeth.
+
+"I bought structure."
+
+Vaelis considered that and gave a small nod.
+
+"You did."
+
+Sivara rolled the signed page and sealed it with wax.
+
+"Get sleep while you can," she said to Rachel. "Tomorrow this will be
+tested."
+
+"By seams."
+
+"By people."
+
+Sivara handed the sealed doctrine to Teral, who had appeared in the
+doorway at precisely the moment logistics was needed.
+
+"Copies to all line leads by first bell."
+
+When Rachel and Arathen finally stepped back into the night, the square
+had mostly emptied. Workers were still scrubbing chalk residue from the
+stones, but slower now, shoulders heavy, movements automatic.
+
+Arathen walked in silence until they reached the house wall.
+
+"You okay," he asked, and it came out as statement and question both.
+
+Rachel looked back toward the chamber door.
+
+"I thought surviving the demonstration would feel like a win."
+
+"And."
+
+"It feels like paperwork with consequences."
+
+He gave a rough half-smile.
+
+"Welcome to command."
+
+She leaned her head briefly against his shoulder before pushing off and
+opening the door.
+
+"If this is command," she said, "I preferred monsters."
+
+From the kitchen, Maelin called out without turning.
+
+"Too bad. You get both."
+
 
 ---
 
@@ -6751,6 +8091,162 @@ Arathen squeezed her hand once, not hard.
 
 "Then we stop pretending you're the problem and start asking what keeps
 pointing at you."
+
+They might have gone inside then if the knock had not come from the side
+gate.
+
+Not urgent.
+
+Careful.
+
+Arathen moved first, hand near the latch but not the weapon at his belt.
+Rachel followed close enough to see over his shoulder when he opened the
+gate.
+
+Old Mara stood there with her husband, Joss, both wrapped in travel cloaks
+despite having no packs. Mara's mouth was set in a line Rachel had seen in
+people bracing for bad weather and worse news.
+
+"Sorry to call this late," Mara said. "Could we have a word."
+
+They brought them to the kitchen table. Maelin appeared out of nowhere with
+hot broth and the expression of someone who had already decided these were
+her people for the next hour whether they liked it or not.
+
+Joss held the bowl in both hands and stared into it before speaking.
+
+"We live on south lane. Third house from the old fountain."
+
+Rachel knew it. Low stone wall, apricot tree that never ripened at the
+same time as anyone else's.
+
+"We've lived there forty-one years," Mara said. "We'd like to keep it if
+we can."
+
+Arathen sat opposite them, posture easy enough to keep panic down.
+
+"What's happening."
+
+Mara looked at Rachel, then at the table.
+
+"Since the demonstration, neighbors have started asking whether we're
+inside or outside 'priority lines.' Some think center houses are safer.
+Some think farther out is safer. People are trading rooms like weather can
+be bargained with."
+
+Joss gave a rough laugh.
+
+"A boy offered me two goats for our lower room because it has no western
+window."
+
+Maelin made a face.
+
+"That's the worst trade proposition I've heard this month."
+
+Mara didn't smile.
+
+"Tonight our daughter asked us to move in with her by dawn. She says if the
+next event hits, people near Rachel will be targeted first."
+
+Silence settled around the table.
+
+Rachel felt the old pressure rise in her chest, the one that had nothing
+to do with seams and everything to do with being spoken about like a storm
+front.
+
+"I don't blame her for being scared," Rachel said quietly.
+
+Mara met her eyes.
+
+"Neither do we. That's why we're here."
+
+Arathen leaned forward.
+
+"What do you need."
+
+Joss finally looked up.
+
+"Truth. Not comfort."
+
+Rachel appreciated him for that.
+
+"Truth is we don't have a 'safe ring' map yet," she said. "We're learning
+what holds and why. If we had a clear evacuation advantage by district,
+Sivara would've posted it already."
+
+Mara nodded once, absorbing.
+
+"And if we stay."
+
+"If you stay, we'll reinforce your lane at first bell and add two walkers
+to your block rotation through night watch. If you leave, we'll secure your
+house and mark it as temporary vacant so no one forces entry."
+
+Joss looked between Rachel and Arathen.
+
+"No speech about courage."
+
+"No speech," Arathen said.
+
+Mara's shoulders came down by a fraction.
+
+"Good."
+
+She finished the broth in three practical swallows and set the bowl down.
+
+"We'll stay."
+
+Maelin, who had been pretending not to listen while clearly listening to
+every word, pointed a spoon at Arathen.
+
+"You'll tell Ilyra before she does patrol assignments and makes me add you
+to another list."
+
+"Yes."
+
+Mara stood, then hesitated and looked at Rachel.
+
+"For what it's worth, half the lane says you're saving us and half says
+you're drawing it. I think both are true and neither helps with sleep."
+
+Rachel let out a breath that almost passed for laughter.
+
+"That's the best summary I've heard all week."
+
+After the couple left, Arathen wrote lane notes by lanternlight while
+Maelin packed reinforcement chalk and two spare ward nails into a canvas
+roll for morning.
+
+Rachel stood at the sink with her hands braced on the stone rim.
+
+Arathen came up beside her.
+
+"You're not responsible for every fear in town."
+
+"No," she said. "But my name is in most of them."
+
+He didn't argue that.
+
+Instead he took her hand and turned it palm-up, thumb tracing the old line
+of a half-healed blister.
+
+"You can carry responsibility," he said. "You can't carry prediction."
+
+She looked at him.
+
+"You make it sound easy."
+
+"It's not easy. It's a boundary."
+
+That word, in his voice, did something steadier than comfort.
+
+They stepped back outside once more before bed. Thornhaven's lantern grid
+burned low and even across the dark. Somewhere along south lane, Mara's
+door shut with a sound Rachel recognized from years of ordinary nights.
+
+For now, ordinary still existed.
+
+For now, that had to count.
 
 
 ---
@@ -7355,6 +8851,193 @@ the thread in her chest hum like distant wire.
 
 She stayed where she was.
 
+An hour later, the bell did not ring, but people gathered anyway.
+
+Rumor moved faster than alarms now. By the time Rachel came down from the
+walkway, half the square had drifted toward the meeting platform in loose
+groups pretending not to be a crowd.
+
+Sivara stood at center with Halvare and Rethan. Ilyra paced the perimeter
+with visible impatience. Maelin had stationed herself near the platform
+steps and was wordlessly redistributing anxious children to adults who
+looked steadier than they felt.
+
+Arathen took one look at the numbers and muttered, "This is not a debrief.
+This is containment by conversation."
+
+Sivara heard him and almost smiled.
+
+"Then let's contain something."
+
+Rethan stepped up first.
+
+"There are proposals for temporary redistribution of vulnerable households
+to inner blocks."
+
+The phrase temporary redistribution landed like a cold bucket thrown over
+already-frayed nerves.
+
+Voices rose.
+
+"You mean relocation."  
+"You mean evacuation by status."  
+"Who decides vulnerable."
+
+Rethan lifted a hand for silence. He did not get it.
+
+Mirrel climbed the platform without invitation and faced the crowd.
+
+"Stop shouting long enough to hear the bad version and the better one."
+
+That got them quiet.
+
+He turned to Rethan.
+
+"State your proposal plainly."
+
+Rethan drew himself up.
+
+"Outer-lane families with children under twelve and elders over sixty
+would be moved to inner wards until escalation subsides."
+
+"By request or by order," Mirrel asked.
+
+Rethan held his gaze.
+
+"By emergency authority if necessary."
+
+The square erupted.
+
+Arathen swore under his breath. Ilyra put two fingers in her mouth and
+whistled sharp enough to cut through the noise.
+
+Sivara stepped to the front edge of the platform and let silence build
+rather than forcing it.
+
+"No one is moving anyone tonight by force," she said.
+
+The words dropped like anchors.
+
+"Tomorrow we post voluntary reinforcement options by lane. We add escorts
+for households who choose to relocate. We do not fracture this town by
+pretending fear can be sorted into neat columns."
+
+Rethan opened his mouth. Halvare touched his sleeve once.
+
+"Not tonight," Halvare said softly.
+
+Then Caelen did something that surprised everyone, maybe most of all
+himself.
+
+He stepped forward from the edge of the crowd with his notebook in his
+hands and spoke without climbing the platform.
+
+"I made it worse," he said.
+
+Heads turned.
+
+"At the south fracture. I tried to imitate without full understanding. I
+could have caused a cascade. People saw that."
+
+His voice shook once and steadied.
+
+"So if you're afraid because someone like me thinks they can copy what
+Rachel does, you're right to be afraid."
+
+Mirrel looked at his son with open alarm and pride tangled together.
+
+Caelen went on before courage failed him.
+
+"The new drill restrictions are right. Keep them. Enforce them. But don't
+turn this into punishment for people who haven't done anything except live
+in the wrong lane."
+
+The square held very still.
+
+Sivara nodded once toward him.
+
+"Noted."
+
+Rethan's expression tightened. "Anecdotal confession is not policy."
+
+Rachel heard herself answer before she planned to.
+
+"Neither is pretending control where we don't have it."
+
+She stepped onto the platform.
+
+Every face turned toward her.
+
+"The summons I reported hasn't become a breach. Not yet. We still choose
+how we hold each other until it does."
+
+She looked across the crowd at Mara and Joss from south lane, at Tamsen
+with her nephew, at the baker with flour still on his sleeves from a shift
+that had run too long.
+
+"If anyone wants to move inward for a few nights, ask. We'll support it.
+If anyone stays, we'll reinforce your line and check on you twice a watch.
+No shame either way."
+
+She paused, then added what she had avoided saying aloud all day.
+
+"And if this call is for me, then I carry that risk. You don't carry it
+alone, and you don't carry it blind."
+
+The silence that followed felt different from fear.
+
+Not calm.
+
+Alignment.
+
+Sivara picked up the thread.
+
+"Lane volunteers report to Ilyra after this meeting. Food and bedding
+coordination through Maelin. Survey requests to Halvare's desk by dawn.
+Nobody improvises heroics."
+
+Ilyra pointed at three apprentices already leaning toward each other.
+
+"You heard her. No heroics means you too."
+
+Low laughter moved through the square, brittle and real.
+
+The crowd began to break into workable clusters: neighbors comparing who
+would host whom, parents arguing quietly about windows and stair access,
+walkers taking names with charcoal on scrap board.
+
+Arathen came up beside Rachel as she stepped down from the platform.
+
+"You didn't plan that speech."
+
+"No."
+
+"Good speech."
+
+She looked at him sidelong.
+
+"That's almost praise."
+
+"Don't get used to it."
+
+By the time the square thinned, the moon had risen high enough to silver
+the marker tops. Rachel and Arathen walked the first escort route with
+Ilyra and two line walkers, moving one family at a time from outer lanes
+to interior rooms that smelled of unfamiliar soap and spare blankets.
+
+At the last house, a little boy refused to leave his carved wooden bird on
+the windowsill until Rachel promised he could come back for it in the
+morning.
+
+She promised.
+
+When the routes were done and the town finally settled, she stood once
+more at the western edge and listened.
+
+The thread in her chest still leaned west.
+
+Tonight, at least, Thornhaven leaned together.
+
 
 ---
 
@@ -7540,6 +9223,197 @@ She could find him now.
 
 And he knew it.
 
+Sivara shut the door behind the others and set her blade on the table with
+careful, deliberate precision.
+
+"No one sleeps through the rest of this night," she said. "Not in this
+house."
+
+Maelin crouched by the cracked ward tiles and touched the smoking edge with
+two fingers, then frowned.
+
+"Heat signature isn't from breach impact," she said. "It's from reverse
+pull."
+
+Edrin, summoned by the commotion and still pulling his coat on, dropped to
+his knees beside her.
+
+"Reverse pull from where."
+
+Rachel answered before Maelin could.
+
+"From me."
+
+The room went very still.
+
+Arathen stayed beside her on the floor, one hand at her back.
+
+"Explain."
+
+Rachel swallowed.
+
+"When I pushed through the tether, part of the ward network followed the
+rotation. Not physically. Resonance. Like it was trying to stabilize around
+the same geometry."
+
+Edrin stared at the cracked tile as if it might confess.
+
+"That's impossible."
+
+Ilyra leaned against the wall, jaw tight.
+
+"We've retired impossible this month."
+
+Sivara looked from Rachel to Arathen.
+
+"Can you track him now without opening yourself."
+
+Rachel closed her eyes and tested the line.
+
+Vex was there. Distant. Alert. Angry.
+
+The connection hummed like a thin wire in rain.
+
+"Yes," she said. "But only if I stay shallow."
+
+"Stay shallow," Sivara said.
+
+Arathen's hand tightened.
+
+"No line work tonight."
+
+Rachel nodded.
+
+Sivara gave assignments in quick sequence.
+
+Ilyra took first perimeter rotation.
+
+Maelin reinforced interior doorframes with portable sigils.
+
+Edrin copied the ward fracture pattern onto three separate sheets in case
+one burned or vanished.
+
+Arathen stayed with Rachel.
+
+When the room finally thinned and the urgency of immediate action gave way
+to the slower weight of consequences, Rachel sat on the edge of the bed
+with a wool blanket around her shoulders and watched Arathen reset the
+nearest ward tile with painstaking care.
+
+He did not look up when he spoke.
+
+"He used me."
+
+Rachel's throat tightened.
+
+"I know."
+
+"My face. My voice."
+
+"I know."
+
+He set the tile and pressed the seal line until it took.
+
+"I can handle danger," he said. "I don't like being turned into leverage."
+
+Rachel reached for him. He came immediately, kneeling in front of her with
+both hands on her knees, grounding himself as much as her.
+
+"You were still there," she said. "Under it. That's how I knew where to
+cut."
+
+His eyes lifted to hers, dark and tired and furious at things he could not
+stab.
+
+"Then he knows that now too."
+
+The truth of it sat between them.
+
+Yes.
+
+He leaned his forehead against hers for a long breath.
+
+"Next time he comes through me, you break him anyway."
+
+Rachel closed her eyes.
+
+"Next time he comes through you, I end it faster."
+
+Near dawn, the first bell had not rung yet, and that silence should have
+been relief. It wasn't. Everyone in the house moved as if listening for a
+word they did not want to hear twice.
+
+Sivara gathered them in the kitchen around a cold map and made them walk
+through countermeasures before the day could outrun planning.
+
+"If dream intrusion repeats, no solo sleep," she said. "Pairs minimum.
+Ward checks every two hours. If Rachel calls a tether event, nearest two
+responders lock interior perimeter before engaging external seams."
+
+Ilyra pointed to one corner of the map.
+
+"And if it happens while we have active fractures."
+
+"Then we triage by immediate civilian risk," Sivara said.
+
+Rethan would have called it a protocol tree. In that room it felt like
+people trying to out-think catastrophe with charcoal and stubbornness.
+
+Edrin tapped the sketch of the cracked tile.
+
+"If reverse pull is real, every dream event could be stressing local
+wards."
+
+Maelin folded her arms.
+
+"Meaning what."
+
+"Meaning Vex doesn't need to breach physically if he can make us crack from
+inside every time he probes."
+
+The line chilled the room.
+
+Arathen looked at Rachel.
+
+"Can you mask the tether."
+
+Rachel considered, then shook her head.
+
+"Not mask. Blur, maybe. Reduce clarity. It'll cost range."
+
+Sivara's answer came without pause.
+
+"Do it."
+
+Rachel set both palms on the table and found the thread in her chest,
+thinner now and still dangerous. She folded her awareness around it the
+way she would around a blade before sheathing, careful of edge, careful of
+angle.
+
+The wire dimmed.
+
+Not gone.
+
+Harder to follow.
+
+She opened her eyes and found everyone watching her with that same strange
+mix she had started to recognize: trust, fear, dependence.
+
+"It's blurred," she said.
+
+Edrin exhaled.
+
+"For now."
+
+Sivara rolled the map and stood.
+
+"For now is enough to get through first bell. Move."
+
+They moved.
+
+By the time dawn light reached the windows, Thornhaven had already answered
+four collapses.
+
 
 ---
 
@@ -7693,6 +9567,160 @@ The pull under them did not.
 Whatever had been testing Thornhaven was gathering itself for something
 larger, and everybody in town seemed to feel it even if they didn't have
 her language for it.
+
+They were still at the western line when a runner came hard over the rise,
+breathing in jagged pulls and waving both arms before he reached shouting
+distance.
+
+"Spillway barn collapse!"
+
+Arathen straightened. "How many."
+
+"Five trapped, maybe six. Seam under the foundation."
+
+Rachel and Arathen ran before the sentence finished.
+
+The spillway barn sat outside the main street grid, low and wide with one
+wall built against old retaining stone. By the time they arrived, half the
+roof had slumped inward and two side beams were hanging by one cracked
+joint.
+
+Ilyra was already there, spear discarded, shoulder braced under a support
+timber while two farmhands dragged sacks clear of the entrance to make a
+crawl path.
+
+"You're late," she snapped without looking at them.
+
+"Status," Arathen said.
+
+"One seam under the west footing. Every time we lift weight, it tightens."
+
+Maelin crouched beside a trapped woman with a broken ankle and blood down
+one sleeve, tying a pressure wrap with quick, furious precision.
+
+"If that beam goes, we lose the whole corner," Maelin said.
+
+Rachel dropped to one knee at the cracked footing and listened.
+
+The seam was narrow and mean, wedged into old mortar where the retaining
+stone met newer supports. It wasn't deep enough to be a town-level event.
+It was exactly dangerous enough to kill six people and call itself minor.
+
+"I need thirty seconds with no load shift," she said.
+
+Ilyra barked a laugh under the timber.
+
+"Take twenty."
+
+Arathen moved instantly, pulling two workers into position to counterbrace
+the sagging beam while Ilyra adjusted her stance by inches.
+
+"On my count," he said. "Nobody improvises heroics."
+
+He counted.
+
+They held.
+
+Rachel reached into the seam and felt the westward pull trying to drag this
+small fracture into the larger pattern.
+
+Not tonight.
+
+She rotated the seam off the pull line and fed it back into local ground
+stress where it belonged. The crack in the footing shivered once, then
+stilled.
+
+"Now move," she said.
+
+Arathen and Ilyra shifted the beam together. The farmhands crawled in and
+dragged out two boys covered in dust and one man coughing blood into his
+sleeve. Maelin triaged in motion, pointing and shouting over the noise.
+
+"Walking wounded to the fence line. You, stay flat. You, hold this cloth
+and don't let go."
+
+The last trapped worker came out limping with Joss behind him, face gray
+and set.
+
+"All clear," Joss gasped.
+
+Ilyra let the beam drop and sat down hard in the dirt, laughing once from
+pure relief.
+
+"I hate barns."
+
+Arathen checked each person visually, then looked at Rachel.
+
+"You good."
+
+"For now."
+
+He nodded, accepting the truth and the limit both.
+
+By the time they walked back toward town, dawn threatened at the horizon
+and the bells had gone quiet again.
+
+Not peaceful quiet.
+
+Held quiet.
+
+At the gate, Halvare was waiting with a slate in hand and mud on his coat
+hem for the first time since he arrived in Thornhaven.
+
+"I need incident details for the overnight log," he said.
+
+Ilyra snorted as she passed him.
+
+"Write this: everyone is tired."
+
+Halvare looked to Rachel anyway.
+
+"Was the spillway seam linked to the western pattern."
+
+Rachel rubbed grit from her palms.
+
+"Yes. Lightly. It was trying to recruit local stress."
+
+He wrote that down with deliberate care.
+
+"Trying to recruit," he repeated under his breath, as if testing the words
+for whether they would survive sunlight.
+
+They did not sleep after that.
+
+Sivara called first-light briefing in the square while mist still clung to
+the cobbles. Teams stood in ragged semicircles, eyes red, hands bandaged,
+armor straps retied too many times.
+
+Sivara gave updates by function, not comfort.
+
+Three minor collapses stabilized.
+
+One structural injury cluster at spillway.
+
+No fatalities overnight.
+
+Potential escalation window remained active.
+
+Rethan requested another controlled demonstration after the briefing.
+Sivara declined without giving him room to negotiate.
+
+"You get demonstrations when I have spare people to lose."
+
+He did not ask again.
+
+As teams broke, Rachel stood at center and felt the westward pull under
+everything, deep and patient and increasingly sure of itself.
+
+She looked at Arathen.
+
+"It's not waiting for us to be ready."
+
+He adjusted his gauntlet and met her gaze.
+
+"Then we meet it unready and disciplined."
+
+That was the best promise either of them could make.
 
 
 ---
@@ -7877,6 +9905,142 @@ Outside, Thornhaven slept in broken stretches between bells.
 
 Inside, while the tremor was still leaving her hands, Rachel lifted her
 head from Arathen's shoulder and asked where her boots were.
+
+Maelin swore softly.
+
+"No."
+
+Rachel met her eyes.
+
+"Yes."
+
+Sivara stepped into the middle of the room and took command before the
+argument could fracture.
+
+"Boots, then. But nobody leaves this house without paired support and
+interior anchor checks every room length."
+
+Ilyra sheathed her blade with an irritated snap.
+
+"I can run perimeter with her."
+
+"You can run perimeter with me," Arathen said. "Rachel takes center lane.
+If she drops, we all drop."
+
+No one liked that plan.
+
+It was the right one.
+
+Ten minutes later they were in the square under a moon gone thin and hard.
+Most houses were dark; no bells rang. The silence carried too much weight
+to be restful.
+
+Rachel stood at center with both boots planted and let her awareness drift
+outward in careful circles.
+
+The town held.
+
+The line to Vex did not.
+
+It pulsed once from very far away, like a knuckle tapped against glass.
+
+She stiffened.
+
+Arathen saw it.
+
+"Contact."
+
+"Distant."
+
+Sivara, posted by the fountain with Ilyra on her left and Halvare on her
+right, spoke without moving.
+
+"Do we engage."
+
+Rachel listened again.
+
+"No. He's probing for position."
+
+Edrin, who had ignored three direct suggestions that he go back to bed,
+looked up from his notebook.
+
+"Can we feed him false geometry."
+
+Ilyra gave him a look.
+
+"Can you do that with your books."
+
+"With hers," Edrin said, nodding toward Rachel.
+
+Sivara's gaze sharpened.
+
+"Try once. Minimal amplitude."
+
+Rachel closed her eyes, found the tether's resonance, and rotated a thin
+layer of signature around it, not enough to sever, enough to refract.
+
+The pulse came back wrong.
+
+Faded.
+
+Then gone.
+
+Edrin made a strangled sound of triumph and immediately lowered his voice
+when Maelin glared at him from the meeting hall steps.
+
+"That worked."
+
+"Temporarily," Rachel said.
+
+"Temporary counts at three in the morning," Maelin muttered.
+
+They held positions for another watch with no further probes. Around them,
+small pockets of ordinary persisted stubbornly: a baker kneading tomorrow's
+dough by lanternlight because routine was rebellion now; two old men
+arguing over a fence post angle in whispers; a cat stalking along the low
+wall by the dye house as if none of this had changed its priorities.
+
+At last Sivara called the watch down.
+
+"Two hours rest. Then first-light brief."
+
+Arathen guided Rachel back toward the house by the least uneven stones.
+
+"Still need the boots," he said quietly.
+
+She gave him a tired look.
+
+"Always."
+
+He opened the door and paused before she crossed.
+
+"I don't need you fearless."
+
+Rachel looked up.
+
+"What do you need."
+
+"Honest. Alive. Here long enough to be angry tomorrow."
+
+She nodded once.
+
+"I can do angry."
+
+He almost smiled.
+
+Inside, Maelin had set food on the table and pretended not to be waiting.
+Ilyra cleaned her spear in short, efficient motions. Edrin had fallen
+asleep sitting up over his notes, chin on his chest, charcoal still in his
+hand.
+
+Rachel stood in that ordinary, overfull kitchen and felt the afterimage of
+Vex's domain drain from her bones by degrees.
+
+Not gone.
+
+Manageable.
+
+For one night, that would have to be enough.
 
 
 ---
@@ -8227,6 +10391,188 @@ No one asked her what way.
 
 The next bell began before the sentence finished.
 
+The second bell answered from the north wall before the first had stopped.
+
+Then a third, farther out.
+
+Then no bells at all, because the noise of the seams swallowed them.
+
+Sivara slammed her palm onto the command board and spoke like a blade.
+
+"Everyone look at me."
+
+Even the panicked runners managed it.
+
+"We do not chase every flash. We hold people, then lines, then damage."
+
+She pointed in three directions in quick sequence.
+
+"Ilyra, civilian lanes. Arathen, inner gate corridor. Rachel stays center
+with me. Edrin and Halvare on pattern board. Rethan and Meredin, take
+outer observers and give me clean reports or get out of my sight."
+
+Rethan stiffened at the tone, then nodded once and moved.
+
+Meredin gave Sivara a look that contained an entire argument deferred and
+followed him.
+
+Arathen caught Rachel's eye before he broke for the inner gate.
+
+"Center only unless I call."
+
+Rachel knew what he meant: do not burn yourself on every edge event.
+
+"Center only," she said.
+
+He ran.
+
+Ilyra's voice cut across the square as she drove civilians inward.
+
+"Eyes up, keep moving, nobody stops to stare at lights."
+
+Near the bakery lane, Mara and Joss were helping carry water buckets to
+the meeting hall when a narrow seam opened across the alley and split a
+stone trough in half. Joss froze. Mara grabbed his coat and dragged him
+back three steps before the seam could widen.
+
+Rachel felt the motion through the ground and turned toward it
+automatically.
+
+Sivara caught her wrist.
+
+"No."
+
+"They're exposed."
+
+"And if you sprint every line, you lose center and everyone dies slower.
+Hold."
+
+Rachel hated her for being right for exactly one heartbeat, then nodded.
+
+She dropped to one knee at center and extended her awareness not to close
+the perimeter seams but to read their cadence.
+
+Twelve lines.
+
+Fourteen.
+
+Sixteen.
+
+All opening in timing patterns that repeated every third pulse.
+
+"It's a sequence," she said.
+
+Edrin looked up from the map table, charcoal already smearing his fingers.
+
+"Say it."
+
+"North-west-south stagger. Then east mirror. It's building a frame."
+
+Halvare started marking each report with a colored pin instead of writing
+full notes. In less than a minute, the board showed what Rachel was
+feeling: no random spread, only disciplined escalation.
+
+"Frame around what," Halvare asked.
+
+Rachel didn't answer because she already knew.
+
+Around the square.
+
+Around her.
+
+Arathen's runners returned in bursts with updates she did not want.
+
+"Inner gate corridor clear for now."
+
+"Two injured at dye house, moved."
+
+"Caelen and Mirrel holding north lane volunteers in place."
+
+Sivara kept the orders precise and impersonal because anything softer
+would break under this much strain.
+
+"Good. Keep them off marker edges. If a seam flashes white, everyone drops
+flat and waits for call."
+
+One of the younger runners was shaking so hard he could barely hold his
+message slate.
+
+"M-my sister's on west spillway rotation—"
+
+Sivara took his shoulders, made him look at her.
+
+"Name."
+
+"Nera."
+
+"Nera is on Ilyra's line. Ilyra is still shouting. That means your sister
+is alive and moving. Breathe and carry the next message."
+
+The boy breathed, nodded, and ran.
+
+Rachel kept listening.
+
+The frame narrowed by inches.
+
+At north lane, Caelen did exactly what the new doctrine required and no
+more: he held observers back, called distances, and kept his hands off
+active seams no matter how badly he wanted to help directly. Mirrel worked
+beside him without once needing to say don't.
+
+Across the square, Maelin had converted a grain cart into a moving triage
+table and was steering it through side lanes while cursing anyone who
+tried to apologize for bleeding.
+
+Vulnerability.
+
+Discipline.
+
+Fear.
+
+Function.
+
+Thornhaven was all of it at once.
+
+Rachel's teeth ached from holding the pattern in her head.
+
+"Sivara," she said. "If this keeps tightening, center triggers next."
+
+Sivara did not ask if.
+
+"How long."
+
+"Minutes."
+
+Sivara lifted her voice to the whole square.
+
+"All teams, this is center command. We are entering trigger phase. No
+independent closure attempts. Repeat: no independent closure attempts."
+
+Rethan's voice came from outer line, carrying over seam hum and bells.
+
+"Center command, outer ring confirms synchronized pulse increase. You are
+correct."
+
+There was no triumph in being correct.
+
+Only consequence.
+
+Rachel stood, wiped sweat from her upper lip with a shaking wrist, and
+looked at the ring of waiting seams.
+
+"It's coming," she said.
+
+Sivara took one step closer to stand shoulder to shoulder with her.
+
+"Then we meet it here."
+
+The bell rope snapped on the next pull, the severed end whipping across
+stone.
+
+No one reached for it.
+
+They did not need bells anymore.
+
 
 ---
 
@@ -8395,6 +10741,191 @@ Rachel looked west once more, then toward town center where Sivara was
 still directing teams under failing lantern light.
 
 "No," she said quietly. "We hold until it shows us where the center is."
+
+It showed them sooner than any of them wanted.
+
+At second watch, the western arc flared in a synchronized pulse that ran
+from outer farms to inner walls and back again, turning every seam-light
+line in town the same hard white for one blinding breath.
+
+People screamed.
+
+Then the light dropped, and in the sudden dark three things changed at
+once.
+
+The creatures stopped advancing.
+
+The bell ropes went silent.
+
+And the ground under the square began to hum in a continuous, rising note
+that made teeth ache.
+
+Sivara was on the platform before the echo died.
+
+"Status."
+
+Reports came in ragged and overlapping.
+
+"North lane holds."  
+"Two down at spillway, both breathing."  
+"Outer hamlet evac halfway in."  
+"No new breaches in the last minute."
+
+No new breaches.
+
+In any other week that sentence would have felt like mercy.
+
+Tonight it felt like inhaling before a strike.
+
+Edrin's charcoal snapped in his hand.
+
+"They're pausing on purpose."
+
+Halvare looked up from his ledger.
+
+"For what."
+
+Rachel pressed both palms to the western marker and listened deeper.
+
+The frame wasn't searching anymore.
+
+It had found orientation.
+
+"For alignment lock," she said. "Center is about to activate."
+
+Arathen arrived from south lane with blood on his sleeve that wasn't all
+his and a dozen civilians in tow.
+
+"Last group from outer road is in. Gates are barred."
+
+Ilyra came in a heartbeat later, breathing hard, spear nicked along the
+shaft.
+
+"North teams can hold fifteen more minutes at this pace. After that we
+start making stupid choices."
+
+Sivara nodded and pointed.
+
+"Then we buy fifteen."
+
+She shifted into hard-command cadence.
+
+"All outer fighters rotate inward by two lines. We are no longer defending
+perimeter geometry; we are defending center activation."
+
+Rethan stared at her.
+
+"You are abandoning the ring."
+
+"I'm abandoning the illusion that the ring is the objective."
+
+Meredin stepped to the map board and moved three pins himself.
+
+"Council teams follow local command."
+
+Rethan's jaw worked, but he obeyed.
+
+In the meeting hall doorway, Maelin stood on a bench so the room could
+hear her.
+
+"Water line left wall. Quiet line right wall. If anyone runs for the
+street without a runner escort, I drag you back myself."
+
+No one tested her.
+
+Caelen appeared beside Edrin with two fresh slates and ink-stained hands.
+
+"I can run messages."
+
+Mirrel answered from three paces away while checking the strap on his
+gauntlet.
+
+"You can run and return. In that order."
+
+Caelen nodded once and did exactly that for the next hour.
+
+The hum climbed.
+
+Rachel moved through short corrections only, touching seams long enough to
+keep them from detonating and then letting them go. Every instinct in her
+wanted to close each one hard and clean. Doing that now would have drained
+her before center lock.
+
+She hated restraint.
+
+She used it anyway.
+
+At one point a creature broke through the east side and made it as far as
+the grain stairs before Ilyra's team pinned it between two shields and
+forced it back into a narrowing fissure. At another, Halvare took a blow
+to the shoulder, reset his stance, and kept reading seam cadence aloud as
+if his arm were someone else's problem.
+
+Rethan saw a narrow vent seam by the fountain and flinched toward closure.
+
+Rachel caught his wrist.
+
+"If you collapse that vent, pressure spikes at center."
+
+He looked at her hand on his sleeve, then at the vent, then at the white
+line pulsing beneath the cobbles.
+
+"I hate this method."
+
+"Me too."
+
+He let her turn his cast out of the line and did not argue again.
+
+Toward dawn, the sky over Thornhaven stayed black in a way that didn't
+belong to night. Clouds had moved off hours ago. The dark remained as if
+light itself was waiting for permission.
+
+The hum under the square reached a pitch no bell could match.
+
+Rachel's knees threatened to buckle. Arathen appeared at her side with a
+waterskin and pressed it into her hand.
+
+"Drink."
+
+"No time."
+
+"Drink."
+
+She drank.
+
+He took the skin back and touched two fingers to her wrist, pulse check,
+old habit.
+
+"You still with me."
+
+"For now."
+
+"Good enough."
+
+Sivara called from the platform, voice ragged and iron.
+
+"All teams hold current positions. No one advances beyond assigned line.
+If center opens, no one enters except designated pair."
+
+No one asked who the pair were.
+
+Everyone in town already knew.
+
+The first gray of morning finally broke at the horizon.
+
+As it did, every active seam in Thornhaven narrowed by the same exact
+fraction.
+
+Rachel felt the center lock take hold like a key turning in a hidden
+chamber under the square.
+
+She looked at Sivara.
+
+Sivara looked back and gave one short nod.
+
+"Center," she said.
+
+Rachel turned toward the square's heart and started walking.
 
 
 ---
@@ -8594,6 +11125,161 @@ Whatever secrecy remained burned off in that hour.
 
 Rachel gave it up without looking away from the pattern.
 
+The first minutes looked like control.
+
+The next looked like cost.
+
+Sweat ran down Rachel's temples and into her collar despite the cold air.
+Blood from an old nosebleed traced one dark line to her upper lip and
+dripped onto the stone between her knees. She didn't wipe it.
+
+Arathen saw it and moved one pace closer.
+
+"Rachel."
+
+She lifted one finger without looking at him.
+
+"Not yet."
+
+He stopped where he was and held the perimeter around her with his body,
+turning his back to the crowd so she could keep the map in her head clear.
+
+At the platform, Sivara adjusted commands by what Rachel did rather than
+what the seams appeared to be doing.
+
+"North reserve hold. West team advance two houses. East closures stand by
+for secondary release."
+
+Ilyra's fighters responded without hesitation, learning in real time that
+their job had shifted from fixing fractures to protecting the person
+rewriting them.
+
+Rethan watched in visible disbelief as three high-width seams he had
+flagged for emergency compression simply folded inward when Rachel changed
+a distant angle by less than a degree.
+
+"That's not cast law," he muttered.
+
+Halvare answered without looking away from the square.
+
+"No. It's structure law."
+
+Meredin said nothing, but he had stopped pretending this was temporary.
+
+At the edge of the crowd, Caelen stood on a rain barrel to see over taller
+adults and gave runners hand signals based on where Rachel's attention
+moved. Mirrel caught him doing it and, after one long second, chose not to
+pull him down.
+
+Edrin tracked the center map with both hands now, one marking active lines
+and one erasing old assumptions as fast as they died.
+
+"West tertiary settling," he called. "South anchor drift reducing. North
+vent still unstable by one point two."
+
+Rachel heard him and answered by turning a hinge two streets away.
+
+North vent stabilized.
+
+Edrin laughed once, disbelieving and exhausted.
+
+"I have never loved being wrong this much."
+
+The crowd's fear shifted into a different kind of danger: hope rising too
+fast.
+
+Sivara saw it and cut through.
+
+"No one advances. No one celebrates. This holds when she says it holds."
+
+The reminder landed.
+
+People kept their distance.
+
+A seam at the tannery flared black and spit out one long-limbed creature
+that hit cobbles at a run. Ilyra intercepted with a shield slam that
+turned it toward a side wall where two walkers trapped it in a containment
+arc until the seam under its feet collapsed and dragged it backward.
+
+No one cheered.
+
+They were too busy surviving.
+
+Rachel's hands shook harder.
+
+The pattern below town was almost complete and increasingly difficult to
+touch without being pulled deeper than she could safely go.
+
+"Sivara," she said, voice rough.
+
+"Here."
+
+"If I lock center, there will be rebound."
+
+"Magnitude."
+
+"Unknown. Maybe small. Maybe ugly."
+
+Sivara's answer came instantly.
+
+"Then we prepare ugly."
+
+She raised her voice.
+
+"All lines brace for rebound event. Shields up, feet set, no one on loose
+stone."
+
+Arathen relayed the command through hand signals and runner shouts. Maelin
+pulled the last cluster of civilians off the open lane and into the meeting
+hall threshold. Halvare closed his ledger and moved to physical support
+position for the first time since arriving in Thornhaven.
+
+Rachel drew one ragged breath and set her hands flat to center stone.
+
+"Now."
+
+She turned the hidden joint.
+
+The town jolted.
+
+Not a collapse. A full-body shudder through every wall, beam, and marker
+line in Thornhaven.
+
+Shingles slid.
+
+Window glass rattled.
+
+Two outer lamps exploded.
+
+Then the motion stopped.
+
+Every active seam in town dropped one full register.
+
+The ring of unstable light around the perimeter thinned.
+
+The next breath everyone took was the first full breath in hours.
+
+Rachel lifted her head, eyes unfocused for a moment, and whispered,
+
+"Center found."
+
+Sivara stepped down from the platform and came to stand in front of her.
+
+"Can you keep it."
+
+Rachel's answer was immediate and brutally honest.
+
+"I can hold long enough for the realignment."
+
+Sivara nodded once.
+
+"Then hold."
+
+The sky at the horizon paled by a fraction.
+
+Thornhaven stood at the edge of dawn with center in hand and no guarantee
+of what taking the next step would cost.
+
 
 ---
 
@@ -8764,6 +11450,127 @@ Rachel lifted her head.
 The pattern was stable.
 
 And something deeper under the stability had just woken.
+
+Sivara reached her first.
+
+"Don't stand too fast."
+
+Rachel ignored the first half and followed the second, pushing up
+carefully until she was upright on shaking legs.
+
+Arathen stepped into her blind side before the world could tilt.
+
+"I've got you."
+
+She nodded once, eyes still on the square.
+
+People had started moving again, but slowly, as if afraid sudden motion
+might crack what she'd just locked. Fighters checked each other for
+bleeding. Civilians emerged from doorways and looked around with stunned,
+guilty relief.
+
+Maelin climbed onto the nearest crate and shouted herself hoarse directing
+water and blankets.
+
+"If you're walking, you're helping. If you're not walking, sit where I can
+see you."
+
+Ilyra came in from north line with one shoulder soaked in blood and all of
+it, somehow, from other people.
+
+"Perimeter is down to embers," she reported. "No fresh creature crossings.
+Three wounded I need hands for."
+
+Sivara pointed without hesitation.
+
+"Take Halvare and second reserve. Rethan, with her."
+
+Rethan looked offended and went anyway.
+
+Edrin approached Rachel with the map clutched to his chest and the
+unmistakable expression of someone trying to choose between scientific awe
+and fear and failing to separate them.
+
+"You didn't seal them," he said. "You rekeyed the whole field."
+
+"Is that good."
+
+"It's..." Edrin laughed once, too tired for control. "It's unprecedented.
+Also terrifying. Mostly both."
+
+Meredin descended from the platform and stopped a respectful distance from
+Rachel, gaze moving over her face as if checking for signs she was still in
+there.
+
+"Can you repeat what you just did."
+
+Rachel answered immediately.
+
+"Not tonight."
+
+He accepted that.
+
+"Good. Then no one asks."
+
+Sivara shot him a narrow look that might have been gratitude and might have
+been warning.
+
+The ground hummed again, softer this time.
+
+Rachel felt it in her teeth.
+
+This was not seam noise.
+
+This was underneath seam noise.
+
+"Sivara," she said quietly. "It's still active."
+
+Sivara's eyes sharpened.
+
+"Where."
+
+"Under center. Deeper than the old lock."
+
+Edrin was already kneeling, pressing his palm flat to the cobbles.
+
+"He's right," Rachel corrected automatically, then shook her head at
+herself and started over. "Edrin is right. It's not decaying. It's...
+loading."
+
+Arathen looked west where dawn was beginning to thin the dark.
+
+"For another event."
+
+"For a different phase," Edrin said.
+
+Halvare returned from the lane with blood on his cuff and no ledger in his
+hands for the first time in memory.
+
+"No active perimeter breaches. Town mostly accounted for."
+
+Sivara nodded once and lifted her voice.
+
+"All teams shift to recovery posture. Keep armor on. Keep weapons close.
+No one leaves assigned sectors until daylight assessment completes."
+
+People obeyed because they were too tired not to and too frightened to
+pretend done meant over.
+
+Rachel turned slowly in place, taking in Thornhaven as it was: scorched
+stones, broken shutters, living people, smoke rising in thin lines from
+morning fires that should not have comforted her as much as they did.
+
+Then the hum under center dropped by half a note.
+
+Every marker in town answered.
+
+Rachel went cold.
+
+"Sivara."
+
+Sivara was already moving.
+
+"I know."
 
 
 ---
@@ -8947,6 +11754,199 @@ and steadied.
 
 Rachel took one slow breath and stayed where she was.
 
+The structure answered with a pulse that passed through every marker in
+town.
+
+At the edge of the square, two old ward lamps relit on their own.
+
+No one touched them.
+
+Murmurs rose, scattered and uncertain.
+
+"Did you see—"  
+"The lamps were cold."  
+"By all stones..."
+
+Sivara lifted her hand and the square quieted by habit.
+
+"No one approaches the aperture," she said. "No one touches center stone
+without command."
+
+Rethan stepped forward despite himself.
+
+"You cannot leave this uncontained overnight."
+
+Halvare did not take his eyes off the opening.
+
+"We may not have overnight."
+
+Meredin turned slowly, taking in the crowd in sections: fearful families,
+line walkers too exhausted to hide it, Council observers who had run out
+of doctrine and were now watching with naked attention.
+
+"Then we establish order now," he said.
+
+He pointed to the meeting hall.
+
+"Civilians to interior positions by household clusters. Lane captains post
+outside with runner access. No one leaves town perimeter until dawn
+authorization."
+
+Maelin was already moving before he finished.
+
+"You heard him. Shoes on, blankets in bundles, one person per household at
+the tally board now."
+
+Ilyra coordinated the lane captains with clipped efficiency, assigning
+positions by how quickly each person answered rather than rank.
+
+At north line, Mirrel took command of overflow crowd movement when one
+alley bottlenecked and sent three apprentices to clear an alternate route.
+Caelen ran message slates between him and Sivara, breathless and focused,
+no notebook in sight.
+
+Rachel stayed at center.
+
+Arathen stayed with her.
+
+For several minutes nothing else happened.
+
+That was almost worse.
+
+Then the aperture shifted in a way no one but Rachel seemed to notice.
+
+Not widening.
+
+Reorienting.
+
+The internal depth of it tilted west by a fraction, like a door that had
+been opened onto one corridor and was now choosing another.
+
+Rachel felt the west-leaning summons in her chest answer.
+
+"It's adjusting," she said quietly.
+
+Sivara heard the tone and came closer.
+
+"Toward what."
+
+"The same direction as the call. West vector."
+
+Edrin, kneeling with chalk near the center ring, looked up sharply.
+
+"Can you map it."
+
+Rachel closed her eyes and tracked the internal angle against the town's
+known lines. She pointed without opening them.
+
+"If our west is literal in this geometry, egress from the other side drops
+near the old anchor corridors. Maybe."
+
+Edrin's hands shook as he copied.
+
+"Maybe is still better than nothing."
+
+Arathen spoke low near her ear.
+
+"Do you feel pressure from the other side."
+
+"No."
+
+"Anything."
+
+Rachel listened harder.
+
+There was presence.
+
+Weight.
+
+Attention.
+
+No immediate threat.
+
+"Not threat," she said. "Expectation."
+
+Arathen exhaled.
+
+"I dislike expectation."
+
+She almost smiled.
+
+"You're in good company."
+
+A small hand tugged at her sleeve.
+
+Rachel turned and found Tamsen's nephew standing just outside the command
+ring, cheeks streaked with grime, clutching a carved toy horse with one
+broken leg.
+
+Tamsen was two steps behind him, apologizing.
+
+"I'm sorry, he slipped the line—"
+
+The boy looked up at Rachel and asked in a voice too clear for the hour,
+
+"Are you going in there."
+
+The square heard him.
+
+Silence dropped.
+
+Rachel crouched so she was at his height.
+
+"Maybe."
+
+"Will you come back."
+
+Children had a way of forcing the only question that mattered.
+
+Rachel held his gaze.
+
+"I'm going to try very hard."
+
+He nodded as if that was acceptable, then held out the broken toy.
+
+"For luck."
+
+Tamsen made a distressed sound.
+
+"You don't have to—"
+
+"I want to," the boy said, not looking away from Rachel.
+
+Rachel took the tiny horse and closed her fingers around it.
+
+"Thank you."
+
+Tamsen guided him back to the line, eyes bright with the kind of gratitude
+that hurt to receive.
+
+Sivara watched the exchange and said nothing for several beats.
+
+Then, very quietly:
+
+"If you cross, you are not crossing alone in consequence."
+
+Rachel looked at the toy in her palm.
+
+"I know."
+
+Sivara's expression shifted, mentor and commander and something older all
+visible at once.
+
+"Good."
+
+The aperture hummed at its same narrow width, patient as a held breath.
+
+Around it, Thornhaven kept moving in disciplined arcs, every person
+choosing function over panic one task at a time.
+
+Rachel stood at the edge of the opening with a broken toy horse in her
+hand and the weight of an entire town arranged behind her.
+
+When she lifted her eyes to the aperture again, her choice had become
+clearer than fear.
+
 
 ---
 
@@ -9046,6 +12046,344 @@ Rethan looked older than he had yesterday.
 Meredin had both hands clasped behind his back, gaze lifted not to Rachel
 but to the lattice above her, as if he were trying to memorize every line
 before it changed.
+
+The line changed anyway.
+
+At the southern edge of the square, a marker post gave one hard,
+metallic crack and split from top to base. The sound snapped through the
+crowd like a struck wire.
+
+People shouted and stumbled back. Two children near the old fountain were
+caught between bodies moving in opposite directions. Maelin vaulted the
+low step and hauled both kids clear by the backs of their shirts before
+their feet left the cobbles.
+
+"South marker!" Ilyra called. "Secondary seam forming!"
+
+Rachel felt it at once: a thin, jagged echo of the aperture trying to
+open along the southern lane where civilians still clustered.
+
+Arathen had already moved.
+
+"Clear lane! Move to the hall wall! Now!"
+
+His command voice cut through panic. People obeyed in broken waves, then
+in cleaner lines as Ilyra and three walkers herded the stragglers toward
+stone cover.
+
+Sivara snapped orders without raising her volume.
+
+"North team to south post. No direct compression. Angle hold only. Maelin,
+count heads. Edrin, get me a load read now."
+
+Edrin dropped to one knee beside the split marker, pressed two fingers to
+the crack, and went pale.
+
+"It's harmonically linked to the aperture," he said. "If she surges center
+without a southern brace, this lane shears."
+
+Rethan stepped forward at once.
+
+"Then we suspend crossing and force closure at center."
+
+"With what force?" Halvare shot back. "You've seen what happens when we
+push blind."
+
+"Better blind closure than uncontrolled transit."
+
+Meredin turned on him with a flat look that silenced three people at once.
+
+"Uncontrolled transit is already happening," he said. "The question is
+whether we pretend otherwise."
+
+At the southern lane, the echo-seam widened by half a handspan.
+
+Caelen was closest.
+
+Mirrel grabbed his sleeve. "Back."
+
+Caelen shook free and dropped to one knee by the split post, notebook
+still in his belt.
+
+"I can hold the angle if I don't compress."
+
+Mirrel swore under his breath and moved beside him anyway.
+
+"Then you're not doing it alone."
+
+Rachel watched them from the aperture ring and felt the impossible geometry
+of the moment close around her chest: one opening calling her forward,
+another threatening to tear civilians apart if she moved wrong.
+
+"I can stabilize both," she said.
+
+Sivara's head snapped toward her.
+
+"Cost."
+
+"High."
+
+"Quantify."
+
+Rachel swallowed and forced herself to answer plainly.
+
+"If I run both, I lose fine control for several breaths. If anything spikes
+in that window, I can't guarantee response order."
+
+Arathen stepped back to her side.
+
+"Then we cut variables. No one casts unless called."
+
+Sivara nodded once. "Agreed."
+
+Rethan opened his mouth again. Meredin cut him off without looking his
+way.
+
+"You can object after we survive the minute."
+
+Rachel closed her eyes.
+
+Center aperture.
+
+South echo-seam.
+
+Different textures, same underlying frequency.
+
+She reached for both.
+
+Warmth slammed up her arms and locked behind her sternum. The aperture
+brightened. The southern crack hissed like wet iron.
+
+"Now," she said through her teeth.
+
+Caelen mirrored her breathing the way she'd shown him in the yard, one
+hand above the split marker, one hand braced on the stone for balance.
+Mirrel anchored the opposite side with old-school hold geometry, the kind
+that looked outdated until you needed absolute stability.
+
+"Left two," Rachel called.
+
+Caelen adjusted.
+
+"Hold. Don't press."
+
+He held.
+
+The southern seam stopped widening.
+
+At center, the aperture flared once in response, as if testing whether her
+attention had truly split.
+
+She refused the bait and fed alignment through both lines at once.
+
+The world narrowed to angle and pulse.
+
+Voices became rhythm, not words.
+
+The child Maelin had dragged clear started crying. The sound arrived as a
+high note at the edge of Rachel's awareness and then dissolved into the
+hum.
+
+"Rachel," Arathen said, close enough that she felt the word more than heard
+it. "Stay with me."
+
+She rotated center by a fraction.
+
+South answered.
+
+She rotated south.
+
+Center answered.
+
+For one dangerous second both lines surged together, brightness cutting
+white across the cobbles.
+
+Caelen flinched and started to reinforce.
+
+"Don't!" Rachel barked.
+
+He froze. Mirrel shoved his hand down with practiced force.
+
+"Listen to her."
+
+Rachel shifted both seams into a shared cadence and held until the pulse
+passed.
+
+The southern crack narrowed.
+
+The center aperture dimmed back to its previous width.
+
+Air rushed into the square as if everyone had been holding one breath.
+
+Rachel opened her eyes.
+
+Caelen was still on one knee, shaking hard enough to rattle his teeth.
+Mirrel had his forearm locked across his son's chest, not restraining so
+much as reminding him where his body ended.
+
+Ilyra let out a rough laugh that sounded close to relief and wiped blood
+from a split knuckle across her brow.
+
+"Good," she said. "Let's never do that version again."
+
+Sivara stepped to Rachel first.
+
+"How far over your limit."
+
+"I don't know."
+
+"Estimate."
+
+"Past it."
+
+Sivara's jaw tightened. She turned to Edrin.
+
+"Anchor options."
+
+Edrin was already flipping pages in his folio.
+
+"Two, maybe three. None are comfortable."
+
+"We are out of comfortable."
+
+He swallowed and pointed to a rough diagram.
+
+"If she crosses, we establish a return reference on this side. Triple
+marker array around the aperture base, linked through familiar signatures.
+Yours. Arathen's. Mine if needed."
+
+Rethan stared at him as if he had started speaking a different language.
+
+"You propose tying local ward architecture to an unknown aperture."
+
+"I propose giving her a way home if the structure allows one."
+
+Halvare closed his ledger and tucked it under his arm.
+
+"Do it."
+
+Meredin nodded. "Do it."
+
+Rethan looked at all three of them and realized he had lost that vote.
+
+"Record my objection."
+
+"Already done," Halvare said.
+
+The square moved at once.
+
+Edrin and two walkers hauled spare marker cores into position around the
+aperture ring. Ilyra drove iron stakes and cursed every one of them as if
+insult improved geometry. Maelin cut her palm on purpose, pressed blood to
+the first anchor, then took Rachel's hand and did the same.
+
+"Signatures," she said. "You wanted us to help. Let us."
+
+Arathen stepped in without being asked, drew a blade across his thumb, and
+sealed the second anchor with blood and shadow-thread so thin Rachel could
+barely see it.
+
+Sivara sealed the third with old command-script in a dialect Rachel didn't
+recognize and probably wasn't meant to.
+
+The anchor array lit in three interlocking arcs.
+
+It did not look stable.
+
+It looked possible.
+
+Caelen approached only after Mirrel let him go.
+
+His face was ashen and set.
+
+"I almost broke it," he said to Rachel.
+
+"You almost did."
+
+He nodded as if the admission cost him.
+
+"I heard you before I saw it. When you split center and south. I thought I
+understood and I didn't."
+
+Rachel touched his shoulder once.
+
+"You held when it mattered."
+
+"Because my father shoved me."
+
+Mirrel, standing a few paces back, gave him a hard look that softened into
+something fiercer.
+
+"Because you chose to listen after."
+
+Caelen looked between them, then stepped out of the ring without another
+word.
+
+Sivara called everyone who mattered into a tight half-circle around the
+aperture: Rachel, Arathen, Maelin, Ilyra, Edrin, Mirrel, Halvare, Meredin,
+Rethan.
+
+"This is the last brief," she said. "If they cross and we lose visual, we
+hold aperture perimeter for one hour. No one follows without unanimous
+command authorization and anchor integrity above threshold. If anchor
+integrity fails, we do not throw bodies into panic."
+
+She looked at Rachel.
+
+"You do not chase every signal. You stay on mission."
+
+Rachel gave a tired half-laugh.
+
+"What mission."
+
+Sivara's answer came without hesitation.
+
+"Find what is calling. Determine whether return is supported. Come back
+with actionable truth."
+
+Arathen asked, "And if return is blocked."
+
+Sivara held his gaze.
+
+"Then you survive long enough to unblock it."
+
+Maelin grabbed Rachel by the wrist before anyone else could speak.
+
+"Eat this."
+
+She shoved a wrapped ration into Rachel's hand.
+
+Rachel stared at it.
+
+"Now."
+
+Rachel ate because arguing would waste the last ordinary seconds she had.
+
+The square quieted again as preparations finished. People gave them space
+without being told. The crowd was no longer just afraid. It was invested.
+Every face in the ring looked like someone placing a private debt into
+Rachel's hands and hoping she would carry it farther than they could.
+
+She turned to Arathen.
+
+"Last chance to stay."
+
+His expression did not change.
+
+"Absolutely not."
+
+She nodded. "Good."
+
+He touched his forehead briefly to hers, one quick, fierce point of
+contact that said everything they did not have time to unpack.
+
+"We come back," he said.
+
+"We come back," she agreed.
+
+Sivara lifted her hand.
+
+"Then move."
 
 Rachel took one step closer to the aperture.
 
@@ -9172,6 +12510,384 @@ His shadow, always a little more active around seams, lay close to him
 here, tight and narrow. She could see effort in the set of his jaw as he
 adapted.
 
+The ground under Rachel's boots gave a faint pulse.
+
+Not a tremor.
+
+A query.
+
+Lines in the pale stone brightened in sequence beneath her and ran outward
+in three branching paths, each one angling away from the place where they
+had emerged.
+
+"It's reading us," she said.
+
+Arathen scanned the empty planes around them.
+
+"Do we move."
+
+Rachel listened. The same harmonic line she had felt through Thornhaven
+was stronger here, layered with something older and stricter.
+
+"If we stand still, it'll keep evaluating."
+
+"And if we move."
+
+"At least we choose direction."
+
+She picked the middle path because it carried the cleanest resonance and
+because hesitation had stopped being safety weeks ago.
+
+They made it twenty paces before the first structure answered.
+
+Three vertical panes of light rose from the path edges and locked across
+their route at chest height, forming a transparent barrier that hummed in
+perfect pitch.
+
+Arathen's hand went to his knife.
+
+"Don't," Rachel said quickly. "It isn't an attack yet."
+
+The barrier brightened, then projected script across its surface in
+shifting lines she almost understood by shape before language caught up.
+
+Designation.
+
+Origin.
+
+Authority chain.
+
+The terms flickered and reordered themselves as if the structure couldn't
+find categories that fit.
+
+Arathen stepped closer, eyes narrowed.
+
+"Can you read it."
+
+"Pieces. It's asking who has the right to be here."
+
+"And our answer."
+
+Rachel almost laughed despite herself.
+
+"Complicated."
+
+The script shifted again and froze on a final line:
+
+Unmatched entrant. Declare function.
+
+Rachel looked at the barrier and said the first honest thing she had.
+
+"I came because you called."
+
+The panes held for two long breaths.
+
+Then they dissolved upward and vanished.
+
+Arathen gave her a look.
+
+"That's all it took."
+
+"Apparently."
+
+"I hate this place already."
+
+She almost smiled, and the tension in her chest loosened by a fraction.
+
+They continued.
+
+The path opened into a broad circular platform suspended over an immense
+drop that did not feel like height so much as depth in thought. Below,
+nested geometric frameworks rotated in slow, impossible alignments, each
+turn feeding the next in a chain Rachel could feel in her ribs.
+
+At the center of the platform stood a ring of slender pillars, each one
+inscribed with the same foundational patterns Edrin had been trying to
+reconstruct from damaged leaves.
+
+Except here, nothing was missing.
+
+Rachel stepped into the ring.
+
+The pillars lit from base to crown.
+
+A sound like distant choral metal rolled through the air.
+
+Arathen moved in with her at once.
+
+"What did you trigger."
+
+"I don't know."
+
+The light condensed in front of them, not into a person but into a faceted
+shape that shifted between angles too quickly for the eye to settle. A
+voice emerged from it, layered and flat at once.
+
+"Interface active. Record chain unavailable. Primary authority absent."
+
+Rachel swallowed.
+
+"Who are you."
+
+"Custodial process."
+
+"For what."
+
+"Continuity."
+
+Arathen's shadow twitched and tightened along his boots.
+
+"That's not an answer."
+
+"It is sufficient."
+
+Rachel took one step forward.
+
+"We need information about Theryn."
+
+The faceted light paused, then split into three smaller forms that orbited
+the ring before reconverging.
+
+"Legacy entrant designation: Theryn. Last verified transit: incomplete."
+
+Rachel's pulse kicked.
+
+"Incomplete how."
+
+"Departure recorded. Return unresolved."
+
+Arathen looked at Rachel. "Unresolved is not dead."
+
+The custodial voice continued as if it had not heard him.
+
+"Derivative entrant detected. Match confidence: high."
+
+Rachel felt the words like a hand laid directly on the center of her
+chest.
+
+"Derivative."
+
+"Structural inheritance present."
+
+Arathen's jaw hardened.
+
+"Say daughter."
+
+For the first time, the voice hesitated.
+
+"Equivalent designation acceptable."
+
+Rachel set both palms against one of the lit pillars to steady herself.
+
+"Where did she go."
+
+"Axis interior."
+
+"Can we reach her."
+
+"Pathway unstable."
+
+"Can we try."
+
+"Attempt risk: severe."
+
+Arathen let out a breath.
+
+"At least it's honest."
+
+The platform pulsed again, harder this time.
+
+Warning script flashed across all twelve pillars in rapid succession.
+
+External pressure event.
+
+Containment breach attempt.
+
+Rachel felt the signature before the words resolved.
+
+Vex.
+
+Not physically present, but pressing at the outer structure through the
+tether she had never fully severed.
+
+Arathen felt it too and swore.
+
+"He followed."
+
+"He traced," Rachel said. "He isn't fully here."
+
+The faceted interface fractured into jagged light.
+
+"Intrusive vector denied. Reinforce."
+
+Path lines around the platform began to distort.
+
+From the far side of the ring, three narrow cuts opened in empty air.
+Something moved in each one: long-limbed figures of hard light, not the
+void creatures from Thornhaven but construct guardians shaped for
+interception.
+
+Arathen drew his blade.
+
+"Now it's an attack."
+
+"No," Rachel said, listening through the noise. "It's a defense protocol.
+It's treating Vex and us as one event."
+
+"Can you convince it otherwise."
+
+One guardian leapt.
+
+Arathen met it with a cross-cut that sparked against its limb and sent him
+half a step back from the force.
+
+"Sooner would be better."
+
+Rachel moved to the center of the pillar ring and dropped to one knee.
+She forced her breathing into the cadence she'd used at Thornhaven
+center, then reached for the interface beneath the surface script.
+
+"Custodial process," she said sharply. "Differentiate entrant pair from
+intrusive vector."
+
+"Criteria insufficient."
+
+Another guardian came in low at Arathen's left flank. He pivoted, caught
+it on the flat, and drove it sideways into a pillar. Light exploded from
+the impact.
+
+"Rachel."
+
+She ignored the panic trying to rise and fed the structure what it was
+asking for.
+
+Designation.
+
+Origin.
+
+Authority chain.
+
+She had no authority chain.
+
+She had inheritance.
+
+She pressed both hands to stone and let the deepest harmonic in her
+resonance rise cleanly through the ring.
+
+The pillars answered in unison.
+
+Script rewrote itself.
+
+Derivative entrant authenticated.
+
+Companion entrant provisional.
+
+Intrusive vector separate.
+
+The guardians froze mid-motion, then withdrew three paces and held.
+
+Arathen lowered his blade by inches, chest heaving.
+
+"Provisional companion," he muttered. "I'll take it."
+
+Rachel almost collapsed with relief and did collapse to both knees when
+the adrenaline dropped.
+
+Arathen was beside her instantly.
+
+"Stay with me."
+
+"I'm here."
+
+He touched her face with blood-warm fingers and checked for orientation
+the way he always did after high-load correction.
+
+"Can you stand."
+
+"Yes."
+
+He helped her up anyway.
+
+The interface reformed, steadier this time.
+
+"Intrusive vector contained temporarily. Window limited."
+
+"Window for what," Rachel asked.
+
+"Contact."
+
+The word rang through her.
+
+"With whom."
+
+"Legacy-linked authority."
+
+The path beyond the platform lit in a straight line toward a distant
+structure that had been dark until now.
+
+"Go," the interface said.
+
+Arathen looked down that path, then back to Rachel.
+
+"Trap."
+
+"Probably."
+
+"You still going."
+
+"Yes."
+
+He nodded once, resigned and fierce at the same time.
+
+"Then we run it together."
+
+They took the lit path at a controlled pace, not running blind but moving
+as fast as the shifting ground allowed. The structure ahead resolved
+gradually: a hall of open arches without doors, each arch carrying
+engraved lines that felt like familiar names in an unfamiliar alphabet.
+
+Inside, suspended above a central basin, a lattice of memory facets turned
+slowly in place.
+
+As Rachel stepped beneath it, one facet flashed and opened.
+
+A scene spilled across the air in translucent detail.
+
+Theryn.
+
+Younger than Rachel's last memory. Blood on her sleeve. Eyes fixed on a
+line of opening seams while two unknown walkers held a failing anchor
+behind her. She spoke words Rachel couldn't hear, then turned a hinge
+that looked impossible and vanished into the same kind of aperture now
+waiting in Thornhaven.
+
+The scene cut.
+
+A second facet opened.
+
+Theryn again, days or weeks later by the look of exhaustion in her face,
+pressing her palm against a pillar identical to the one Rachel had used.
+She was arguing with someone off-angle, someone who refused frame
+capture.
+
+The scene cut before the argument ended.
+
+Rachel stared at the empty air where her mother had been.
+
+"She's alive," she said, voice breaking on the edge of certainty and need.
+
+Arathen did not challenge it.
+
+"She's not gone," he said. "Not from this system."
+
+Footsteps sounded at the far end of the hall.
+
+Human footsteps.
+
+Measured.
+
+Approaching.
+
 They were not alone for long.
 
 A figure appeared at the far edge of the nearest structure and started
@@ -9234,15 +12950,291 @@ He had not been waiting for a daughter.
 
 He had been waiting for the woman who had left and never returned.
 
-For him, that waiting had not stretched into decades.
+Rachel found her voice in fragments.
 
-It had stretched into something shorter and sharper and still unfinished.
+"Who are you."
+
+The stranger blinked as if the question had never occurred to him.
+
+"Aren," he said, then corrected himself with a formal cadence that sounded
+older than any title she knew. "Aren Valeth, continuity warden, third
+ring."
+
+His eyes searched her face again, desperate and disciplined in the same
+moment.
+
+"Where is Theryn."
+
+Rachel forced herself to answer.
+
+"I don't know."
+
+The words hit him like a physical blow. He staggered half a step, caught
+himself, and looked at Arathen as if Arathen might contradict her.
+
+Arathen did not.
+
+"She crossed years ago from our side," Arathen said. "She never returned."
+
+Aren's expression went blank with shock.
+
+"Years."
+
+He laughed once, a short disbelieving sound that cracked down the middle.
+
+"No. That isn't possible. She left in the ninth interval and was due back
+in the twelfth."
+
+Rachel felt the time shift of this place settle into cold clarity.
+
+"How long has it been for you."
+
+Aren stared at the turning memory facets above them.
+
+"Three intervals. Four, maybe, if you count the emergency lock."
+
+"For us," Rachel said, "it's been decades."
+
+The hall went very quiet.
+
+Aren pressed his palm against one of the pillars as if he needed the
+structure to hold him upright.
+
+"No," he whispered. "No, she promised she was coming back before phase
+turn. She would not leave that promise."
+
+Rachel swallowed hard.
+
+"I believe you."
+
+He looked at her sharply then, and something in his face changed as he
+truly saw her for the first time beyond resemblance and shock.
+
+"Your eyes," he said. "You have her left eye when she was angry and trying
+to pretend she wasn't."
+
+The sentence landed so gently it hurt.
+
+Rachel almost stepped back.
+
+"You're my father."
+
+Aren shut his eyes once.
+
+"Yes."
+
+Arathen shifted closer to Rachel without blocking her from view.
+
+"We need facts," he said. "Now. What did Theryn cross for."
+
+Aren opened his eyes and returned to function by force.
+
+"The outer seams destabilized after a chain failure in the anchor
+chambers. Your world and ours were both taking pressure spikes. She found a
+way to rotate the load at source if she entered through a live aperture."
+
+Rachel's skin prickled.
+
+"She did what I've been doing."
+
+"You are doing what she started," Aren said. "Better, from what I can feel
+in the lattice."
+
+Rachel looked away toward the memory basin where her mother's image had
+just flickered out.
+
+"Then where did she go."
+
+Aren's mouth tightened.
+
+"Past this ring. Into axis interior. We lost direct map after emergency
+partition."
+
+Edrin's terms from the courtyard echoed in Rachel's head: not collapse,
+reorganization.
+
+"Partition from what."
+
+Before Aren could answer, the pillar ring flashed red-white.
+
+Intrusive vector escalation.
+
+Containment margin reduced.
+
+Arathen's blade was in his hand before the script finished resolving.
+
+"Vex."
+
+Aren's focus snapped to the warning lines.
+
+"You brought a tethered predator into live continuity space."
+
+Rachel rounded on him.
+
+"He attacked me first. I turned the tether to survive."
+
+"I didn't say you were wrong." Aren moved to the nearest pillar and began
+keying rapid sigil patterns with both hands. "I said we have minutes."
+
+The guardians at the hall perimeter shifted into attack posture again, but
+this time their faces were turned outward as if bracing against pressure
+from beyond the ring.
+
+The stone underfoot thrummed.
+
+A deep tearing sound rolled through the hall from no visible source.
+
+Arathen looked between Rachel and Aren.
+
+"Can we cut the tether."
+
+"Not cleanly," Aren said. "If we sever without counterphase, we rip the
+return line to Thornhaven with it."
+
+Rachel stepped to the center pillar.
+
+"Then give me counterphase."
+
+Aren stared at her for one heartbeat, reading the impossible request, and
+then nodded once as if some long argument he had been having with himself
+was over.
+
+"Theryn would have asked the same."
+
+He placed Rachel's left hand on a narrow groove and Arathen's right hand on
+the mirrored groove opposite.
+
+"You anchor intent. He anchors edge. I drive sequence."
+
+Arathen gave him a hard look.
+
+"If this burns her—"
+
+"It burns all of us if we fail."
+
+There was no time to negotiate trust.
+
+The hall shook.
+
+A fissure of dark pressure opened ten paces away, not a full seam and not
+yet a breach. Vex's signature moved inside it like a blade testing cloth.
+
+Rachel braced.
+
+"Now," Aren said.
+
+The pillar ring ignited.
+
+Counterphase hit like cold metal through Rachel's bones. She felt the
+tether to Vex flare open and then twist as Aren fed a sequence older than
+any doctrine she'd learned. Arathen's shadows drove outward in clean lines
+to hold the edges of the fissure while Rachel rotated the center channel
+away from Thornhaven's signature.
+
+Vex's pressure slammed back.
+
+The fissure widened by inches.
+
+Arathen swore and shoved more force into the edge hold.
+
+"Rachel."
+
+"I'm in it."
+
+She dropped deeper into resonance and found the exact tone where Vex's
+claim line crossed her own. Then she turned it.
+
+Not severing.
+
+Reassigning.
+
+The fissure screamed, soundless and violent, and snapped closed.
+
+The hall lights flickered twice and steadied.
+
+Aren sagged against the pillar, breathing hard.
+
+"Good," he said hoarsely. "Very good."
+
+Rachel's legs nearly gave out. Arathen caught her under the arm and kept
+her upright.
+
+"Tell me that held," he said.
+
+Aren checked the script lines and nodded.
+
+"For now. We bought a narrow corridor. You can still return if you leave
+before next pressure wave."
+
+Rachel forced herself upright.
+
+"I'm not leaving without something real."
+
+Aren looked at her for a long, aching second, then reached into the inner
+seam of his coat and removed a slim crystal baton etched with micro-lines.
+
+"Continuity key," he said. "It contains Theryn's last routed coordinates
+before partition lock and the command phrases for third-ring archives."
+
+He placed it in Rachel's palm and closed her fingers around it.
+
+"If she is alive, this is the fastest path to where she was trying to go."
+
+Rachel stared at the baton, then at him.
+
+"Why give this to me."
+
+His answer was immediate.
+
+"Because she would have. Because the structure answered to you. Because if
+time has treated us this badly already, we don't get to waste what little
+it gives us now."
+
+Arathen watched him with open caution.
+
+"And because you're her father."
+
+Aren's throat worked once before he nodded.
+
+"Yes."
+
+Another warning pulse crawled up the pillars.
+
+Containment margin reduced.
+
+Aren stepped closer, finally abandoning formality.
+
+"You have to go. Take the key. Take him. Hold your return line while it's
+still there."
+
+Rachel's grip tightened around the crystal.
+
+"Come with us."
+
+The grief on his face answered before his words did.
+
+"I can't. If I leave this ring unwarded during pressure escalation, both
+sides lose the corridor. Thornhaven won't see dawn with intact seams."
+
+He looked at Arathen.
+
+"Bring her back if she lets you."
+
+Arathen's reply was rough and simple.
+
+"I don't leave her."
+
+Aren turned back to Rachel and she saw, in one sharp instant, the exact
+shape of what she had inherited: stubbornness, precision, and a love that
+looked like duty until you stood close enough to feel it.
+
+He had only just learned how much time had been taken from him.
 
 Arathen looked from Rachel to the stranger and then back, and Rachel felt
 his hand close around hers without pressure, a silent anchor while the
 ground shifted under meaning.
 
-The stranger took one careful step closer, not threatening, just unable to
+Aren took one careful step closer, not threatening, just unable to
 hold his distance anymore.
 
 "Please," he said, and that one word carried hope, fear, grief, and a love

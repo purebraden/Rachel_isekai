@@ -2941,6 +2941,123 @@ They worked until dusk, hands blackened with ink and chalk, the table
 buried under copied statements, signatures, and margin notes too specific
 to dismiss as rumor.
 
+By the time Maelin pushed the ink aside and called an end, the courtyard
+light had gone copper and the house smelled of cooling tea and lamp oil.
+Rachel stepped outside because the walls felt one breath too close.
+
+The western markers should have been quiet at that hour.
+
+They were not.
+
+A narrow knot of people stood near the rain cistern, not gathered in a
+crowd so much as caught in the same line of attention. Caelen was there,
+notebook open. Beside him stood a younger terrace walker Rachel recognized
+by face if not by name, sleeves rolled to his elbows, chalk marks on his
+fingers.
+
+"What are you doing," Rachel called, already crossing the yard.
+
+Caelen looked up too quickly. "Just mapping sequence."
+
+"Step back from the line."
+
+The younger walker had already lifted his hand.
+
+He mimicked the turn he had watched that morning --- precise in shape,
+wrong in timing.
+
+The seam answered like a wire pulled too hard.
+
+Air snapped sideways. One marker stone rang against its base with a hard,
+metallic crack. The younger walker cried out and went down awkwardly,
+striking the cistern edge with his shoulder before folding to the stones,
+breath knocked out of him.
+
+Caelen dropped to one knee beside him. Rachel reached the line first.
+
+The distortion wasn't deep, but it was jagged, feeding on the failed
+motion and trying to run along the courtyard edge.
+
+She braced to compress it.
+
+It slid.
+
+Not the usual resistance. Not the familiar hitch of local strain.
+Something beneath it turned half a degree and held there, patient and
+probing, the same searching pressure that had moved through her dream when
+Vex tested the hinge.
+
+A thought pressed through the angle, almost voice and not voice at all.
+
+You keep making yourself central.
+
+Rachel's hands shook once. She forced the tremor still and cut across the
+secondary turn instead of reinforcing into it. Heat climbed her forearms
+in a hard pulse; the seam bucked, then narrowed, then settled flat.
+
+The yard sound rushed back in uneven pieces --- someone swearing near the
+doorway, Maelin calling for bandages, the younger walker's shallow,
+frustrated breathing.
+
+Mirrel arrived at a run from the outer lane and dropped beside the boy.
+One look at the awkward angle of the forearm and his expression changed
+from concern to calculation sharpened by fear.
+
+"Inside," he said to Caelen. "Now."
+
+Caelen didn't move. "I didn't tell him to force it."
+
+"Inside."
+
+Rachel turned from the marker line, palms still warm and stinging.
+"I told all of you no mimic trials."
+
+Mirrel's gaze snapped to her. "And still they watched you do what none of
+us can do and believed a wrist turn was enough."
+
+The words landed cleanly because they were partly true.
+
+"Watching isn't instruction," Rachel said, too fast, anger rising before
+she could smooth it.
+
+"In a town this small, visibility is instruction."
+
+Silence held for a breath too long.
+
+Sivara stepped between them before either sentence could become fracture.
+"Save this for when no one is bleeding."
+
+Teral and Maelin guided the injured walker toward the house, his jaw tight
+against pain. Caelen followed, shaken and pale, notebook still clutched in
+one hand as if he had forgotten he was holding it.
+
+Edrin crouched beside the marker, fingertips hovering over the stone.
+"There's residue in the turn."
+
+"From bad imitation," Mirrel said flatly.
+
+Edrin shook his head. "Not only. The lateral drag pattern is wrong for a
+local miscast. It matches the dream intrusion traces Rachel described."
+
+Sivara's gaze sharpened. "Vex."
+
+"Or someone using the same route geometry," Edrin replied.
+
+Rachel exhaled slowly, trying to settle the last of the heat in her hands.
+"I felt him. Not fully. Just pressure."
+
+Sivara looked toward the dark beyond the ward line and then back to the
+courtyard stones.
+
+"Then we record both," she said. "Unsafe imitation and external
+interference. We do not let either become rumor without language."
+
+No one argued.
+
+By the time the lamps were lit, word had already begun moving through
+Thornhaven in lowered voices: the line had snapped inside Sivara's yard;
+someone had been hurt; the pattern around Rachel was no longer theoretical.
+
 
 ---
 
@@ -2950,7 +3067,8 @@ to dismiss as rumor.
 Thornhaven did not gather because it had been instructed to.
 
 It gathered because something in its rhythm had shifted, and even those
-who did not know why felt the adjustment.
+who did not know why felt the adjustment. After the dusk misfire by the
+western cistern, nobody treated the shift as abstract.
 
 Mirrel stood near the basin outside Sivara's workroom, arms folded
 loosely, not blocking passage but not absent either. Senna leaned

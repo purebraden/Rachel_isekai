@@ -278,6 +278,12 @@ Rachel stared at her. "Boundaries. You keep saying that. What boundaries?"
 
 Maelin glanced toward the broken circle. "The ones that should have rejected you. The working rewrote itself around your signature. That does not happen in ordinary crossings."
 
+Rachel stared at the fractured lines on the floor and felt her pulse stutter. "That symbol in your circle. I saw it this morning. On a note left on my car."
+
+Edrin went still. "What note?"
+
+"No sender. Just one line: *You were sealed for a reason.*"
+
 The three of them went still.
 
 "Where am I?" Rachel asked, voice sharper now. "And don't say a region or a place name I won't recognize. Where. Am. I."
@@ -2507,6 +2513,24 @@ Rachel closed her eyes briefly. Opened them. The world remained unchanged, but s
 "I'll never be ready," she said. "But let's go anyway."
 
 Maelin smiled at that. "That's usually how it works."
+
+The paired book on the table snapped open by itself.
+
+Ink bled across the page in fast, angular script:
+
+**Automated Notice: Anomalous Crossing Beacon Registered.**  
+**Region: Near March, West Spur.**  
+**Provisional review assigned to Eastern Adjudicator Vex.**
+
+No one spoke.
+
+Rachel read the name twice. "Adjudicator."
+
+"Council investigator," Ilyra said. "With authority to classify, contain, or erase unstable breaches."
+
+Edrin shut the book too quickly, like he could hide the words by covering them. "It's provisional. It doesn't mean he's coming here."
+
+Arathen's expression said otherwise.
 
 
 ---
@@ -5196,15 +5220,37 @@ The rest of the day passed in strange limbo. Rachel dozed intermittently, never 
 
 Arathen stayed close. Not hovering, exactly. Just present. Reading from a small book, consulting that brass-and-glass device occasionally, keeping watch in his particular way.
 
-As the afternoon dimmed toward evening, he set his book aside and moved to sit near Rachel's bedroll.
+As the afternoon dimmed toward evening, he set his book aside and moved to sit near Rachel's bedroll, brass-and-glass device in hand.
 
-"Question," he said.
+"Before anything else," he said, "I need to check something."
 
-Rachel shifted to face him. "Answer. Maybe."
+Rachel shifted to face him. "That sounds ominous."
 
-His mouth quirked. "When you were fixing the collapse—did you feel anything unusual? Beyond the obvious strain, I mean."
+"Probably," he said. "Give me your hand."
 
-Rachel thought about it. "The boundaries responded to me," she said slowly. "Like they recognized me. Like they were waiting for someone with authority to tell them what to do." She paused. "It didn't feel like I was forcing them. It felt like I was reminding them. Of what they should be."
+She did. The device warmed against her palm, its inner rings turning on their own. One filament of light appeared immediately--steady, blue-white, anchored to where she sat. A second thread flickered into existence, thin and silver, reaching outward into nothing.
+
+Rachel's breath caught. "Is that... Earth?"
+
+Arathen nodded once. The silver thread trembled, dimmed, then collapsed into darkness.
+
+He exhaled slowly. "I took readings at the collapse site while you were unconscious. Your origin anchor is gone."
+
+Rachel stared at him. "Gone how?"
+
+"Burned out when you rewove the boundary cascade," he said. "The connection that could target your world specifically no longer resolves. We can still open crossings in theory. But not to your exact coordinate. Not to your timeline. Not safely."
+
+The words landed without drama and still felt like impact.
+
+"So no messages either," Rachel said. "No way to tell Evan I'm alive. No way to get back to what I had."
+
+Arathen didn't offer false comfort. "Not by any method I trust with your life."
+
+Silence stretched between them, thinner than grief and sharper.
+
+He let her sit in it for a moment, then spoke again, softer. "Second question. When you were fixing the collapse--did you feel anything unusual? Beyond the obvious strain, I mean."
+
+Rachel swallowed and looked away from the dead silver thread in her memory. "The boundaries responded to me," she said slowly. "Like they recognized me. Like they were waiting for someone with authority to tell them what to do." She paused. "It didn't feel like I was forcing them. It felt like I was reminding them. Of what they should be."
 
 Arathen nodded, like she'd confirmed something. "That's what I thought. You weren't imposing your will on reality. You were helping reality remember its own rules."
 
@@ -5250,9 +5296,13 @@ Rachel hadn't noticed that. But he was right. The cold had registered, but it ha
 
 The truth of it settled over Rachel like a weight. Not oppressive. Just present. Undeniable.
 
-"I'm never going back, am I?" she asked quietly. "To my world. Even if we figure out how, even if it's possible—I can't go back to being human. To pretending to be human."
+"So that's it," she said quietly. "Not a choice between worlds. A closed door."
 
-"No," Arathen said gently. "You can't. But Rachel—" He waited until she looked at him. "Did you ever really fit there? Were you happy?"
+Arathen didn't look away. "A closed door to the life you had. Maybe not to every possibility. But yes. That specific life is gone."
+
+Rachel let that truth settle where denial had lived.
+
+"Then ask me again," she said. "Did I fit there? Was I happy?"
 
 Rachel thought about her apartment. Her job. Her relationship with Evan. The carefully constructed life she'd built around the hollow feeling that nothing ever quite made sense.
 
@@ -7660,7 +7710,23 @@ Rachel pressed her palms against her eyes, fighting tears of frustration and sha
 
 Rachel didn't have an answer for that.
 
-Sivara's expression softened slightly. "Go back to the inn. Rest. Actually rest, not 'perform resting while secretly planning tomorrow's training.' Tomorrow we talk about knowing your limits before I teach you anything else."
+Sivara drew a breath, then made a formal sign Rachel had only seen in council disputes.
+
+"Listen carefully," she said. "I'm placing you under trainee censure for three days. No field work. No unsupervised boundary contact. You train theory only, and only with me present."
+
+Rachel blinked. "You're suspending me?"
+
+"I'm keeping you alive," Sivara said. "And because this happened in municipal range, I am required to file it with Thornhaven's ward office. If I don't, and you hurt yourself or someone else tomorrow, that's on me."
+
+She touched two fingers to Rachel's wrist. A thin silver mark appeared--a closed circle crossed by a line--then settled under the skin like pale ink.
+
+"This records restriction status for local ward systems," Sivara said. "Ignore it and every patrol in Thornhaven will know."
+
+Shame burned hotter than the headache. "So now there's an official record that I'm unstable."
+
+"Now there's an official record that your instructor took responsibility," Sivara corrected. "Take the lesson and survive long enough to hate me for it."
+
+Sivara's expression softened slightly. "Go back to the inn. Rest. Actually rest, not 'perform resting while secretly planning tomorrow's training.' In three days we talk about knowing your limits before I teach you anything else."
 
 Rachel nodded miserably and stood on shaking legs. The walk back to the inn took twice as long as usual, her body protesting every step. Her head pounded with each heartbeat. At the door, she nearly collided with Maelin and Ilyra, both dressed for exploration and looking pleased with themselves.
 
@@ -7753,6 +7819,8 @@ And prepared for what she was becoming.
 ## Chapter Thirty-Three
 
 The memory came without warning.
+
+The censure mark on Rachel's wrist had faded that morning, the silver line dissolving as Thornhaven's systems cleared her for field work again.
 
 Rachel was working with Sivara on advanced boundary reading—learning to sense not just current boundaries but their history, the layers of previous repairs and alterations that accumulated over time like rings in a tree. It was delicate work, requiring her to reach deeper into boundary structures than she'd attempted before.
 
@@ -7896,9 +7964,9 @@ Maelin pulled her into a fierce hug. "Why didn't you tell us? Why did you try to
 
 Rachel let herself be led back inside, still crying, but no longer alone.
 
-That was true. Sivara would have questions—practical, necessary questions about the memory's details, about what it meant for Rachel's future. The others would have offered comfort, but also opinions, reactions, their own processing.
+The common room conversation was exactly what Maelin had promised: messy, practical, full of concern. Sivara asked for every detail of the echo, then formally amended Rachel's censure file to include memory-risk restrictions. Edrin wanted to map related sites immediately. Ilyra wanted guards doubled. Maelin kept one hand on Rachel's shoulder through all of it.
 
-Arathen just held her. Let her feel what she felt without requiring it to be organized or useful.
+Afterward, when the planning noise finally died down, Arathen found Rachel in the corridor and just held her. Let her feel what she felt without requiring it to be organized or useful.
 
 She pressed closer, needing the solid reality of him.
 
@@ -9589,6 +9657,10 @@ Vex turned to address the chamber fully. "Theryn disappeared without warning, wi
 "Rachel is Theryn's daughter," Sivara interjected. "Heir by blood and power. Legal stewardship doesn't supersede genetic inheritance."
 
 "In cases where the heir is competent," Vex countered. "Rachel is untrained, inexperienced, and politically naive. Granting her territorial authority would be irresponsible. She's barely learned to control her abilities, let alone manage boundary regions."
+
+He produced a thin slate and held it up toward the Council. "Thornhaven Ward Office censure docket, filed by Instructor Sivara: trainee overreach, boundary feedback collapse, municipal restriction mark issued. Her own mentor's record describes her as a current safety risk."
+
+Sivara's jaw tightened. "Yes. I filed it. Because responsible instructors document risk and manage it. The censure expired on schedule, and Rachel complied with every restriction."
 
 "I defeated your forces twice," Rachel said quietly. "Survived your assassins. Repaired boundary collapses you couldn't. I'm stronger than you expected."
 

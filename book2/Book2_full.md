@@ -35,8 +35,9 @@ lines had postponed the claim proceedings twice, leaving Theryn's holdings
 in legal suspension and Rachel in the strange position of being both heir
 and not yet owner.
 
-A third postponement would move the case into provisional custody review
-and give the Council room to "stabilize" her inheritance without her.
+One more postponement and the claim would slide into provisional custody
+review, the kind of quiet Council process that left heirs reading decisions
+after the ink had already dried.
 
 She and Arathen had kept the promise they made on the balcony—no formal
 merge until she had room to figure herself out on her own terms. The
@@ -483,9 +484,8 @@ surface --- not as instability, but as something newly settled.
 The memory lasted all of three breaths before the line proved it was not
 done with them.
 
-Second seam before first bell.
-
-Last month that would have counted as a bad day.
+Second seam before first bell, and Rachel caught herself missing the days
+when that alone felt catastrophic.
 
 At the base of the marker arc, where two stones sat half-buried beside
 the old sheep path, the air bent again in a narrow, ugly crease.
@@ -2746,7 +2746,8 @@ The surface of the page shimmered faintly before new script emerged
 opposite her own, the strokes unmistakably Council hand and unadorned in
 tone. Emissary dispatched. Shadow route. Arrival estimated one day.
 
-Shadow route meant jurisdiction, not courtesy.
+Shadow route. The Council used that when it intended to take the room and
+write the terms itself.
 
 For a fraction of a breath, something flickered across her expression
 --- not surprise exactly, and not alarm, but a tightening that
@@ -2864,8 +2865,8 @@ Council?"
 
 "Shadow route," Sivara corrected. "Arrival tomorrow."
 
-"If they classify this as attractor behavior, Thornhaven shifts from
-autonomy to managed oversight until they decide the pattern is contained."
+"If they call this attractor behavior, Thornhaven stops being autonomous
+and starts being managed until they decide we're containable."
 
 The air seemed to thin slightly at that, though no visible change marked
 it. Rachel did not feel threatened so much as observed in advance, as if
@@ -2911,13 +2912,11 @@ The seam answered only with its steady hum.
 
 By second bell, Sivara had everyone at the long table.
 
-No speeches. No reassurance. Just assignments.
-
-Edrin produced a single-page variance summary in three copied hands so no
-one could claim later that wording had drifted. Ilyra marked perimeter
-rings on a slate and circled where civilians tended to gather when they
-heard "Council." Maelin built a response order for panic before panic had
-reason to start.
+Edrin came in with three fresh copies of the variance summary and ink on
+his cuff, checking one against another as if the wording might slip while
+he wasn't looking. Ilyra dragged a slate toward her, mapped perimeter
+rings, crossed two out, and redrew them when Maelin pointed out where
+children ran when adults shouted.
 
 "Speaking order," Sivara said. "I answer doctrine and archive context.
 Rachel answers direct behavioral questions. Edrin handles records. Arathen
@@ -2927,7 +2926,8 @@ Arathen looked up. "And if the emissary asks for immediate custody
 transfer?"
 
 Sivara's expression did not change. "Then they file it in open record with
-full Council countersign. No shadow handoff. Not here."
+full Council countersign. If they want a handoff, they ask for it in front
+of every witness in this room."
 
 Rachel heard the steadiness in that and understood the effort underneath
 it.
@@ -2937,8 +2937,9 @@ it.
 "Then we give them less fear and more evidence," Sivara said. "Tonight we
 finish documentation. Tomorrow we make them read it before they label it."
 
-They worked until dusk, ink-stained and quiet, turning observation into
-paper weight no one could wave away as rumor.
+They worked until dusk, hands blackened with ink and chalk, the table
+buried under copied statements, signatures, and margin notes too specific
+to dismiss as rumor.
 
 
 ---
@@ -4835,10 +4836,8 @@ Almost what it was designed to recognize.
 
 Almost.
 
-Vaelis requested a three-point watch before nightfall.
-
-Not dramatic. Not urgent. Just "for calibration," in the same neutral tone
-he used when asking for ink.
+Near dusk, Vaelis asked for a three-point watch, in the same tone he used
+when asking for more lamp oil.
 
 Rachel took north line with Arathen and Ilyra while Edrin worked the marker
 ledger two streets back, checking phase drift against old maintenance
@@ -4846,31 +4845,27 @@ intervals. The town settled into dark around them: shutters latched, lamps
 lowered, voices thinning to the small practical sounds of people trying to
 pretend they could sleep.
 
-First bell passed clean.
+First bell came from the tower and faded clean.
 
-Second bell did not ring from the tower. It rang from the markers.
+At second bell the tower stayed quiet.
 
-One chime at north post.
+North marker chimed once.
 
-A breath.
+East answered.
 
-One at east.
-
-Another breath.
-
-One at west.
+West answered.
 
 Edrin's voice came through the speaking ribbon, tight and immediate.
 "Those are not independent strikes. That's phased."
 
-Rachel felt it then -- not strain, not a tear, but geometry drawing itself
-tight across three points at once.
+Rachel felt it then -- geometry cinching tight across three points at
+once, clean enough to be deliberate.
 
 Triangulation.
 
-The bells went silent.
+The chimes cut out.
 
-For three heartbeats nothing happened.
+Three heartbeats of held dark.
 
 Then all three markers struck together.
 
@@ -7123,10 +7118,10 @@ It felt like placement.
 
 The first sign was not the riders.
 
-It was the date.
+The archive posting board still carried yesterday's date-stamp.
 
-By sundown, if no Council action was logged, Theryn's claim would roll
-into provisional custody review.
+By sundown, if no Council action hit the ledger, Theryn's claim would roll
+straight into provisional custody review.
 
 It was the way the square forgot what it had been doing.
 
@@ -8351,40 +8346,40 @@ For now, that had to count.
 
 A knock came at the side door before they could turn in.
 
-Edrin stood on the step with wind in his hair, map tube under one arm and
-three loose sheets pinned to his chest as if he'd run so hard he forgot
-folders existed.
+Edrin came in on the first answer, wind in his hair, map tube under one
+arm, three loose sheets sliding against his chest.
 
-"I checked the north archive copies with Vaelis," he said without preface.
-"Then the tradehouse set. Then the old repair guild set."
+"I checked the north archive copies with Vaelis," he said, breath still
+high. "Then tradehouse. Then the old repair guild set."
 
-Arathen opened the door wider. "And."
+Arathen held the door while Maelin cleared space on the table. "And."
 
-Edrin held out the pages. "No map."
+Edrin dropped the sheets between them. "No map."
 
 Rachel frowned. "No map for what?"
 
-"For the layer under hinge doctrine," Edrin said. "References everywhere.
-Indices, margin numbers, cross-citations. But the actual operational charts
-are gone in every copy. Removed cleanly."
+"For the layer under hinge doctrine. References everywhere. Indices,
+margin numbers, cross-citations. The operational charts are gone in every
+copy."
 
-Maelin took one sheet and scanned it fast. "So we know it existed and not
-how it worked."
+Maelin scanned the top page, then the second, then looked up. "So we have
+footnotes and no body."
 
 "Exactly."
 
 Rachel looked from the papers to Edrin's face. "Then how do we plan
 tomorrow?"
 
-Edrin answered with tired certainty. "We stop pretending we'll navigate
-this by archive map. We navigate by what you can hear before it manifests."
+Edrin scrubbed a hand through his hair. "By what she can hear before it
+manifests. That's what we have."
 
-Arathen's jaw tightened, then eased. Not agreement. Acceptance.
+Arathen's jaw worked once like he was biting back an argument. Then he
+nodded.
 
 Outside, the lane settled into midnight quiet.
 
-Inside, the three pages lay on the table like instructions with the center
-cut out.
+The three sheets stayed on the table between their cups, all margin
+numbers and missing centers.
 
 
 ---

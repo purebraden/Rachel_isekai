@@ -2909,6 +2909,37 @@ was becoming had ever belonged to hinge doctrine at all.
 
 The seam answered only with its steady hum.
 
+By second bell, Sivara had everyone at the long table.
+
+No speeches. No reassurance. Just assignments.
+
+Edrin produced a single-page variance summary in three copied hands so no
+one could claim later that wording had drifted. Ilyra marked perimeter
+rings on a slate and circled where civilians tended to gather when they
+heard "Council." Maelin built a response order for panic before panic had
+reason to start.
+
+"Speaking order," Sivara said. "I answer doctrine and archive context.
+Rachel answers direct behavioral questions. Edrin handles records. Arathen
+handles procedural challenge."
+
+Arathen looked up. "And if the emissary asks for immediate custody
+transfer?"
+
+Sivara's expression did not change. "Then they file it in open record with
+full Council countersign. No shadow handoff. Not here."
+
+Rachel heard the steadiness in that and understood the effort underneath
+it.
+
+"If they classify me as attractor anyway?" she asked.
+
+"Then we give them less fear and more evidence," Sivara said. "Tonight we
+finish documentation. Tomorrow we make them read it before they label it."
+
+They worked until dusk, ink-stained and quiet, turning observation into
+paper weight no one could wave away as rumor.
+
 
 ---
 
@@ -4803,6 +4834,45 @@ Almost right.
 Almost what it was designed to recognize.
 
 Almost.
+
+Vaelis requested a three-point watch before nightfall.
+
+Not dramatic. Not urgent. Just "for calibration," in the same neutral tone
+he used when asking for ink.
+
+Rachel took north line with Arathen and Ilyra while Edrin worked the marker
+ledger two streets back, checking phase drift against old maintenance
+intervals. The town settled into dark around them: shutters latched, lamps
+lowered, voices thinning to the small practical sounds of people trying to
+pretend they could sleep.
+
+First bell passed clean.
+
+Second bell did not ring from the tower. It rang from the markers.
+
+One chime at north post.
+
+A breath.
+
+One at east.
+
+Another breath.
+
+One at west.
+
+Edrin's voice came through the speaking ribbon, tight and immediate.
+"Those are not independent strikes. That's phased."
+
+Rachel felt it then -- not strain, not a tear, but geometry drawing itself
+tight across three points at once.
+
+Triangulation.
+
+The bells went silent.
+
+For three heartbeats nothing happened.
+
+Then all three markers struck together.
 
 
 ---
@@ -8278,6 +8348,43 @@ door shut with a sound Rachel recognized from years of ordinary nights.
 For now, ordinary still existed.
 
 For now, that had to count.
+
+A knock came at the side door before they could turn in.
+
+Edrin stood on the step with wind in his hair, map tube under one arm and
+three loose sheets pinned to his chest as if he'd run so hard he forgot
+folders existed.
+
+"I checked the north archive copies with Vaelis," he said without preface.
+"Then the tradehouse set. Then the old repair guild set."
+
+Arathen opened the door wider. "And."
+
+Edrin held out the pages. "No map."
+
+Rachel frowned. "No map for what?"
+
+"For the layer under hinge doctrine," Edrin said. "References everywhere.
+Indices, margin numbers, cross-citations. But the actual operational charts
+are gone in every copy. Removed cleanly."
+
+Maelin took one sheet and scanned it fast. "So we know it existed and not
+how it worked."
+
+"Exactly."
+
+Rachel looked from the papers to Edrin's face. "Then how do we plan
+tomorrow?"
+
+Edrin answered with tired certainty. "We stop pretending we'll navigate
+this by archive map. We navigate by what you can hear before it manifests."
+
+Arathen's jaw tightened, then eased. Not agreement. Acceptance.
+
+Outside, the lane settled into midnight quiet.
+
+Inside, the three pages lay on the table like instructions with the center
+cut out.
 
 
 ---

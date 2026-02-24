@@ -236,6 +236,8 @@ Her stomach tightened. “From what?”
 
 Edrin nodded once. “If a beacon spikes, an adjudicator gets assigned. They classify first and ask questions later.”
 
+"If the spike is severe," Ilyra added, "you usually get hours, not days."
+
 Rachel stared at him. “Classify me as what?”
 
 Ilyra met her gaze. “Breach-source. Dangerous object. Containment at best.”
@@ -308,7 +310,7 @@ No one argued with her.
 
 "That's—" She stood, paced two steps, stopped. "You're saying I'm on another planet? Like, in space?"
 
-"Not exactly," Edrin said carefully. "Not another planet in your universe. Another world entirely. Parallel, maybe, or layered—we don't fully understand the mechanics. But separate."
+"Not exactly," Edrin said carefully. "Not another planet in your universe. Another world entirely. Separate."
 
 Rachel's laugh came out sharp and broken. "You don't understand the mechanics of the impossible thing you just told me is real."
 
@@ -7050,203 +7052,148 @@ But tonight, she was exactly where she belonged.
 
 ## Chapter Thirty
 
-Sivara's residence rearranged itself overnight.
+By first bell the next morning, Thornhaven had decided Rachel was no longer
+just a student.
 
-Rachel arrived at dawn—earlier than requested, but sleep had become unreliable again, her mind too full of questions that multiplied faster than answers could address them. The door opened before she could knock, and the interior had shifted into something that resembled a classroom more than a living space. Tables arranged in precise angles. Books stacked according to a logic Rachel couldn't parse. Objects she didn't recognize displayed on pedestals like specimens awaiting examination.
+Sivara met her at the inn door with Mirrel already waiting, posture rigid in
+the way of someone who had spent dawn reading reports they did not like.
 
-"Punctual," Sivara said. She stood near the center of the room, dressed simply in dark fabric that seemed to absorb light rather than reflect it. "That's good. Demons value time differently than humans, but we recognize when someone respects the effort."
+"Walk with us," Sivara said.
 
-Rachel stepped inside. The space felt larger than it should, dimensions refusing to settle into anything her Earth-trained perception could accept. "I couldn't sleep."
+They took the lower ward road toward the municipal office. Market shutters
+were still lifting, workers carrying crates through lanes still cool from
+night, and every few storefronts Rachel caught the same posted notice:
 
-"Also good," Sivara said. "Means you understand what you're facing." She gestured to a chair that hadn't been there a moment ago. "Sit. We start with theory before practice. Otherwise you'll just be flailing with power you don't understand."
+**No unsupervised line work. No mimic casting in public wards.**
 
-Rachel sat. The chair adjusted itself to her weight, her posture, becoming perfectly comfortable in a way that felt almost invasive.
+Her name was not written, but it did not need to be.
 
-Sivara pulled her own chair closer—not quite facing Rachel directly, more at an angle that suggested conversation rather than interrogation. "First question: What do you think a demon is?"
+"Those are because of me," Rachel said.
 
-Rachel considered. "A being that manipulates boundaries. That exists outside normal rules."
+Mirrel did not soften. "Those are because a quarter of this district started
+copying your hand patterns after yesterday's lane correction."
 
-"Pedestrian," Sivara said. "But not wrong. Try deeper."
+"They copied a motion," Rachel replied. "Not intent."
 
-"Someone who belongs to the spaces between," Rachel tried. "Not fully in any one world, but connected to all of them through boundaries."
+"Boundaries do not care about that distinction."
 
-"Better." Sivara leaned back. "Demons are negotiators. We exist at the intersections of reality, where rules meet and sometimes conflict. Our power comes from understanding those conflicts and mediating them. Most demons specialize—boundary walking, time manipulation, spatial folding. You—" She paused, eyes sharp. "You're a generalist. Which is rare. Dangerous. And politically significant."
+Sivara cut in before the exchange sharpened. "The issue is drift, not blame.
+Three municipal lines stabilized when Rachel passed within range, then
+rebounded when she withdrew. No full tears. Yet."
 
-"Why dangerous?" Rachel asked.
+They reached the ward office, a low stone building threaded with old sigils.
+Inside, maps covered the central table, each marked with chalk rings and time
+stamps. Edrin stood over them, already ink-smudged, speaking with a clerk
+Rachel had not met before.
 
-"Because specialists have limits," Sivara said. "Predictable ones. A boundary walker can navigate between worlds but can't reshape them. A time manipulator can slow or stop but can't redirect. You?" She gestured, and the air between them rippled. "You repaired a boundary collapse. That requires understanding time, space, and boundary mechanics simultaneously. That's not specialization. That's something else."
+"South lane, bridge culvert, and east stair approach," he said, tapping each
+mark. "All showed reactive smoothing in proximity, then latency spikes after
+withdrawal."
 
-Rachel's stomach tightened. "What does that make me?"
+The clerk—Neris, according to the badge pinned at her collar—looked up at
+Rachel with professional neutrality. "Which means we treat your presence as an
+active variable inside municipal lines until proven otherwise."
 
-"Unprecedented," Sivara said. "Which brings us to lesson one: demon society is built on precedent. Hierarchies, territories, alliances—all established through historical patterns. When something unprecedented appears, it disrupts everything. People get nervous. Nervous demons are dangerous demons."
+Variable.
 
-The weight of that settled over Rachel like a physical thing.
+Not person. Not threat. A variable.
 
-Sivara stood and moved to one of the pedestals. She picked up what looked like a crystal, except it flowed like water while remaining solid. "Demon politics operates on three principles: Power, Territory, and Lineage. Power is obvious—what you can do. Territory is what you claim and defend. Lineage is who you descend from, who taught you, who vouches for you."
+Mirrel led them to the bridge culvert for a controlled test. No crowd this
+time, just licensed walkers and a perimeter rope.
 
-"I don't have any of those," Rachel said. "Except power, apparently."
+"Standard sequence first," Mirrel said.
 
-"You have power without context," Sivara corrected. "Which makes you either a threat or an asset, depending on who's looking. That's why demons use names carefully." She set the crystal down. "Humans use names as identifiers. Demons use them as currency."
+He reinforced the culvert seam cleanly. The line flattened, then shivered
+back up half a register.
 
-Rachel frowned. "I don't understand."
+Rachel felt the wrongness under it—a slight rotational offset, familiar now.
 
-"You have a human name: Rachel Mercer. That tells me nothing about your power, your allegiances, your history." Sivara's expression shifted slightly. "If you were raised demon, you'd have three names. A given name, a title earned through achievement, and a true name that connects you to your power source."
+"It wants to settle, not compress," she said.
 
-"What's your true name?" Rachel asked.
+Mirrel's jaw tightened. "Show me. Slow."
 
-Sivara smiled, sharp and knowing. "That's a question you never ask. True names are intimate. Powerful. Sharing them creates vulnerability." She paused. "But titles are public. Mine is Sivara the Threadwalker. It tells other demons I specialize in boundary navigation, that I've earned respect through skill, that I'm not someone to underestimate."
+She did not touch the stone. She turned her wrist by degrees, guiding the
+hinge beneath the visible strain rather than forcing it down.
 
-Rachel processed that. "So I need a title."
+The tone dropped.
 
-"Eventually," Sivara said. "When you've earned one. Claiming a title prematurely is worse than having none at all. It marks you as arrogant, inexperienced, dangerous in ways that invite challenge."
+The line held.
 
-"So I'm just Rachel," she said.
+For six breaths, it looked perfect.
 
-"For now." Sivara returned to her chair. "But once word spreads about the Sethril collapse, titles will start to circulate. The Unsealed. The Human-Raised. Eventually, if the right people start asking questions..." She paused meaningfully. "Theryn's Daughter."
+Then a secondary flicker kicked downline and cracked two paving stones by the
+drain mouth. No injuries, but enough to make everyone nearby step back.
 
-Rachel's head snapped up. "How do you know about Theryn?"
+Neris wrote without looking up. "Reactive carry. Logged."
 
-Sivara's expression didn't change. "I've been alive a long time, Rachel. I make it my business to know things." She leaned forward slightly. "Your mother was powerful, political, and careful. The fact that she disappeared twenty-six years ago with an infant heir tells me she was protecting something valuable. The fact that you appeared suddenly, unsealed and untrained, tells me whatever threat she was hiding you from might still exist."
+Mirrel exhaled once through his nose. "Exactly the problem."
 
-The room felt colder.
+Back at the office, Neris laid out a narrow strip of treated paper, and
+Sivara read the wording before passing it to Rachel.
 
-"You knew," Rachel said quietly. "From the beginning. You knew who I was."
+Municipal Observation Order. Temporary, but binding.
 
-"I suspected," Sivara corrected. "I didn't know. Not until you stabilized that collapse. The way you manipulated boundaries—that's inherited technique, not learned. You have your mother's instincts." She paused. "But you're not just her daughter. You're something more. She was powerful. You're potentially stronger."
+1. Rachel may not perform unsupervised corrections within Thornhaven limits.  
+2. All line contact must be witnessed by a licensed walker and logged.  
+3. Pattern anomalies associated with proximity will be mirrored to Council
+transit records pending review.
 
-"Is that why you agreed to teach me?" Rachel asked. "Because I'm politically useful?"
+"Mirrored," Rachel repeated.
 
-"I agreed to teach you because I was unsealed once too," Sivara said, and something in her voice made Rachel look at her more carefully. "Different circumstances. Different reasons. But I know what it's like to wake up and discover everything you thought you were is wrong. To have power you don't understand and people treating you like a threat before they know your name." Her expression softened slightly. "And I know what it's like to need someone who sees you as a person first and a weapon second."
+Edrin answered quietly. "Once the paired volume takes an entry, it doesn't
+vanish. It can be contextualized later. Not erased."
 
-Rachel's throat tightened. "Thank you."
+Irreversible, then.
 
-Sivara nodded. "Don't thank me yet. I'm going to work you harder than you've ever been worked. Because if you're going to survive demon politics, you need to be unchallengeable. Understood?"
+Sivara signed first. Mirrel signed second. Rachel signed last.
 
-"Understood," Rachel said.
+When she handed the strip back, Neris pressed a seal to the corner and the
+ink darkened as the record propagated.
 
-"Good." Sivara stood. "Then let's begin. Show me how you sense boundaries."
+"Order active by dusk," Neris said.
 
-Rachel stood, uncertain. "I just... feel them."
+Outside the office, Rachel stood in the lane for a long moment without moving.
 
-"Describe it."
+"You think this makes me safer," she said to Sivara.
 
-Rachel closed her eyes, reaching for that sense that had become second nature. "It's like pressure. Temperature. Texture. Boundaries feel different depending on what they're separating. Some are thin, fragile. Others are thick, stable. Some feel wrong, like they're fraying."
+"I think this makes us legible," Sivara replied. "Legibility buys time in
+politics."
 
-"Open your eyes," Sivara said. "Now look at me and tell me what you sense."
+"And if Vex is already watching?"
 
-Rachel opened her eyes and looked. At first she saw only Sivara—a woman, powerful, contained. Then she shifted her awareness, that internal sense she'd been learning to trust.
+Sivara's expression did not change. "Then he now sees restraint, witnesses,
+and procedure. That matters when stories start moving faster than facts."
 
-Sivara was surrounded by boundaries.
+Arathen found her by the inn courtyard after midday, one hand resting on the
+low wall as if he had been waiting there longer than he would admit.
 
-Not visible ones. But Rachel could feel them anyway. Layers of protection, carefully maintained. Personal space defined by more than just physical distance. A perimeter that said *this far and no further* without words.
+"How bad?" he asked.
 
-"You're shielded," Rachel said. "Multiple layers. Boundaries around yourself, but not defensive exactly. More like... definition. Separating yourself from everything else."
+She held up the copy Edrin had made for her.
 
-Sivara's expression sharpened with approval. "Exactly. All demons do this instinctively—define themselves through boundaries. It's how we maintain identity in spaces where reality is fluid. You're doing it too, though you probably don't realize it."
+He read it and looked up slowly. "This is a leash."
 
-Rachel tried to sense herself. Found edges she hadn't known existed. Boundaries she was maintaining unconsciously, separating her from the world around her.
+"It's also an archive trail," Rachel said. "Officially, I am now a municipal
+hazard variable with supervision requirements."
 
-"That's how demons recognize each other," Sivara said. "Not by appearance, but by boundary presence. You read as demon because you define yourself like one. Even when you thought you were human, you were doing this. It's why you always felt wrong."
+Arathen folded the paper once and handed it back. "You're also the person who
+prevented three tears this morning."
 
-The revelation settled heavy and certain.
+"That won't be the line people remember."
 
-"You weren't human trying to fit in," Sivara continued. "You were demon trying to pretend. The suppression locked your power, but it couldn't change your fundamental nature. You've always been this. You just didn't have the language for it."
+"Some won't," he agreed. "Some will."
 
-Rachel found herself nodding. "It feels right. Saying it. Being this."
+By late afternoon, the notices were up on every major archway, and Rachel
+watched two stall owners stop talking when she passed.
 
-"Good." Sivara smiled. "That's the first real lesson. You're not becoming a demon. You're remembering how to be one." She moved toward the door. "Come on. Theory is done for today. Now we practice."
+No hostility.
 
-They stepped outside into Thornhaven's morning. The town was waking—shops opening, people moving through streets with early-day purpose. Rachel followed Sivara toward the edges of town, where buildings gave way to open space.
+No welcome, either.
 
-Arathen was there.
+Just recalculation.
 
-He stood near a low stone wall, attention fixed on some distant point, but Rachel knew he'd been waiting. Watching for her.
-
-"Observing again?" Sivara called.
-
-Arathen turned, and Rachel caught the ghost of a smile. "Ensuring Rachel's teacher doesn't work her to death on day one."
-
-"That's day three," Sivara said dryly. "Today is just exhaustion." She gestured to the open space. "Rachel. I want you to find every boundary within fifty yards. Map them. Tell me what they're separating and how stable they are."
-
-Rachel focused, letting her awareness expand. The boundaries appeared in her mind like a three-dimensional map. Property lines defined by magic. Personal shields around individuals. Thin places where the air shimmered with possibility.
-
-She described each one. Sivara listened, occasionally correcting her interpretation, pushing her to sense deeper.
-
-An hour passed. Then two.
-
-When Sivara finally called a halt, Rachel's head throbbed with the effort of extended perception. But she'd mapped every boundary, identified their purposes, even sensed a few thin places where worlds brushed close enough to touch.
-
-"Good," Sivara said. "Tomorrow we work on manipulation. For now, rest. Your brain needs time to process."
-
-Rachel nodded, exhausted but satisfied.
-
-Arathen pushed off the wall and fell into step beside her as she headed back toward the inn. They walked in comfortable silence for a while, Rachel's mind still half-occupied with boundary awareness.
-
-"You did well," Arathen said finally.
-
-"You watched the whole time?"
-
-"Most of it." He glanced at her, expression warm. "It's remarkable, watching you work. The concentration. The precision. You're a natural at this."
-
-"Sivara says it's inherited," Rachel said. "From my mother."
-
-"Theryn." He said the name carefully, testing it. "You're handling that revelation better than I expected."
-
-Rachel considered. "I think part of me already knew. That I wasn't just random. That there was a reason for all of this." She paused. "It's almost a relief. Having answers, even incomplete ones."
-
-They reached the inn. Inside, the others were gathered—Maelin sorting through supplies, Ilyra sharpening a blade with methodical focus, Edrin buried in a book that looked older than the building.
-
-Maelin looked up and smiled. "How was training?"
-
-"Exhausting," Rachel admitted. She sank into a chair, grateful for the rest. "But good. I learned a lot."
-
-"You looked like you were meditating," Ilyra said. "Standing there staring at nothing for two hours."
-
-"Not nothing," Rachel said. "Boundaries. They're everywhere. I just didn't know how to see them before."
-
-Edrin closed his book, interested. "Could you teach us? To sense them the way you do?"
-
-"I don't know," Rachel said honestly. "Sivara says it's instinctive for demons. I'm not sure it works the same for humans."
-
-"Still worth trying," Edrin said. "Understanding even a fraction of what you perceive would be valuable."
-
-Maelin brought over tea—something warm and herbal that smelled like the forest outside. Rachel accepted it gratefully, the heat spreading through her palms.
-
-"We're settling in," Maelin said. "Found a good market for supplies. Ilyra made contact with the local guard—they're aware we're here, but not hostile. Edrin found a library that's making him dangerously happy."
-
-"Six floors," Edrin said reverently. "Six floors of texts, some dating back centuries. They even have sections on boundary theory."
-
-Rachel found herself smiling despite her exhaustion. This was home. These people, this space, this feeling of belonging.
-
-She looked at Arathen and found him already watching her. Their eyes met. Something passed between them—acknowledgment, awareness, the beginning of something neither had named yet.
-
-Maelin cleared her throat, amusement evident. "So. Rachel's learning to be a proper demon. Edrin's buried in books. Ilyra and I are keeping us stocked and safe. What's your role in all this, Arathen?"
-
-Arathen's expression didn't change. "Watching. Waiting. Making sure we're prepared for whatever comes next."
-
-"Always the scholar," Ilyra said.
-
-"Always the worrier," Maelin added.
-
-But Rachel understood. He was protecting them. Protecting her. Watching for threats while she learned to protect herself.
-
-The afternoon faded into evening. They ate together—a meal cobbled from market finds and shared stories. Rachel told them what she'd learned about demon names and politics. Edrin shared discoveries from the library. Ilyra recounted a conversation with a guardsman that had devolved into an impromptu weapons demonstration.
-
-Normal. Comfortable. The rhythm of people who'd chosen each other.
-
-Later, as Rachel prepared for bed, she stood at the window and looked out at Thornhaven. The town glowed with bioluminescent patterns, boundaries humming their constant presence beneath everything.
-
-She'd spent twenty-six years feeling wrong. Misaligned. Missing something essential.
-
-Now, standing here, she felt right. Complete. Like every piece had finally found its proper place.
-
-She was demon. She was Theryn's daughter. She was powerful and unprecedented and politically significant.
-
-But more than that—she was Rachel. Surrounded by people who loved her, learning to be what she'd always been, finally home in a world that made sense.
-
-Tomorrow would bring more training. More questions. More complexity.
-
-But tonight, she was exactly where she belonged.
+By the time second bell rang, Thornhaven had made room for her and marked her
+in the same motion.
 
 
 
@@ -7258,7 +7205,10 @@ But tonight, she was exactly where she belonged.
 
 ## Chapter Thirty-One
 
-Two days after their arrival, Sivara announced the gathering with characteristic bluntness. "You need to meet other demons. Controlled circumstances. My territory, my rules. They'll behave or answer to me."
+By dusk on their second day in Thornhaven—and with the Municipal Observation
+Order already posted on every major arch—Sivara announced the gathering with
+characteristic bluntness. "You need to meet other demons. Controlled
+circumstances. My territory, my rules. They'll behave or answer to me."
 
 Rachel's stomach tightened. "How many?"
 
@@ -7387,6 +7337,8 @@ Rachel bristled. "And yet."
 "Valen," Sivara said, warning in her voice.
 
 "I'm being honest," Valen said. "She deserves that much. The power she demonstrated at the collapse—that shouldn't be possible for someone untrained. It suggests potential we don't understand. Potential is dangerous."
+
+"And the correction pattern from Sethril wasn't standard hinge doctrine," he added, gaze still fixed on Rachel. "It matches pre-doctrine settling models from Architect-era texts. If that's instinct, it's older than anything the Council currently teaches."
 
 "Potential is also useful," Kovan interjected. "If guided properly."
 
@@ -8082,7 +8034,86 @@ That would have to be enough.
 
 ## Chapter Thirty-Four
 
-Three days passed in something that felt almost like normal.
+The first of those days broke before breakfast.
+
+Rachel was crossing the south market lane with Maelin and Edrin when the
+nearest municipal marker gave a high, wrong note—more whistle than hum.
+Not a full tear. A stress hitch.
+
+She turned toward it automatically.
+
+A young boundary apprentice she recognized from Sivara's outer lessons stood
+too close to the stone ring, right hand lifted in a crude imitation of
+Rachel's wrist turn. Two friends watched from the curb with notebook pages
+already open.
+
+"Don't," Rachel called, already moving.
+
+The apprentice flinched—and completed the motion anyway.
+
+The marker answered with a lateral snap. Air sheared sideways hard enough to
+throw a produce cart into the next stall. A courier hit the paving shoulder
+first and screamed, forearm bent wrong.
+
+Rachel dropped to one knee at the marker and reached for the hitch before it
+could run. The first layer yielded fast.
+
+Beneath it, something colder slid under her touch.
+
+Not random strain. A deliberate drag, thin and patient, the same searching
+pressure she'd felt in the dream when Vex pressed at her boundaries.
+
+She cut across it and forced the seam flat.
+
+The street sound returned in broken pieces—people shouting for healers,
+wood splintering as someone righted the cart, the courier trying not to cry.
+
+Maelin was already at the injured woman's side, stabilizing her arm with
+clean cloth and a splint improvised from market slats. Edrin crouched at the
+marker, fingers hovering over the carved line.
+
+"This isn't only mimic failure," he said tightly. "There's external residue.
+Someone pre-tensioned this line."
+
+Sivara arrived at a run with Mirrel two steps behind her.
+
+Mirrel took in the damaged stall, the injured courier, the apprentice shaking
+in place. His expression hardened.
+
+"This is what I warned about," he said. "Visibility is instruction. Half the
+district is trying to copy motions they don't understand."
+
+Sivara's voice cut cleanly through the lane. "Unsanctioned practice in a
+public line is on me and the ward office. Not on Rachel."
+
+"The line still bent around her presence," Mirrel said. "And now someone is
+using that pattern against us."
+
+He wasn't wrong, and Rachel hated that he wasn't wrong.
+
+The apprentice started to apologize and couldn't get the words out.
+
+Sivara turned to him first. "You report to ward supervision at second bell.
+No field work until cleared."
+
+Then to Rachel: "You don't answer public hitches alone anymore. Two-person
+protocol minimum. If this is Vex probing response times, he doesn't get easy
+data."
+
+Rachel nodded. Her hands were still shaking.
+
+By midday, the lane was reopened, but the mood in Thornhaven had shifted.
+People still greeted Rachel. They also watched her hands.
+
+By evening, healers confirmed the courier would keep the arm but lose full
+rotation at the elbow. Permanent restriction.
+
+The ward office updated Rachel's status from temporary observation to standing
+supervised protocol pending Council review, with the injury notation mirrored
+into regional records. It could be contextualized later. It could not be
+removed.
+
+After that, three days passed in something that felt almost like normal.
 
 Training continued—Sivara was relentless but careful, pushing Rachel's abilities while keeping her away from dangerous echoes. Research proceeded—Edrin buried himself in library texts, emerging periodically with fragments of information about Theryn's territorial work and political connections. Ilyra made discreet inquiries, mapping Thornhaven's social network with the precision of someone who understood how information flowed.
 
@@ -8308,6 +8339,10 @@ Kael's gaze swept over her—assessing, cataloging, measuring. Rachel felt exami
 
 "Interesting," he said finally. "The reports didn't do you justice."
 
+He tapped the folio in his hand. "Nor did I miss the municipal docket.
+South-lane civilian injury. Standing supervised protocol. Thornhaven put
+weight behind that filing."
+
 "What reports?" Rachel asked.
 
 "The boundary collapse repair," Kael said. "Word spreads among those who pay attention. An unprecedented demon stabilizing a major collapse without training—that's noteworthy. Worth investigating." He paused. "Worth meeting."
@@ -8516,7 +8551,8 @@ The lead assassin spoke, voice flat and businesslike. "Rachel, daughter of Thery
 
 "That wasn't a request," the assassin said. "Vex wants you alive, but he didn't specify undamaged. We can do this easy or hard."
 
-Vex. The name Rachel didn't recognize but felt significant.
+Vex. The name landed like confirmation of the fear they'd been naming for
+days.
 
 "Who's Vex?" she asked, buying time.
 
@@ -9378,6 +9414,10 @@ The message itself was formal, written in a language Rachel couldn't read but so
 
 **Rachel, heir of Theryn, is summoned to appear before the Demon Council. The Spire. Seven days hence. Attendance is not negotiable. Failure to appear will be interpreted as hostile intent.**
 
+Attached beneath the summons sat three mirrored entries from Thornhaven's
+ward records, including the south-lane civilian injury and Rachel's active
+supervision status.
+
 "Subtle," Ilyra said.
 
 "The Council doesn't do subtle," Sivara explained. She'd been helping them prepare for this inevitability. "They do power and protocol. This is both—summons delivered in boundary script,
@@ -9391,6 +9431,9 @@ The message itself was formal, written in a language Rachel couldn't read but so
 "Of course he will," Rachel muttered.
 
 They spent the remaining days preparing. Sivara taught Rachel Council protocols—how to address members, how to present claims, how to recognize political maneuvering. Edrin researched precedents for territorial inheritance. Maelin helped Rachel acquire appropriate clothing—formal demon attire that signified power without aggression.
+
+Edrin also drafted a response brief framing the injury record as evidence of
+municipal containment and corrective protocol rather than negligence.
 
 And Arathen helped Rachel practice control. Demonstrating abilities without losing composure. Answering questions without revealing more than necessary. Staying calm under pressure.
 

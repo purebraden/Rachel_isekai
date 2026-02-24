@@ -236,6 +236,8 @@ Her stomach tightened. “From what?”
 
 Edrin nodded once. “If a beacon spikes, an adjudicator gets assigned. They classify first and ask questions later.”
 
+"If the spike is severe," Ilyra added, "you usually get hours, not days."
+
 Rachel stared at him. “Classify me as what?”
 
 Ilyra met her gaze. “Breach-source. Dangerous object. Containment at best.”
@@ -308,7 +310,7 @@ No one argued with her.
 
 "That's—" She stood, paced two steps, stopped. "You're saying I'm on another planet? Like, in space?"
 
-"Not exactly," Edrin said carefully. "Not another planet in your universe. Another world entirely. Parallel, maybe, or layered—we don't fully understand the mechanics. But separate."
+"Not exactly," Edrin said carefully. "Not another planet in your universe. Another world entirely. Separate."
 
 Rachel's laugh came out sharp and broken. "You don't understand the mechanics of the impossible thing you just told me is real."
 
@@ -8337,6 +8339,10 @@ Kael's gaze swept over her—assessing, cataloging, measuring. Rachel felt exami
 
 "Interesting," he said finally. "The reports didn't do you justice."
 
+He tapped the folio in his hand. "Nor did I miss the municipal docket.
+South-lane civilian injury. Standing supervised protocol. Thornhaven put
+weight behind that filing."
+
 "What reports?" Rachel asked.
 
 "The boundary collapse repair," Kael said. "Word spreads among those who pay attention. An unprecedented demon stabilizing a major collapse without training—that's noteworthy. Worth investigating." He paused. "Worth meeting."
@@ -9408,6 +9414,10 @@ The message itself was formal, written in a language Rachel couldn't read but so
 
 **Rachel, heir of Theryn, is summoned to appear before the Demon Council. The Spire. Seven days hence. Attendance is not negotiable. Failure to appear will be interpreted as hostile intent.**
 
+Attached beneath the summons sat three mirrored entries from Thornhaven's
+ward records, including the south-lane civilian injury and Rachel's active
+supervision status.
+
 "Subtle," Ilyra said.
 
 "The Council doesn't do subtle," Sivara explained. She'd been helping them prepare for this inevitability. "They do power and protocol. This is both—summons delivered in boundary script,
@@ -9421,6 +9431,9 @@ The message itself was formal, written in a language Rachel couldn't read but so
 "Of course he will," Rachel muttered.
 
 They spent the remaining days preparing. Sivara taught Rachel Council protocols—how to address members, how to present claims, how to recognize political maneuvering. Edrin researched precedents for territorial inheritance. Maelin helped Rachel acquire appropriate clothing—formal demon attire that signified power without aggression.
+
+Edrin also drafted a response brief framing the injury record as evidence of
+municipal containment and corrective protocol rather than negligence.
 
 And Arathen helped Rachel practice control. Demonstrating abilities without losing composure. Answering questions without revealing more than necessary. Staying calm under pressure.
 

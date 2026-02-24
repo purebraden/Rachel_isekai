@@ -39,6 +39,9 @@ One more postponement and the claim would slide into provisional custody
 review, the kind of quiet Council process that left heirs reading decisions
 after the ink had already dried.
 
+And custody review would not stop at title. It would put Thornhaven's boundary
+response under direct Council steward until further notice.
+
 She and Arathen had kept the promise they made on the balcony—no formal
 merge until she had room to figure herself out on her own terms. The
 promise had changed the shape of their choices, not the fact of them.
@@ -3527,6 +3530,10 @@ remember what certainty felt like."
 # Chapter 12 — Under Watch
 
 Vaelis was already in the square when Rachel stepped out into the morning, and the sight of him standing there with his small leather book open felt less like intrusion and more like subtraction, as if something ordinary had been quietly removed from the air and replaced with attention. Thornhaven insisted on looking unchanged — smoke lifting straight from chimneys, terrace workers arguing about soil drainage near the southern slope, the well rope coiled neatly against stone — but the rhythm underneath it all felt thinner, as if everyone were aware that a second set of eyes was measuring not just what happened but how it happened.
+
+Near the apothecary arch, the younger walker from the cistern incident stood
+with his shoulder strapped and immobile, and new placards on the square posts
+read in plain script: No mimic trials. Licensed supervision only.
 
 Vaelis had not arrived alone that morning. Sivara stood with him at the edge of the well’s shadow, her posture composed but not yielding, one hand resting lightly against the back of a chair that had been dragged out from the doorway. Rachel caught only fragments of their conversation as she stepped fully into the square — “standard reinforcement sequencing,” Vaelis was saying, his tone neutral but precise, and Sivara answering, “She was not trained under full Council protocol.” There was no defensiveness in her voice, only fact. That almost unsettled Rachel more.
 

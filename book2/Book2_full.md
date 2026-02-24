@@ -8,7 +8,13 @@ Morning came softly to Thornhaven, not in a rush but in slow widening
 bands of light that crept across stone and linen and the curve of a
 shoulder half-turned toward the window.
 
-Rachel woke to warmth at her back.
+Rachel woke to warmth at her back and to the west line humming one note
+too high.
+
+The pulse rolled through the walls, settled, and left a thin metallic
+taste at the back of her tongue.
+
+Third time since midnight.
 
 For a moment she didn't move. The room held that suspended quiet just
 before the compound stirred --- no boots in the corridor yet, no clatter
@@ -28,6 +34,9 @@ combat. The hearing never happened. Boundary failures along the eastern
 lines had postponed the claim proceedings twice, leaving Theryn's holdings
 in legal suspension and Rachel in the strange position of being both heir
 and not yet owner.
+
+A third postponement would move the case into provisional custody review
+and give the Council room to "stabilize" her inheritance without her.
 
 She and Arathen had kept the promise they made on the balcony—no formal
 merge until she had room to figure herself out on her own terms. The
@@ -70,6 +79,10 @@ The fragment-strike that had ended her fight with Mordath still lived in
 memory like a live wire. She could probably reach for that kind of force
 again if panic drove her there. She had decided she wouldn't unless every
 other option had failed.
+
+Vex had stayed out of her dreams for eleven nights.
+
+She still counted.
 
 "It's holding," she said.
 
@@ -470,6 +483,10 @@ surface --- not as instability, but as something newly settled.
 The memory lasted all of three breaths before the line proved it was not
 done with them.
 
+Second seam before first bell.
+
+Last month that would have counted as a bad day.
+
 At the base of the marker arc, where two stones sat half-buried beside
 the old sheep path, the air bent again in a narrow, ugly crease.
 
@@ -595,12 +612,16 @@ He glanced at Lysa, then back to Rachel.
 
 The words landed heavier than they should have.
 
+Lysa's gaze stayed on Rachel's hands even after her father turned away.
+
 Rachel nodded once, unsure where to put her hands.
 
 Sivara stepped in before the moment could thicken.
 
 "Get your daughter inside and check your doorway sigil for drift," she
 said. "If the right side glows unevenly, send for Edrin."
+
+"And log it," she added. "Every hitch. No exceptions."
 
 The baker gave a short bow, the kind that belonged to old habit rather
 than ceremony, and moved up the path.
@@ -2725,6 +2746,8 @@ The surface of the page shimmered faintly before new script emerged
 opposite her own, the strokes unmistakably Council hand and unadorned in
 tone. Emissary dispatched. Shadow route. Arrival estimated one day.
 
+Shadow route meant jurisdiction, not courtesy.
+
 For a fraction of a breath, something flickered across her expression
 --- not surprise exactly, and not alarm, but a tightening that
 acknowledged the speed of response and what that speed implied. Then it
@@ -2840,6 +2863,9 @@ Council?"
 "Three weeks?"
 
 "Shadow route," Sivara corrected. "Arrival tomorrow."
+
+"If they classify this as attractor behavior, Thornhaven shifts from
+autonomy to managed oversight until they decide the pattern is contained."
 
 The air seemed to thin slightly at that, though no visible change marked
 it. Rachel did not feel threatened so much as observed in advance, as if
@@ -7026,6 +7052,11 @@ It felt like placement.
 # Chapter 26 — The Summons
 
 The first sign was not the riders.
+
+It was the date.
+
+By sundown, if no Council action was logged, Theryn's claim would roll
+into provisional custody review.
 
 It was the way the square forgot what it had been doing.
 

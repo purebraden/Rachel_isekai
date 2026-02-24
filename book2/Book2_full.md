@@ -8,7 +8,13 @@ Morning came softly to Thornhaven, not in a rush but in slow widening
 bands of light that crept across stone and linen and the curve of a
 shoulder half-turned toward the window.
 
-Rachel woke to warmth at her back.
+Rachel woke to warmth at her back and to the west line humming one note
+too high.
+
+The pulse rolled through the walls, settled, and left a thin metallic
+taste at the back of her tongue.
+
+Third time since midnight.
 
 For a moment she didn't move. The room held that suspended quiet just
 before the compound stirred --- no boots in the corridor yet, no clatter
@@ -28,6 +34,10 @@ combat. The hearing never happened. Boundary failures along the eastern
 lines had postponed the claim proceedings twice, leaving Theryn's holdings
 in legal suspension and Rachel in the strange position of being both heir
 and not yet owner.
+
+One more postponement and the claim would slide into provisional custody
+review, the kind of quiet Council process that left heirs reading decisions
+after the ink had already dried.
 
 She and Arathen had kept the promise they made on the balcony—no formal
 merge until she had room to figure herself out on her own terms. The
@@ -70,6 +80,10 @@ The fragment-strike that had ended her fight with Mordath still lived in
 memory like a live wire. She could probably reach for that kind of force
 again if panic drove her there. She had decided she wouldn't unless every
 other option had failed.
+
+Vex had stayed out of her dreams for eleven nights.
+
+She still counted.
 
 "It's holding," she said.
 
@@ -470,6 +484,9 @@ surface --- not as instability, but as something newly settled.
 The memory lasted all of three breaths before the line proved it was not
 done with them.
 
+Second seam before first bell, and Rachel caught herself missing the days
+when that alone felt catastrophic.
+
 At the base of the marker arc, where two stones sat half-buried beside
 the old sheep path, the air bent again in a narrow, ugly crease.
 
@@ -595,12 +612,16 @@ He glanced at Lysa, then back to Rachel.
 
 The words landed heavier than they should have.
 
+Lysa's gaze stayed on Rachel's hands even after her father turned away.
+
 Rachel nodded once, unsure where to put her hands.
 
 Sivara stepped in before the moment could thicken.
 
 "Get your daughter inside and check your doorway sigil for drift," she
 said. "If the right side glows unevenly, send for Edrin."
+
+"And log it," she added. "Every hitch. No exceptions."
 
 The baker gave a short bow, the kind that belonged to old habit rather
 than ceremony, and moved up the path.
@@ -2725,6 +2746,9 @@ The surface of the page shimmered faintly before new script emerged
 opposite her own, the strokes unmistakably Council hand and unadorned in
 tone. Emissary dispatched. Shadow route. Arrival estimated one day.
 
+Shadow route. The Council used that when it intended to take the room and
+write the terms itself.
+
 For a fraction of a breath, something flickered across her expression
 --- not surprise exactly, and not alarm, but a tightening that
 acknowledged the speed of response and what that speed implied. Then it
@@ -2841,6 +2865,9 @@ Council?"
 
 "Shadow route," Sivara corrected. "Arrival tomorrow."
 
+"If they call this attractor behavior, Thornhaven stops being autonomous
+and starts being managed until they decide we're containable."
+
 The air seemed to thin slightly at that, though no visible change marked
 it. Rachel did not feel threatened so much as observed in advance, as if
 something were already orienting toward her.
@@ -2882,6 +2909,37 @@ wondered---not with fear, but with growing awareness---whether what she
 was becoming had ever belonged to hinge doctrine at all.
 
 The seam answered only with its steady hum.
+
+By second bell, Sivara had everyone at the long table.
+
+Edrin came in with three fresh copies of the variance summary and ink on
+his cuff, checking one against another as if the wording might slip while
+he wasn't looking. Ilyra dragged a slate toward her, mapped perimeter
+rings, crossed two out, and redrew them when Maelin pointed out where
+children ran when adults shouted.
+
+"Speaking order," Sivara said. "I answer doctrine and archive context.
+Rachel answers direct behavioral questions. Edrin handles records. Arathen
+handles procedural challenge."
+
+Arathen looked up. "And if the emissary asks for immediate custody
+transfer?"
+
+Sivara's expression did not change. "Then they file it in open record with
+full Council countersign. If they want a handoff, they ask for it in front
+of every witness in this room."
+
+Rachel heard the steadiness in that and understood the effort underneath
+it.
+
+"If they classify me as attractor anyway?" she asked.
+
+"Then we give them less fear and more evidence," Sivara said. "Tonight we
+finish documentation. Tomorrow we make them read it before they label it."
+
+They worked until dusk, hands blackened with ink and chalk, the table
+buried under copied statements, signatures, and margin notes too specific
+to dismiss as rumor.
 
 
 ---
@@ -4777,6 +4835,39 @@ Almost right.
 Almost what it was designed to recognize.
 
 Almost.
+
+Near dusk, Vaelis asked for a three-point watch, in the same tone he used
+when asking for more lamp oil.
+
+Rachel took north line with Arathen and Ilyra while Edrin worked the marker
+ledger two streets back, checking phase drift against old maintenance
+intervals. The town settled into dark around them: shutters latched, lamps
+lowered, voices thinning to the small practical sounds of people trying to
+pretend they could sleep.
+
+First bell came from the tower and faded clean.
+
+At second bell the tower stayed quiet.
+
+North marker chimed once.
+
+East answered.
+
+West answered.
+
+Edrin's voice came through the speaking ribbon, tight and immediate.
+"Those are not independent strikes. That's phased."
+
+Rachel felt it then -- geometry cinching tight across three points at
+once, clean enough to be deliberate.
+
+Triangulation.
+
+The chimes cut out.
+
+Three heartbeats of held dark.
+
+Then all three markers struck together.
 
 
 ---
@@ -7027,6 +7118,11 @@ It felt like placement.
 
 The first sign was not the riders.
 
+The archive posting board still carried yesterday's date-stamp.
+
+By sundown, if no Council action hit the ledger, Theryn's claim would roll
+straight into provisional custody review.
+
 It was the way the square forgot what it had been doing.
 
 A hammer paused mid-strike near the smithy. A cart wheel creaked once
@@ -8247,6 +8343,43 @@ door shut with a sound Rachel recognized from years of ordinary nights.
 For now, ordinary still existed.
 
 For now, that had to count.
+
+A knock came at the side door before they could turn in.
+
+Edrin came in on the first answer, wind in his hair, map tube under one
+arm, three loose sheets sliding against his chest.
+
+"I checked the north archive copies with Vaelis," he said, breath still
+high. "Then tradehouse. Then the old repair guild set."
+
+Arathen held the door while Maelin cleared space on the table. "And."
+
+Edrin dropped the sheets between them. "No map."
+
+Rachel frowned. "No map for what?"
+
+"For the layer under hinge doctrine. References everywhere. Indices,
+margin numbers, cross-citations. The operational charts are gone in every
+copy."
+
+Maelin scanned the top page, then the second, then looked up. "So we have
+footnotes and no body."
+
+"Exactly."
+
+Rachel looked from the papers to Edrin's face. "Then how do we plan
+tomorrow?"
+
+Edrin scrubbed a hand through his hair. "By what she can hear before it
+manifests. That's what we have."
+
+Arathen's jaw worked once like he was biting back an argument. Then he
+nodded.
+
+Outside, the lane settled into midnight quiet.
+
+The three sheets stayed on the table between their cups, all margin
+numbers and missing centers.
 
 
 ---

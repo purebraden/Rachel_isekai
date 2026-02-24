@@ -6,99 +6,62 @@
 
 ## Chapter One
 
-Rachel Mercer’s life was fine.
+Rachel Mercer found the envelope under her windshield wiper at 7:12 a.m.
 
-That was the word she used when people asked. Fine. A useful word. A word that nodded and smiled and closed the conversation before it could wander into uncomfortable territory. Fine meant a job that didn’t make her cry in the bathroom anymore—not often, anyway—and friends who sent her memes at midnight like proof of continued existence. Fine meant a boyfriend who showed up with fries even when she said she wasn’t hungry, which was a lie she told often enough that he’d learned to translate it.
+No stamp. No return address. Just her name in block print and a wax seal stamped with a symbol she had seen in exactly one place: the photocopy of her sealed adoption file.
 
-Fine meant rent paid on time, groceries in the fridge, a car that usually started on the first try.
+She stood in the parking garage and stared while someone behind her leaned on a horn.
 
-Fine also meant she could go three, sometimes four days without thinking about where she came from.
+For most of her life, she had treated the blank in her history like old scar tissue. Real, inconvenient, mostly ignorable. Last month she filed a records petition anyway. This morning she got the official answer.
 
-Literally.
+Denied. Closed records remain closed.
 
-Adopted was the word people used, said with a gentle finality, like it wrapped everything up in a bow and slid it into a drawer. As if it closed a door instead of quietly pointing to another one behind it, unmarked. Rachel had been adopted as an infant. Closed records. Dates, signatures, official seals. A thin place in her history where a story should have been, where something should have pushed back when she leaned on it.
+This envelope was not official.
 
-Her parents—the ones who raised her—were good people. Kind in a steady, unshowy way. Middle-class in the sense that meant stability, expectations, a belief that things worked if you did them in the right order. Love had never been the issue. If anything, there had been too much of it, carefully measured and gently applied. Her dad still forwarded articles about tires and car maintenance, as if one day she might wake up interested in rotating her own tires. Her mom still asked about vitamins, about sleep, about whether Rachel was “eating enough real food.”
+Rachel broke the wax.
 
-Most days, the blank spot stayed quiet.
+Inside was one folded sheet.
 
-On other days, it turned into something small and hard she carried around in her chest. You could walk with it. Work around it. Forget it was there until you shifted wrong and felt the pressure. Not pain, exactly. More like resistance.
+STOP ASKING.  
+YOU WERE SEALED FOR A REASON.
 
-That morning, the pressure showed up while she waited in line at the coffee place near her office.
+No signature. Just the same symbol, drawn again in wet-looking black ink.
 
-Three people ahead of her. One behind. All of them deeply invested in milk alternatives. The barista asked a question. The woman in front of Rachel answered like she’d been personally challenged, voice tight with defensive sincerity. An apology followed, practiced and weary. Rachel stared at the menu board even though she could recite it, right down to the seasonal drinks she never ordered.
+A man with a gym bag stopped beside her. "You moving?"
 
-Her coffee came out the same as always. No follow-up questions. No commentary. That felt like a small mercy.
+Rachel folded the note and shoved it into her tote. "Yeah. Sorry."
 
-Outside, the cup warmed her hands as she walked toward the building. Somewhere between the curb and the revolving door, the thought slipped in the way it sometimes did—already settled by the time she noticed it, like it had been waiting.
+By nine, she had told herself three useful lies: that someone was playing a stupid prank, that the symbol did not matter, and that this had nothing to do with her.
 
-I’m missing something.
+Fine was her specialty.
 
-Not a thing you could name. Not a task or an errand or something you could fix by being more organized. More like everything in her life had been assembled correctly and one essential piece had never been included in the box. The instructions insisted it wasn’t necessary, but the whole thing wobbled without it.
+The office did what offices do. Emails multiplied. Calendar invites appeared without consent. Her manager sent a message beginning with Quick question that required scrolling.
 
-Vague thoughts annoyed her more than sad ones. You couldn’t argue with them. You couldn’t prove them wrong. You couldn’t even say them out loud without sounding like someone who captioned photos with lowercase letters and feelings.
+At ten fifteen, Mara texted a photo of a dog in sunglasses with the caption you at 3pm. Rachel laughed too loudly, then checked to see who heard.
 
-Coffee helped. Or at least the ritual of it did.
+At lunch she locked herself in a bathroom stall, unfolded the note, and stared until the letters blurred. For one second the symbol looked like it moved, lines sliding into a geometry she almost recognized. Then it was still again.
 
-Six floors up, the office tried very hard to pretend it wasn’t an office. Exposed brick. Plants that required attention. Artwork chosen by committee, all edges sanded down until it couldn’t offend anyone. The elevator smelled faintly of cleaning solution and someone else’s cologne. Rachel liked the building. She liked the security guard who nodded at her every morning like he recognized her as safe, harmless, already accounted for.
+She told herself she needed sleep.
 
-Work was work.
+At five thirty, Evan texted.
 
-Emails stacked up. A calendar filled itself without asking. A message from her manager started with Quick question and went on long enough to require scrolling. Replies were sent. Notes were taken. A sticky note went up on the edge of her monitor because if it didn’t, the thought attached to it would drift away and come back later when she least wanted it to.
+Evan: Dinner tonight? I can pick up Thai.  
+Evan: You okay?
 
-At ten fifteen, Mara texted a picture of a dog wearing sunglasses with the caption you at 3pm. Laughter slipped out before Rachel could stop it—too loud, too sudden. She glanced around her cubicle, waiting for someone to look at her like she’d broken a rule. No one did. That could be read a few different ways.
-
-By eleven, she was in a conference room nodding through a conversation about timelines. Notes filled a page. Agreement happened before she’d fully thought it through. Later would deal with it. Later always did.
-
-Her phone buzzed as she left the room.
-
-Evan: Dinner tonight? I can pick up Thai.
-
-The message got more attention than it deserved, like it might contain instructions. Evan was Evan. Kind. Reliable. Comfortable letting Rachel decide things, which some days felt like freedom and other days felt like being the only one holding the map.
-
-Yes. Thank you.
-
-She erased the thank you. Put it back. Added a smiley face that felt polite and slightly dishonest.
-
-Another buzz.
-
-Evan: Cool. You okay?
-
-A small frown pulled at her mouth. She hadn’t said anything strange. No clipped replies. No emotional tells she was aware of.
-
+Yes. Thank you.  
 Yeah. Just busy.
 
-A pause.
+She almost told him about the envelope. Typed half a sentence. Deleted it.
 
-Evan: Okay. Miss you.
+By the time she got to her car, the paper felt heavier than paper should. She tossed it onto the passenger seat and tried not to look at it.
 
-That landed heavier than expected. Sweet. Familiar. Real in a way she didn’t want to examine too closely.
+Traffic crawled. Sunlight flared low through the windshield. At a red light, the radio hissed, dropped to static, and for an instant she heard one word in the noise.
 
-Miss you too.
+Found.
 
-Her hands stayed on the keyboard longer than necessary, hovering like there was something else she was supposed to type. The missing feeling brushed past again, quick and light as a draft through an open door.
+Her grip tightened on the wheel. Hungry explained it. Tired explained it. An overactive brain explained it.
 
-The bathroom break was mostly an excuse to interrupt her own thoughts.
-
-In the mirror, she looked like herself. Mid-twenties. Brown hair she always meant to do something with and never did. Tired eyes that made her look more serious than she felt. A crease between her eyebrows that showed up when she concentrated and refused to leave, like it had decided to live there.
-
-Cold water helped. A quiet get a grip helped a little more.
-
-The afternoon passed in manageable pieces. Tasks completed. Small annoyances absorbed. Laughter slipped in now and then like cracks in the routine. At five thirty, the laptop shut. A bag went over her shoulder. The elevator ride down included two people who smelled like cologne and one who smelled like new carpet.
-
-Outside, the evening air reset something in her chest. The car unlocked with a chirp. She got in and rested her hands on the steering wheel for a moment before turning the key.
-
-Just a moment. A breath. The transition from work to home.
-
-She'd always done this. Never questioned it.
-
-Traffic moved. The radio played something unfamiliar. Sunlight flared low through the windshield. Evan appeared in her mind carrying takeout bags, knocking with his elbow, smiling like he expected praise. A smile showed up on her face without permission.
-
-Her brain followed it with something less helpful.
-
-If you disappeared, he’d be the one who had to tell everyone.
-
-Her grip tightened on the wheel. Tired explained it. Hungry explained it. An overdramatic brain explained it. The light turned red. The car idled. People crossed the street. The sense of misalignment returned, subtle but insistent, like the wrong soundtrack playing under an otherwise normal scene.
+The light changed.
 
 Green.
 
@@ -261,15 +224,27 @@ The three of them exchanged quick looks. Ilyra tilted her head slightly. Edrin r
 
 “I think I am,” Rachel said. “Mostly.”
 
-“And then,” Edrin added, “we slow things down.”
+“And then,” Edrin added, “we slow things down. Fast.”
 
 Her stomach tightened. “From what?”
 
-“From cascading,” he said, then caught himself. “That sounded—”
+“From cascading,” he said, rubbing a hand over his face. “A failed crossing can trigger a chain response. Wards notice. Council instruments notice.”
 
 “Bad,” Rachel supplied.
 
-His mouth twitched, apologetic. “Yes.”
+“Potentially fatal,” Ilyra said. “For you. For us.”
+
+Edrin nodded once. “If a beacon spikes, an adjudicator gets assigned. They classify first and ask questions later.”
+
+Rachel stared at him. “Classify me as what?”
+
+Ilyra met her gaze. “Breach-source. Dangerous object. Containment at best.”
+
+Maelin’s voice was softer. “Sometimes erasure, if the adjudicator decides the risk is unstable.”
+
+Rachel stared.
+
+Edrin swallowed. “We’re trying to prevent that.”
 
 Her purse was gone. Phone, keys, wallet—everything that tied her to the day she’d been having. Gone with the car. That absence pressed on her harder than the pain did.
 
@@ -300,6 +275,14 @@ Rachel's breath caught. "What does that mean?"
 "Sometimes it stretches," Ilyra said. "Sometimes it… doesn't line up. A day here might be an hour there. Or a week. The boundaries don't keep consistent time."
 
 Rachel stared at her. "Boundaries. You keep saying that. What boundaries?"
+
+Maelin glanced toward the broken circle. "The ones that should have rejected you. The working rewrote itself around your signature. That does not happen in ordinary crossings."
+
+Rachel stared at the fractured lines on the floor and felt her pulse stutter. "That symbol in your circle. I saw it this morning. On a note left on my car."
+
+Edrin went still. "What note?"
+
+"No sender. Just one line: *You were sealed for a reason.*"
 
 The three of them went still.
 
@@ -719,9 +702,15 @@ But Rachel couldn't stop. Didn't know how. The sensation in her palm had become 
 
 And she was the dam, and the dam was breaking.
 
-Edrin moved toward her, hand out, then jerked back. "Rachel, you need to—"
+Edrin moved toward her, hand out. "Rachel, you need to—"
 
 The tilt steepened.
+
+A shelf tore loose from the far wall. Books and a lantern came down in one violent sweep. Edrin threw up his arm on instinct. Glass shattered against his forearm and a line of blood opened immediately, bright against his sleeve.
+
+He hissed and staggered back, clutching the wound.
+
+"Leave it!" Ilyra snapped, already moving. "Move her first."
 
 Books slid from shelves she couldn't see. Something clattered to the floor in another room. The building itself seemed to groan, wood and stone protesting an angle they were never meant to hold.
 
@@ -878,7 +867,7 @@ Rachel crossed the threshold. The air changed immediately—cooler, heavier, tha
 
 Inside, the room had been rearranged.
 
-Not dramatically. Just enough. Chairs pulled back. Objects spaced wider apart. The ledger sat closed near Edrin instead of spread across the table. Ilyra leaned against the wall, arms crossed, posture loose but alert.
+Not dramatically. Just enough. Chairs pulled back. Objects spaced wider apart. The ledger sat closed near Edrin instead of spread across the table, his forearm wrapped in a rough bandage already rust-colored at the edges. Ilyra leaned against the wall, arms crossed, posture loose but alert.
 
 They'd cleared the space around where Rachel had stood.
 
@@ -894,7 +883,9 @@ Rachel stopped just inside the door, staring at that empty space. "You moved eve
 
 Rachel's hands curled into fists at her sides. "I could have killed you. All of you. The building was—I felt it groaning, like it was going to come apart."
 
-"But it didn't," Edrin said.
+"But it didn't," Edrin said, lifting his bandaged arm a fraction. "I took glass, not collapse."
+
+The bandage turned Rachel's stomach harder than the memory of the tilt.
 
 "Because I ran outside!" Rachel's voice cracked. "Not because I stopped it. Not because I had any control. I just—fled. And what if next time I can't? What if it happens when I'm sleeping, or—"
 
@@ -1502,6 +1493,7 @@ The writing appeared slowly.
 Then:
 
 **Do not attempt replication again.**
+**Do not notify ward authorities. If Eastern Adjudicator Vex is assigned, discretion is lost.**
 
 Rachel leaned forward before she meant to.
 
@@ -2521,6 +2513,24 @@ Rachel closed her eyes briefly. Opened them. The world remained unchanged, but s
 "I'll never be ready," she said. "But let's go anyway."
 
 Maelin smiled at that. "That's usually how it works."
+
+The paired book on the table snapped open by itself.
+
+Ink bled across the page in fast, angular script:
+
+**Automated Notice: Anomalous Crossing Beacon Registered.**  
+**Region: Near March, West Spur.**  
+**Provisional review assigned to Eastern Adjudicator Vex.**
+
+No one spoke.
+
+Rachel read the name twice. "Adjudicator."
+
+"Council investigator," Ilyra said. "With authority to classify, contain, or erase unstable breaches."
+
+Edrin shut the book too quickly, like he could hide the words by covering them. "It's provisional. It doesn't mean he's coming here."
+
+Arathen's expression said otherwise.
 
 
 ---
@@ -5210,15 +5220,37 @@ The rest of the day passed in strange limbo. Rachel dozed intermittently, never 
 
 Arathen stayed close. Not hovering, exactly. Just present. Reading from a small book, consulting that brass-and-glass device occasionally, keeping watch in his particular way.
 
-As the afternoon dimmed toward evening, he set his book aside and moved to sit near Rachel's bedroll.
+As the afternoon dimmed toward evening, he set his book aside and moved to sit near Rachel's bedroll, brass-and-glass device in hand.
 
-"Question," he said.
+"Before anything else," he said, "I need to check something."
 
-Rachel shifted to face him. "Answer. Maybe."
+Rachel shifted to face him. "That sounds ominous."
 
-His mouth quirked. "When you were fixing the collapse—did you feel anything unusual? Beyond the obvious strain, I mean."
+"Probably," he said. "Give me your hand."
 
-Rachel thought about it. "The boundaries responded to me," she said slowly. "Like they recognized me. Like they were waiting for someone with authority to tell them what to do." She paused. "It didn't feel like I was forcing them. It felt like I was reminding them. Of what they should be."
+She did. The device warmed against her palm, its inner rings turning on their own. One filament of light appeared immediately--steady, blue-white, anchored to where she sat. A second thread flickered into existence, thin and silver, reaching outward into nothing.
+
+Rachel's breath caught. "Is that... Earth?"
+
+Arathen nodded once. The silver thread trembled, dimmed, then collapsed into darkness.
+
+He exhaled slowly. "I took readings at the collapse site while you were unconscious. Your origin anchor is gone."
+
+Rachel stared at him. "Gone how?"
+
+"Burned out when you rewove the boundary cascade," he said. "The connection that could target your world specifically no longer resolves. We can still open crossings in theory. But not to your exact coordinate. Not to your timeline. Not safely."
+
+The words landed without drama and still felt like impact.
+
+"So no messages either," Rachel said. "No way to tell Evan I'm alive. No way to get back to what I had."
+
+Arathen didn't offer false comfort. "Not by any method I trust with your life."
+
+Silence stretched between them, thinner than grief and sharper.
+
+He let her sit in it for a moment, then spoke again, softer. "Second question. When you were fixing the collapse--did you feel anything unusual? Beyond the obvious strain, I mean."
+
+Rachel swallowed and looked away from the dead silver thread in her memory. "The boundaries responded to me," she said slowly. "Like they recognized me. Like they were waiting for someone with authority to tell them what to do." She paused. "It didn't feel like I was forcing them. It felt like I was reminding them. Of what they should be."
 
 Arathen nodded, like she'd confirmed something. "That's what I thought. You weren't imposing your will on reality. You were helping reality remember its own rules."
 
@@ -5264,9 +5296,13 @@ Rachel hadn't noticed that. But he was right. The cold had registered, but it ha
 
 The truth of it settled over Rachel like a weight. Not oppressive. Just present. Undeniable.
 
-"I'm never going back, am I?" she asked quietly. "To my world. Even if we figure out how, even if it's possible—I can't go back to being human. To pretending to be human."
+"So that's it," she said quietly. "Not a choice between worlds. A closed door."
 
-"No," Arathen said gently. "You can't. But Rachel—" He waited until she looked at him. "Did you ever really fit there? Were you happy?"
+Arathen didn't look away. "A closed door to the life you had. Maybe not to every possibility. But yes. That specific life is gone."
+
+Rachel let that truth settle where denial had lived.
+
+"Then ask me again," she said. "Did I fit there? Was I happy?"
 
 Rachel thought about her apartment. Her job. Her relationship with Evan. The carefully constructed life she'd built around the hollow feeling that nothing ever quite made sense.
 
@@ -7674,7 +7710,23 @@ Rachel pressed her palms against her eyes, fighting tears of frustration and sha
 
 Rachel didn't have an answer for that.
 
-Sivara's expression softened slightly. "Go back to the inn. Rest. Actually rest, not 'perform resting while secretly planning tomorrow's training.' Tomorrow we talk about knowing your limits before I teach you anything else."
+Sivara drew a breath, then made a formal sign Rachel had only seen in council disputes.
+
+"Listen carefully," she said. "I'm placing you under trainee censure for three days. No field work. No unsupervised boundary contact. You train theory only, and only with me present."
+
+Rachel blinked. "You're suspending me?"
+
+"I'm keeping you alive," Sivara said. "And because this happened in municipal range, I am required to file it with Thornhaven's ward office. If I don't, and you hurt yourself or someone else tomorrow, that's on me."
+
+She touched two fingers to Rachel's wrist. A thin silver mark appeared--a closed circle crossed by a line--then settled under the skin like pale ink.
+
+"This records restriction status for local ward systems," Sivara said. "Ignore it and every patrol in Thornhaven will know."
+
+Shame burned hotter than the headache. "So now there's an official record that I'm unstable."
+
+"Now there's an official record that your instructor took responsibility," Sivara corrected. "Take the lesson and survive long enough to hate me for it."
+
+Sivara's expression softened slightly. "Go back to the inn. Rest. Actually rest, not 'perform resting while secretly planning tomorrow's training.' In three days we talk about knowing your limits before I teach you anything else."
 
 Rachel nodded miserably and stood on shaking legs. The walk back to the inn took twice as long as usual, her body protesting every step. Her head pounded with each heartbeat. At the door, she nearly collided with Maelin and Ilyra, both dressed for exploration and looking pleased with themselves.
 
@@ -7767,6 +7819,8 @@ And prepared for what she was becoming.
 ## Chapter Thirty-Three
 
 The memory came without warning.
+
+The censure mark on Rachel's wrist had faded that morning, the silver line dissolving as Thornhaven's systems cleared her for field work again.
 
 Rachel was working with Sivara on advanced boundary reading—learning to sense not just current boundaries but their history, the layers of previous repairs and alterations that accumulated over time like rings in a tree. It was delicate work, requiring her to reach deeper into boundary structures than she'd attempted before.
 
@@ -7910,9 +7964,9 @@ Maelin pulled her into a fierce hug. "Why didn't you tell us? Why did you try to
 
 Rachel let herself be led back inside, still crying, but no longer alone.
 
-That was true. Sivara would have questions—practical, necessary questions about the memory's details, about what it meant for Rachel's future. The others would have offered comfort, but also opinions, reactions, their own processing.
+The common room conversation was exactly what Maelin had promised: messy, practical, full of concern. Sivara asked for every detail of the echo, then formally amended Rachel's censure file to include memory-risk restrictions. Edrin wanted to map related sites immediately. Ilyra wanted guards doubled. Maelin kept one hand on Rachel's shoulder through all of it.
 
-Arathen just held her. Let her feel what she felt without requiring it to be organized or useful.
+Afterward, when the planning noise finally died down, Arathen found Rachel in the corridor and just held her. Let her feel what she felt without requiring it to be organized or useful.
 
 She pressed closer, needing the solid reality of him.
 
@@ -9603,6 +9657,10 @@ Vex turned to address the chamber fully. "Theryn disappeared without warning, wi
 "Rachel is Theryn's daughter," Sivara interjected. "Heir by blood and power. Legal stewardship doesn't supersede genetic inheritance."
 
 "In cases where the heir is competent," Vex countered. "Rachel is untrained, inexperienced, and politically naive. Granting her territorial authority would be irresponsible. She's barely learned to control her abilities, let alone manage boundary regions."
+
+He produced a thin slate and held it up toward the Council. "Thornhaven Ward Office censure docket, filed by Instructor Sivara: trainee overreach, boundary feedback collapse, municipal restriction mark issued. Her own mentor's record describes her as a current safety risk."
+
+Sivara's jaw tightened. "Yes. I filed it. Because responsible instructors document risk and manage it. The censure expired on schedule, and Rachel complied with every restriction."
 
 "I defeated your forces twice," Rachel said quietly. "Survived your assassins. Repaired boundary collapses you couldn't. I'm stronger than you expected."
 

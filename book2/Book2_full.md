@@ -3031,6 +3031,11 @@ Teral and Maelin guided the injured walker toward the house, his jaw tight
 against pain. Caelen followed, shaken and pale, notebook still clutched in
 one hand as if he had forgotten he was holding it.
 
+Hessa, Thornhaven's nearest bone-healer, arrived before the lamps were lit.
+She reset the shoulder in clipped silence and warned that he would keep
+strength but not full rotation overhead. "Useful arm, changed arm," she said,
+and no one in the courtyard pretended that counted as minor.
+
 Edrin crouched beside the marker, fingertips hovering over the stone.
 "There's residue in the turn."
 
@@ -3051,6 +3056,10 @@ courtyard stones.
 
 "Then we record both," she said. "Unsafe imitation and external
 interference. We do not let either become rumor without language."
+
+Vaelis added a final line to the incident ledger before closing it:
+Level-Three civic boundary injury, mimic-linked, external interference
+suspected.
 
 No one argued.
 

@@ -7388,6 +7388,8 @@ Rachel bristled. "And yet."
 
 "I'm being honest," Valen said. "She deserves that much. The power she demonstrated at the collapse—that shouldn't be possible for someone untrained. It suggests potential we don't understand. Potential is dangerous."
 
+"And the correction pattern from Sethril wasn't standard hinge doctrine," he added, gaze still fixed on Rachel. "It matches pre-doctrine settling models from Architect-era texts. If that's instinct, it's older than anything the Council currently teaches."
+
 "Potential is also useful," Kovan interjected. "If guided properly."
 
 The fifth demon had been standing apart, watching the exchanges with quiet attention. They were slight, androgynous, with white hair that moved as if in constant breeze despite the still air. "Ilya. Dream walker. I navigate the spaces between conscious and unconscious realities."
@@ -8082,7 +8084,78 @@ That would have to be enough.
 
 ## Chapter Thirty-Four
 
-Three days passed in something that felt almost like normal.
+The first of those days broke before breakfast.
+
+Rachel was crossing the south market lane with Maelin and Edrin when the
+nearest municipal marker gave a high, wrong note—more whistle than hum.
+Not a full tear. A stress hitch.
+
+She turned toward it automatically.
+
+A young boundary apprentice she recognized from Sivara's outer lessons stood
+too close to the stone ring, right hand lifted in a crude imitation of
+Rachel's wrist turn. Two friends watched from the curb with notebook pages
+already open.
+
+"Don't," Rachel called, already moving.
+
+The apprentice flinched—and completed the motion anyway.
+
+The marker answered with a lateral snap. Air sheared sideways hard enough to
+throw a produce cart into the next stall. A courier hit the paving shoulder
+first and screamed, forearm bent wrong.
+
+Rachel dropped to one knee at the marker and reached for the hitch before it
+could run. The first layer yielded fast.
+
+Beneath it, something colder slid under her touch.
+
+Not random strain. A deliberate drag, thin and patient, the same searching
+pressure she'd felt in the dream when Vex pressed at her boundaries.
+
+She cut across it and forced the seam flat.
+
+The street sound returned in broken pieces—people shouting for healers,
+wood splintering as someone righted the cart, the courier trying not to cry.
+
+Maelin was already at the injured woman's side, stabilizing her arm with
+clean cloth and a splint improvised from market slats. Edrin crouched at the
+marker, fingers hovering over the carved line.
+
+"This isn't only mimic failure," he said tightly. "There's external residue.
+Someone pre-tensioned this line."
+
+Sivara arrived at a run with Mirrel two steps behind her.
+
+Mirrel took in the damaged stall, the injured courier, the apprentice shaking
+in place. His expression hardened.
+
+"This is what I warned about," he said. "Visibility is instruction. Half the
+district is trying to copy motions they don't understand."
+
+Sivara's voice cut cleanly through the lane. "Unsanctioned practice in a
+public line is on me and the ward office. Not on Rachel."
+
+"The line still bent around her presence," Mirrel said. "And now someone is
+using that pattern against us."
+
+He wasn't wrong, and Rachel hated that he wasn't wrong.
+
+The apprentice started to apologize and couldn't get the words out.
+
+Sivara turned to him first. "You report to ward supervision at second bell.
+No field work until cleared."
+
+Then to Rachel: "You don't answer public hitches alone anymore. Two-person
+protocol minimum. If this is Vex probing response times, he doesn't get easy
+data."
+
+Rachel nodded. Her hands were still shaking.
+
+By midday, the lane was reopened, but the mood in Thornhaven had shifted.
+People still greeted Rachel. They also watched her hands.
+
+After that, three days passed in something that felt almost like normal.
 
 Training continued—Sivara was relentless but careful, pushing Rachel's abilities while keeping her away from dangerous echoes. Research proceeded—Edrin buried himself in library texts, emerging periodically with fragments of information about Theryn's territorial work and political connections. Ilyra made discreet inquiries, mapping Thornhaven's social network with the precision of someone who understood how information flowed.
 
